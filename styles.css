@@ -1,0 +1,91 @@
+* { box-sizing: border-box; }
+body { font-family: system-ui, sans-serif; margin: 0; height: 100vh; display: flex; overflow: hidden; }
+#sidebar { width: 350px; border-right: 1px solid #ddd; padding: 15px; display: flex; flex-direction: column; background: #fff; transition: transform 0.3s; }
+#viewer-container { flex-grow: 1; display: flex; flex-direction: column; background: #f4f7f6; position: relative; }
+
+@media (max-width: 600px) {
+#sidebar { position: absolute; width: 100%; height: 100%; z-index: 10; }
+#sidebar.collapsed { transform: translateX(-100%); }
+}
+.result-item { padding: 15px; border-bottom: 1px solid #eee; cursor: pointer; }
+#searchBox { padding: 10px; margin-bottom: 10px; border: 1px solid #ccc; border-radius: 4px; }
+button { padding: 10px; border: none; background: #007BFF; color: white; border-radius: 4px; cursor: pointer; }
+button:hover { background: #0056b3; }  
+
+#viewer-container {
+  flex-grow: 1;
+  display: flex;
+  flex-direction: column;
+  background: #f4f7f6;
+  /* Esto es clave para que no crezca infinitamente */
+  height: 100vh; 
+  overflow: hidden; 
+}
+
+#previewContent {
+  display: flex;
+  flex-direction: column;
+  flex-grow: 1;
+  overflow-y: auto; /* Aquí vive el scroll del contenido */
+  padding: 20px;
+  background: white;
+  border: 1px solid #ddd;
+  margin: 10px;
+  border-radius: 8px;
+}
+
+.nav-bar {
+  position: sticky;
+  top: 0;
+  background: #333;
+  color: white;
+  padding: 10px;
+  display: flex;
+  gap: 10px;
+  z-index: 10;
+}
+
+.file-body { padding: 20px; overflow-y: auto; /* Esto permite que scrollIntoView encuentre el elemento */
+flex-grow: 1;}
+.match { background: yellow; border: 1px solid orange; border-radius: 2px; }
+
+/* Base Page Settings */
+/* Esto aplica estilos al cuerpo del contenido inyectado */
+#previewContent {
+    font-family: Arial, sans-serif;
+    line-height: 1.6;
+    padding: 20px;
+    color: #333;
+}
+
+/* Selector correcto: Espacio entre contenedor y clase */
+#previewContent .titulo, 
+#previewContent .subtitulo, 
+#previewContent .autor, 
+#previewContent .edicion, 
+#previewContent .lugar, 
+#previewContent .descripcion {
+    text-align: center;
+    color: black;
+    margin-bottom: 20px;
+}
+
+/* Selector correcto: Sin punto en la etiqueta (ej: h1, no .h1) */
+#previewContent h1.titulo { font-size: 32px; }
+#previewContent h1.subtitulo { font-size: 24px; }
+#previewContent h1.autor, 
+#previewContent h2.edicion { font-size: 20px; }
+
+#previewContent p.lugar, 
+#previewContent p.descripcion { font-size: 18px; }
+
+#previewContent h2 {
+    color: #2c3e50;
+    padding-bottom: 10px;
+    margin-top: 30px;
+}
+
+#previewContent p {
+    margin-bottom: 15px;
+    text-align: justify;
+}
