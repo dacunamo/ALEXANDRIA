@@ -1,21 +1,34 @@
+function abrirHerramienta() {
+    // Aquí puedes redirigir a la ruta de tu buscador de Deno
+      window.location.href = "/index.html"; 
+}
+
 let currentResults = [];
 let activeMatch = 0;
 let matchCount = 0;
 let lastRenderedContent = ""; // Guardamos el original para limpiar búsquedas
 
+
+
 // 1. Búsqueda principal desde el Sidebar
 async function search() {
-  const q = document.getElementById('searchBox').value.trim();
+  const searchBox = document.getElementById('searchBox');
+  if (!searchBox) return; // Si no existe el box (estás en bienvenida), no hace nada
+
+  const q = searchBox.value.trim();
   if (!q) return;
 
-  const res = await fetch(`/search?q=${encodeURIComponent(q)}`);
-  currentResults = await res.json();
+  try {
+      const res = await fetch(`/search?q=${encodeURIComponent(q)}`);
+      currentResults = await res.json();
 
-  document.getElementById('resultsList').innerHTML = currentResults.map((f, i) => 
-    `<div class="result-item" onclick="renderFile(${i}, '${q}')">${f.name}</div>`
-  ).join('');
+      document.getElementById('resultsList').innerHTML = currentResults.map((f, i) => 
+        `<div class="result-item" onclick="renderFile(${i}, '${q}')">${f.name}</div>`
+      ).join('');
+  } catch (err) {
+      console.error("Error en la búsqueda:", err);
+  }
 }
-
 // 2. Renderizado del archivo seleccionado
 function renderFile(idx, q) {
   const container = document.getElementById('previewContent');

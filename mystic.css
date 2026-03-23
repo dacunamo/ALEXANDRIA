@@ -1,0 +1,166 @@
+/* --- Variables para el estilo Alexandria --- */
+:root {
+  --oro: #d4af37;
+  --fondo-oscuro: #0c0814;
+  --fondo-panel: #161021;
+  --borde-oro: rgba(212, 175, 55, 0.3);
+  --texto-suave: #d1d1d1;
+}
+
+* { box-sizing: border-box; }
+
+body { 
+  font-family: 'Georgia', serif; /* Cambiado a serif para estilo místico */
+  margin: 0; 
+  height: 100vh; 
+  display: flex; 
+  overflow: hidden; 
+  background-color: var(--fondo-oscuro); /* Fondo base oscuro */
+  color: var(--texto-suave);
+}
+
+#sidebar { 
+  width: 350px; 
+  border-right: 1px solid var(--borde-oro); 
+  padding: 15px; 
+  display: flex; 
+  flex-direction: column; 
+  background: var(--fondo-panel); /* Sidebar oscuro */
+  transition: transform 0.3s; 
+}
+
+#viewer-container { 
+  flex-grow: 1; 
+  display: flex; 
+  flex-direction: column; 
+  background: var(--fondo-oscuro); 
+  position: relative; 
+  height: 100vh; 
+  overflow: hidden; 
+}
+
+@media (max-width: 600px) {
+  #sidebar { position: absolute; width: 100%; height: 100%; z-index: 10; }
+  #sidebar.collapsed { transform: translateX(-100%); }
+}
+
+.result-item { 
+  padding: 15px; 
+  border-bottom: 1px solid rgba(212, 175, 55, 0.1); 
+  cursor: pointer; 
+  color: var(--texto-suave);
+}
+
+.result-item:hover {
+  background: rgba(212, 175, 55, 0.1);
+  color: var(--oro);
+}
+
+#searchBox { 
+  padding: 10px; 
+  margin-bottom: 10px; 
+  border: 1px solid var(--borde-oro); 
+  border-radius: 4px; 
+  background: rgba(0,0,0,0.3); 
+  color: var(--oro); 
+}
+
+button { 
+  padding: 10px; 
+  border: 1px solid var(--oro); 
+  background: transparent; 
+  color: var(--oro); 
+  border-radius: 4px; 
+  cursor: pointer; 
+  text-transform: uppercase;
+  transition: 0.3s;
+}
+
+button:hover { 
+  background: var(--oro); 
+  color: var(--fondo-oscuro); 
+}  
+
+#previewContent {
+  display: flex;
+  flex-direction: column;
+  flex-grow: 1;
+  overflow-y: auto; 
+  padding: 20px;
+  background: #110a1f; /* Fondo del visor ligeramente diferente */
+  border: 1px solid var(--borde-oro);
+  margin: 10px;
+  border-radius: 8px;
+  color: var(--texto-suave);
+}
+
+.nav-bar {
+  position: sticky;
+  top: 0;
+  background: var(--fondo-panel);
+  color: var(--oro);
+  padding: 10px;
+  display: flex;
+  gap: 10px;
+  z-index: 10;
+  border-bottom: 1px solid var(--borde-oro);
+}
+
+.nav-bar input {
+  background: #000;
+  border: 1px solid var(--borde-oro);
+  color: white;
+  padding: 5px;
+}
+
+.file-body { 
+  padding: 20px; 
+  overflow-y: auto; 
+  flex-grow: 1;
+}
+
+/* Resaltado de búsqueda místico */
+.match { 
+  background: rgba(212, 175, 55, 0.3); 
+  border: 1px solid var(--oro); 
+  color: white;
+  border-radius: 2px; 
+}
+
+/* Estilos de contenido inyectado adaptados al fondo oscuro */
+#previewContent .titulo, 
+#previewContent .subtitulo, 
+#previewContent .autor, 
+#previewContent .edicion, 
+#previewContent .lugar, 
+#previewContent .descripcion {
+    text-align: center;
+    color: var(--oro); /* Títulos en oro */
+    margin-bottom: 20px;
+}
+
+#previewContent h1.titulo { font-size: 32px; text-shadow: 0 0 10px rgba(212,175,55,0.2); }
+#previewContent h1.subtitulo { font-size: 24px; }
+#previewContent h1.autor, 
+#previewContent h2.edicion { font-size: 20px; color: #f1d592; }
+
+#previewContent p.lugar, 
+#previewContent p.descripcion { font-size: 18px; color: #ccc; }
+
+#previewContent h2 {
+    color: var(--oro);
+    padding-bottom: 10px;
+    margin-top: 30px;
+    border-bottom: 1px solid rgba(212,175,55,0.2);
+}
+
+#previewContent p {
+    margin-bottom: 15px;
+    text-align: justify;
+    color: var(--texto-suave);
+}
+
+/* Scrollbar para que no rompa la estética */
+::-webkit-scrollbar { width: 8px; }
+::-webkit-scrollbar-track { background: var(--fondo-oscuro); }
+::-webkit-scrollbar-thumb { background: var(--borde-oro); border-radius: 10px; }

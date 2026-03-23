@@ -1,0 +1,126 @@
+:root {
+            --oro: #d4af37;
+            --purpura-oscuro: #0f0a1a;
+            --purpura-medio: #251b36;
+            --blanco-suave: #f0ece2;
+        }
+
+        body, html {
+            margin: 0;
+            padding: 0;
+            height: 100%;
+            font-family: 'Garamond', 'Georgia', serif;
+            background-color: var(--purpura-oscuro);
+            color: var(--blanco-suave);
+            display: flex;
+            justify-content: center;
+            align-items: center;
+            overflow: hidden;
+        }
+
+        /* Capa de fondo con los Maestros */
+        .background-masters {
+            position: absolute;
+            top: 0;
+            left: 0;
+            width: 100%;
+            height: 100%;
+            z-index: -1;
+            display: flex;
+            justify-content: space-between;
+            align-items: center;
+            padding: 0 5%;
+            box-sizing: border-box;
+            opacity: 0.25;
+            filter: sepia(0.3);
+        }
+
+        .master-frame {
+            width: 300px;
+            height: 450px;
+            border: 1px solid var(--oro);
+            background-size: cover;
+            background-position: center;
+            box-shadow: 0 0 20px rgba(212, 175, 55, 0.1);
+        }
+
+        /* Marcadores para tus fotos locales */
+        .foto-samael { background-image: url('samael.jpg'); }
+        .foto-lakshmi { background-image: url('lakshmi.jpg'); }
+
+        .main-card {
+            text-align: center;
+            max-width: 700px;
+            padding: 3rem;
+            background: rgba(15, 10, 26, 0.85);
+            border: 2px solid var(--oro);
+            border-radius: 4px;
+            backdrop-filter: blur(8px);
+            box-shadow: 0 0 60px rgba(0, 0, 0, 0.8);
+            position: relative;
+        }
+
+        /* Adorno en las esquinas */
+        .main-card::before {
+            content: "✧";
+            position: absolute;
+            top: 10px;
+            left: 10px;
+            color: var(--oro);
+        }
+
+        h1 {
+            color: var(--oro);
+            font-size: 3.5rem;
+            margin-top: 0;
+            margin-bottom: 1rem;
+            letter-spacing: 6px;
+            font-weight: normal;
+            text-shadow: 0 0 15px rgba(212, 175, 55, 0.4);
+        }
+
+        p {
+            font-size: 1.3rem;
+            line-height: 1.8;
+            margin-bottom: 2rem;
+            font-style: italic;
+            color: #ccc;
+        }
+
+        .status {
+            font-size: 0.9rem;
+            color: #888;
+            text-transform: uppercase;
+            letter-spacing: 2px;
+            margin-bottom: 2.5rem;
+        }
+
+        .btn-enter {
+            background-color: transparent;
+            color: var(--oro);
+            border: 1px solid var(--oro);
+            padding: 18px 50px;
+            font-size: 1rem;
+            text-transform: uppercase;
+            letter-spacing: 3px;
+            cursor: pointer;
+            transition: all 0.4s ease;
+            text-decoration: none;
+            display: inline-block;
+        }
+
+        .btn-enter:hover {
+            background-color: var(--oro);
+            color: var(--purpura-oscuro);
+            box-shadow: 0 0 30px rgba(212, 175, 55, 0.6);
+            transform: scale(1.05);
+        }
+
+        .fade-in {
+            animation: fadeInBody 2.5s ease-out;
+        }
+
+        @keyframes fadeInBody {
+            from { opacity: 0; transform: scale(0.98); }
+            to { opacity: 1; transform: scale(1); }
+        }

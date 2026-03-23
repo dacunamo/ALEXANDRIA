@@ -40,7 +40,7 @@ Deno.serve(async (req) => {
   }
 
   // 2. Servir archivos estáticos
-  const path = url.pathname === "/" ? "./index.html" : `.${url.pathname}`;
+  const path = url.pathname === "/" ? "./loader.html" : `.${url.pathname}`;
   
   try {
     return await serveFile(req, path);
