@@ -236,7 +236,6 @@ button:hover {
     cursor: pointer;
     
     /* Flexbox para alinear las rayas */
-    display: flex;
     flex-direction: column;
     justify-content: center;
     align-items: center;
@@ -257,16 +256,6 @@ button:hover {
 @media (max-width: 768px) {
     #mobile-toggle {
         display: flex;
-        flex-direction: column;
-        justify-content: center;
-        position: fixed;
-        top: 15px;
-        right: 15px; /* Lo movemos a la derecha para que no choque con el texto */
-        z-index: 10001; /* Siempre por encima de la nav-bar */
-        background: var(--fondo-panel);
-        border: 1px solid var(--oro);
-        width: 45px;
-        height: 45px;
     }
 
     #sidebar {
