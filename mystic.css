@@ -9,16 +9,23 @@
 
 * { box-sizing: border-box; }
 
-body { 
+html, body { 
   font-family: 'Georgia', serif; /* Cambiado a serif para estilo místico */
   margin: 0; 
-  height: 100vh; 
+  height: 100%; 
   display: flex; 
+  flex-direction: column;
   overflow: hidden; 
   background-color: var(--fondo-oscuro); /* Fondo base oscuro */
   color: var(--texto-suave);
 }
 
+.app-container {
+    display: flex;
+    flex: 1; 
+    overflow: hidden;
+    position: relative;
+}
 /*loading screen*/
 #loading-overlay {
     position: fixed;
@@ -91,7 +98,7 @@ body {
 }
 
 #viewer-container { 
-  flex-grow: 1; 
+  flex: 1; 
   display: flex; 
   flex-direction: column; 
   background: var(--fondo-oscuro); 
@@ -114,7 +121,6 @@ body {
 
 #searchBox { 
   padding: 10px; 
-  margin-bottom: 10px; 
   border: 1px solid var(--borde-oro); 
   border-radius: 4px; 
   background: rgba(0,0,0,0.3); 
@@ -225,13 +231,13 @@ button:hover {
 #mobile-toggle {
     display: none; /* Oculto en PC */
     position: fixed;
-    top: 15px;
+    top: 5px;
     right: 15px;
     z-index: 10001; /* Por encima de todo */
     background: var(--fondo-panel);
     border: 1px solid var(--oro);
     width: 45px;
-    height: 45px;
+    height: 5%;
     border-radius: 5px;
     cursor: pointer;
     
@@ -254,8 +260,12 @@ button:hover {
 
 /* --- Ajustes para Móvil (Media Query) --- */
 @media (max-width: 768px) {
+    .header-logo {
+      display: none;
+    }
     #mobile-toggle {
         display: flex;
+        
     }
 
     #sidebar {
@@ -275,43 +285,27 @@ button:hover {
     }
 
     /* El contenedor del buscador principal debe ser fijo */
-    .search-group {
-        position: fixed;
+    .search-group-header {
+        position: sticky;
         top: 0;
         left: 0;
         width: 100%;
-        height: 70px;
         background: var(--fondo-panel);
         padding: 10px 70px 10px 15px; /* Espacio a la derecha para la hamburguesa */
-        z-index: 1000;
+        z-index: 1001;
         border-bottom: 2px solid var(--oro);
         margin: 0;
         display: flex;
         align-items: center;
         gap: 5px;
     }
-
-    #searchBox {
-        margin-bottom: 0; /* Alineación con el botón */
-        flex-grow: 1;
-    }
-
     /* Ajuste para que el libro no empiece debajo del buscador */
-    #viewer-container {
-        margin-top: 70px; 
-        padding-top: 100px;
-        height: calc(100vh - 70px);
-    }
-    #previewContent {
-        overflow-x: hidden;
-        height: calc(100vh - 100px); /* Ajustamos para el espacio del buscador */
-    }
+
 
 .nav-bar {
     display: flex;
     flex-direction: column; /* Apila Fila 1 sobre Fila 2 */
     gap: 10px;
-    padding: 12px;
     background: var(--fondo-panel);
     border-bottom: 1px solid var(--borde-oro);
     position: sticky;
@@ -352,17 +346,21 @@ button:hover {
     align-items: center;
     padding-left: 2px;
 }
+    #viewer-container {
+      flex: 1;
+      display: flex;
+      flex-direction: column;
+      height: auto;    
+      overflow: hidden; 
+      z-index: 1;/* Evita scrolls dobles raros */
+    
+    }
+    #previewContent {
+      flex: 1;
+      margin: 5px; /* Un margen pequeño para que no toque los bordes */
+      height: 100%; 
+      display: flex;
+      flex-direction: column;
+    }
 
-/* Ajustes extra para celulares muy angostos */
-@media (max-width: 400px) {
-    .search-box {
-        gap: 5px;
-    }
-    .search-box button {
-        padding: 5px 8px;
-    }
-    #counter {
-        font-size: 0.75rem;
-    }
-}
 }

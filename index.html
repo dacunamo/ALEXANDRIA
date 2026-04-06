@@ -2,45 +2,57 @@
 <html lang="es">
 <head>
   <meta charset="UTF-8">
-  <meta name="viewport" content="width=device-width, initial-scale=1.0">
+  <meta name="viewport" content="width=device-width, initial-scale=1.0, maximum-scale=1.0, user-scalable=no">
   <title>Alexandria - Buscador Gnóstico</title>
   <link rel="stylesheet" href="mystic.css">
 </head>
 <body>
 
   <div class="bg-mystic-overlay"></div>
-<button id="mobile-toggle" onclick="toggleSidebar()">
-    <span></span>
-    <span></span>
-    <span></span>
-  </button>
-<div id="sidebar">
-    <div class="sidebar-header">
-        <h2><span class="symbol">✧</span>ALEXANDRIA<span class="symbol">✧</span></h2>
-    </div>
+
+  <header class="main-header">
+    <div class="header-logo">ALEXANDRIA</div>
     
-    <div class="search-group">
-        <input type="text" id="searchBox" placeholder="Buscar sabiduría..." onkeyup="if(event.key==='Enter') search()">
-        <button onclick="search()">Buscar</button>
+    <div class="search-group-header">
+      <input type="text" id="searchBox" placeholder="Buscar sabiduría..." onkeyup="if(event.key==='Enter') search()">
+      <button onclick="search()">🔍</button>
+    </div>
+          <button id="mobile-toggle" onclick="toggleSidebar()">
+      <span></span>
+      <span></span>
+      <span></span>
+    </button>
+
+
+  </header>
+
+  <div class="app-container">
+    
+    <div id="sidebar">
+      <div class="sidebar-header">
+          <h3>RESULTADOS</h3>
+      </div>
+      <div id="resultsList">
+        </div>
+      </div>
+
+    <div id="viewer-container">
+      <div id="previewContent">
+          <div class="welcome-msg">
+              <p>Selecciona un texto de la Gran Biblioteca para comenzar la lectura...</p>
+          </div>
+      </div>
     </div>
 
-    <div id="resultsList">
-        </div>
   </div>
 
-  <div id="viewer-container">
-    <div id="previewContent">
-        <div class="welcome-msg">
-            <p>Selecciona un texto del archivo para comenzar la lectura...</p>
-        </div>
-    </div>
-  </div>
   <div id="loading-overlay">
     <div class="loader">
         <div class="spinner"></div>
         <span>Buscando en la Gran Biblioteca...</span>
     </div>
+  </div>
+
   <script src="script.js"></script>
-</div>
 </body>
 </html>
