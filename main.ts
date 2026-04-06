@@ -30,7 +30,7 @@ Deno.serve(async (req) => {
         cleanContent = cleanContent.replace(/<style[^>]*>[\s\S]*?<\/style>/gi, "");
 
         if (cleanContent.toLowerCase().includes(query)) {
-          results.push({ name: entry.name, content: cleanContent });
+          results.push({ name: entry.name.replace(".html", "").replace(" v2", ""), content: cleanContent });
         }
       }
     }

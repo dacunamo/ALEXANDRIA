@@ -1,6 +1,7 @@
 <!DOCTYPE html>
 <html lang="es">
 <head>
+    <link href="https://fonts.googleapis.com/css2?family=Lato:ital,wght@0,400;0,700;1,400&display=swap" rel="stylesheet">
     <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
     <title>Alexandria - Buscador Gnóstico</title>
@@ -10,16 +11,18 @@
             --purpura-oscuro: #1a0f2e;
             --purpura-claro: #3d2b56;
             --blanco-suave: #e0e0e0;
+            --celeste: #160e22;
         }
 
         body, html {
             margin: 0;
-            padding: 0;
-            height: 100%;
-            font-family: 'Segoe UI', Tahoma, Geneva, Verdana, sans-serif;
-            background-color: var(--purpura-oscuro);
+            padding-top: 2rem;
+            height: auto;
+            font-family: 'Lato','Segoe UI', Tahoma, Geneva, Verdana, sans-serif;
+            background-color: var(--celeste);
             color: var(--blanco-suave);
             display: flex;
+            flex-direction: column;
             justify-content: center;
             align-items: center;
             overflow: hidden;
@@ -52,29 +55,44 @@
         /* Espacio para las fotos (reemplazar URLs en las variables o el style) */
         .photo-samael { background-image: url('tu-link-a-foto-samael.jpg'); }
         .photo-lakshmi { background-image: url('tu-link-a-foto-lakshmi.jpg'); }
-
+        /* Centra el contenedor del logo */
+        .logo-container {
+            display: flex;          /* Activa el modo flexible */
+            justify-content: center; /* Centra horizontalmente */
+            align-items: center;     /* Centra verticalmente */
+            width: 100%;            /* Ocupa todo el ancho disponible */
+            margin-bottom: 20px;    /* Espacio entre el logo y el texto de abajo */
+        }
+        /* Controla el tamaño de la imagen */
+        .logo-img {
+            max-width: 200px; /* Ajusta según el tamaño de tu logo */
+            height: auto;
+            display: block;
+        }
         .main-container {
             text-align: center;
+            width: 90%;
             max-width: 800px;
-            padding: 2rem;
+            padding: 1.5rem;
             background: rgba(26, 15, 46, 0.8);
             border: 1px solid rgba(212, 175, 55, 0.3);
             border-radius: 15px;
             backdrop-filter: blur(10px);
             box-shadow: 0 0 50px rgba(0, 0, 0, 0.5);
+            box-sizing: border-box;
         }
 
         h1 {
             color: var(--oro);
-            font-size: 3rem;
+            font-size: clamp(1.8rem, 8vw, 3rem); /* Se ajusta solo según el tamaño de pantalla */            
             margin-bottom: 0.5rem;
             text-transform: uppercase;
-            letter-spacing: 4px;
+            letter-spacing: 2px;
             text-shadow: 2px 2px 10px rgba(212, 175, 55, 0.5);
         }
 
         p {
-            font-size: 1.2rem;
+            font-size: 1.0rem;
             line-height: 1.6;
             margin-bottom: 2rem;
             font-style: italic;
@@ -119,14 +137,16 @@
             from { opacity: 0; transform: translateY(20px); }
             to { opacity: 1; transform: translateY(0); }
         }
+        
+
     </style>
 </head>
 <body>
-
-    <div class="background-overlay">
-        <div class="master-photo photo-samael"></div>
-        <div class="master-photo photo-lakshmi"></div>
-    </div>
+    <div class="main">
+        <div class="logo-container">
+            <a href="https://gnosis.is/es/#" ><img src="src/imgs/logo.png" class="logo-img" alt="Alexandria Logo"></a>
+        </div>
+    </div> 
 
     <div class="main-container fade-in">
         <h1>¡Bienvenido a Alexandria!</h1>
@@ -138,9 +158,9 @@
         <div class="status-tag">Aún en construcción</div>
         <br>
         
-        <button class="btn-enter" onclick="abrirHerramienta()">Entrar a la Herramienta</button>
+        <button class="btn-enter" onclick="abrirHerramienta()">Acceder</button>
     </div>
-    <script src="loader.js"></script>
 
+    <script src="loader.js"></script>
 </body>
 </html>

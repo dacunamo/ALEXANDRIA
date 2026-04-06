@@ -1,0 +1,40 @@
+/* Base Page Settings */
+body {
+    font-family: Arial, sans-serif;
+    line-height: 1.6;
+    margin: 40px auto;
+    padding: 20px;
+    color: #333;
+    max-width: 1920px; /* Optional: adds readability for text */
+}
+
+/* Grouped Centered Elements */
+.titulo, 
+.subtitulo, 
+.autor, 
+.edicion, 
+.lugar, 
+.descripcion {
+    text-align: center;
+    color: black;
+    margin-bottom: 20px;
+}
+
+/* Specific Sizes */
+h1.titulo { font-size: 32px; }
+h1.subtitulo { font-size: 24px; }
+h1.autor, h2.edicion { font-size: 20px; }
+p.lugar, p.descripcion { font-size: 18px; }
+
+/* Headers and Paragraphs */
+h2 {
+    color: #2c3e50;
+    /*border-bottom: 2px solid #eee;*/
+    padding-bottom: 10px;
+    margin-top: 30px;
+}
+
+p {
+    margin-bottom: 15px;
+    text-align: justify;
+}
