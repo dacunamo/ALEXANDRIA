@@ -13,11 +13,14 @@ let lastRenderedContent = ""; // Guardamos el original para limpiar búsquedas
 // 1. Búsqueda principal desde el Sidebar
 async function search() {
   const searchBox = document.getElementById('searchBox');
+  const overlay = document.getElementById('loading-overlay');
   const resultsList = document.getElementById('resultsList');
     if (!searchBox || !resultsList) return;
 
   const q = searchBox.value.trim();
   if (!q) return;
+
+  overlay.style.display = 'flex';
 
   try {
       const res = await fetch(`/search?q=${encodeURIComponent(q)}`);
@@ -36,6 +39,10 @@ async function search() {
   } catch (err) {
       console.error("Error en la búsqueda:", err);
   }
+  finally {
+        // 2. Ocultar pantalla de carga (siempre se ejecuta)
+        overlay.style.display = 'none';
+    }
 }
 function toggleSidebar() {
     const sidebar = document.getElementById('sidebar');
@@ -64,13 +71,16 @@ function renderFile(idx, q) {
   // Inyectamos la barra de navegación y el cuerpo del texto
   container.innerHTML = `
     <div class="nav-bar">
-    <label>
-      <input type="checkbox" id="wholeWord">Palabra completa</label>
+    <div class="search-options">
+        <label><input type="checkbox" id="wholeWord">Palabra completa</label>
+    </div>
+    <div class="search-box">
       <input id="innerSearch" placeholder="Buscar en libro">
       <button onclick="internalSearch(document.getElementById('innerSearch').value)">🔍</button>
       <span id="counter">0 / 0</span>
       <button onclick="navMatch(-1)">❮</button>
       <button onclick="navMatch(1)">❯</button>
+    </div>
     </div>
     <div id="previewContent">
     <div class="file-body" id="fileBody">${file.content}</div></div>

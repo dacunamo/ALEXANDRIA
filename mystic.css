@@ -19,6 +19,47 @@ body {
   color: var(--texto-suave);
 }
 
+/*loading screen*/
+#loading-overlay {
+    position: fixed;
+    top: 0;
+    left: 0;
+    width: 100vw;
+    height: 100vh;
+    background: rgba(12, 8, 20, 0.9); /* Tu --fondo-oscuro con opacidad */
+    backdrop-filter: blur(5px);
+    display: none; /* Oculto por defecto */
+    justify-content: center;
+    align-items: center;
+    z-index: 20000; /* Por encima de todo */
+    color: var(--oro);
+    transition: opacity 0.3s ease;
+}
+
+.loader {
+    display: flex;
+    flex-direction: column;
+    align-items: center;
+    gap: 15px;
+    font-family: 'Georgia', serif;
+    font-style: italic;
+    letter-spacing: 1px;
+}
+
+.spinner {
+    width: 50px;
+    height: 50px;
+    border: 3px solid rgba(212, 175, 55, 0.1);
+    border-top: 3px solid var(--oro);
+    border-radius: 50%;
+    animation: spin 1s linear infinite;
+}
+
+@keyframes spin {
+    0% { transform: rotate(0deg); }
+    100% { transform: rotate(360deg); }
+}
+
 #sidebar { 
   width: 350px; 
   height: 100vh;
@@ -269,17 +310,70 @@ button:hover {
     /* Ajuste para que el libro no empiece debajo del buscador */
     #viewer-container {
         margin-top: 70px; 
-        padding-top: 0;
+        padding-top: 100px;
         height: calc(100vh - 70px);
     }
-
-    /* La nav-bar del libro debe aparecer debajo del buscador principal */
-    .nav-bar {
-        position: sticky;
-        top: 0; /* Se pega al tope del contenedor, que ya tiene margin-top */
-        padding: 10px;
-        flex-direction: row;
-        gap: 8px;
-        background: #1a0f2e;
+    #previewContent {
+        overflow-x: hidden;
+        height: calc(100vh - 100px); /* Ajustamos para el espacio del buscador */
     }
+
+.nav-bar {
+    display: flex;
+    flex-direction: column; /* Apila Fila 1 sobre Fila 2 */
+    gap: 10px;
+    padding: 12px;
+    background: var(--fondo-panel);
+    border-bottom: 1px solid var(--borde-oro);
+    position: sticky;
+    top: 0;
+    z-index: 100;
+}
+
+/* FILA 1: Buscador, Lupa, Contador y Flechas */
+.search-box {
+    display: flex;
+    align-items: center;
+    gap: 8px;
+    width: 100%;
+    flex-wrap: nowrap; /* PROHIBIDO saltar de línea */
+}
+
+.search-box input {
+    flex-grow: 1; /* El input ocupa el espacio sobrante */
+    min-width: 0; /* Permite que el input se encoja en móviles pequeños */
+    padding: 8px;
+    background: #000;
+    border: 1px solid var(--borde-oro);
+    color: white;
+    border-radius: 4px;
+}
+
+#counter {
+    color: var(--oro);
+    font-family: monospace;
+    font-size: 0.85rem;
+    white-space: nowrap; /* Evita que el 0 / 0 se rompa */
+    min-width: 45px;
+    text-align: center;
+}
+/* FILA 2: Opciones debajo */
+.search-options {
+    display: flex;
+    align-items: center;
+    padding-left: 2px;
+}
+
+/* Ajustes extra para celulares muy angostos */
+@media (max-width: 400px) {
+    .search-box {
+        gap: 5px;
+    }
+    .search-box button {
+        padding: 5px 8px;
+    }
+    #counter {
+        font-size: 0.75rem;
+    }
+}
 }
