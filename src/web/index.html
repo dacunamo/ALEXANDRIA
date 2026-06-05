@@ -1,0 +1,63 @@
+<!DOCTYPE html>
+<html lang="es">
+
+<head>
+  <meta charset="UTF-8">
+  <meta name="viewport" content="width=device-width, initial-scale=1.0, maximum-scale=1.0, user-scalable=no">
+  <title>Alexandria - Buscador Gnóstico</title>
+  <link rel="stylesheet" href="./src/web/mystica.css">
+</head>
+
+<body>
+
+  <header class="main-header">
+    <div class="header-logo">ALEXANDRIA</div>
+
+    <div class="search-group-header">
+      <input type="search" id="searchBox" placeholder="Buscar sabiduría..." enterkeyhint="search"
+        onkeyup="if(event.key==='Enter') { search(); this.blur(); }">
+      <button onclick="search(); document.getElementById('searchBox').blur();">🔍</button>
+    </div>
+
+    <button id="mobile-toggle" onclick="toggleSidebar()">
+      <span></span>
+      <span></span>
+      <span></span>
+    </button>
+  </header>
+
+  <div class="app-container">
+
+    <div id="sidebar">
+      <div class="sidebar-header">
+        <h3>RESULTADOS</h3>
+      </div>
+      <div id="resultsList">
+      </div>
+    </div>
+
+    <div id="viewer-container">
+
+      <div id="previewContent">
+        <div class="welcome-msg">
+          <p>Selecciona un texto de la Gran Biblioteca para comenzar la lectura...</p>
+        </div>
+
+      </div>
+    </div>
+
+  </div>
+
+  <div id="loading-overlay">
+    <div class="loader">
+      <div class="spinner"></div>
+      <span>Buscando en la Gran Biblioteca...</span>
+    </div>
+  </div>
+  <script src="./src/web/search.js"></script>
+  <script src="./src/web/toolbox.js"></script>
+  <script src="./src/web/renderdata.js"></script>
+
+</body>
+
+</html>
