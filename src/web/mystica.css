@@ -1,7 +1,5 @@
+@import url('https://fonts.googleapis.com/css2?family=Lato:ital,wght@0,100;0,300;0,400;0,700;0,900;1,100;1,300;1,400;1,700;1,900&display=swap');
 
-/* ==========================================================================
-   1. RESETEO GENERAL Y CONFIGURACIÓN RAÍZ
-   ========================================================================== */
 :root {
   --oro: #d4af37;
   --fondo-oscuro: #0c0814;
@@ -14,15 +12,16 @@
   box-sizing: border-box;
 }
 
-html, body {
+html,
+body {
   margin: 0;
   padding: 0;
   width: 100%;
   height: 100vh;
-  height: 100dvh; 
+  height: 100dvh;
   display: flex;
   flex-direction: column;
-  overflow: hidden; 
+  overflow: hidden;
   font-family: 'Lato', system-ui, -apple-system, BlinkMacSystemFont, 'Segoe UI', Roboto, sans-serif;
   background-color: var(--fondo-oscuro);
   color: var(--texto-suave);
@@ -37,11 +36,11 @@ html, body {
   color: var(--texto-suave);
   display: flex;
   align-items: center;
-  justify-content: flex-start; 
-  gap: 32px; 
+  justify-content: flex-start;
+  gap: 32px;
   padding: 0 24px;
-  border-bottom: 2px solid var(--oro); 
-  flex-shrink: 0; 
+  border-bottom: 2px solid var(--oro);
+  flex-shrink: 0;
   z-index: 100;
 }
 
@@ -51,6 +50,18 @@ html, body {
   letter-spacing: 3px;
   color: var(--oro);
   font-size: 1.4rem;
+}
+.header-logo a {
+  text-decoration: none; /* Removes the underline */
+  color: inherit;        /* Inherits the color from the parent (.header-logo) */
+  display: block;        /* Ensures the click area covers the whole block */
+}
+
+/* Optional: Prevent color change on click/hover */
+.header-logo a:visited, 
+.header-logo a:active, 
+.header-logo a:hover {
+  color: inherit;
 }
 
 /* Buscador global de la biblioteca */
@@ -215,7 +226,8 @@ html, body {
 }
 
 /* En web, ignoramos visualmente las clases de filas del JS para que queden en una línea */
-.search-row-top, .search-row-bottom {
+.search-row-top,
+.search-row-bottom {
   display: flex;
   align-items: center;
   gap: 6px;
@@ -278,13 +290,14 @@ html, body {
 }
 
 /* Match Highlights adaptados a temática oscura */
-.match { 
-  background-color: rgba(214, 175, 55, 0.3); 
+.match {
+  background-color: rgba(214, 175, 55, 0.3);
   color: #ffffff;
-  border-radius: 2px; 
+  border-radius: 2px;
 }
-.match-active { 
-  background-color: var(--oro) !important; 
+
+.match-active {
+  background-color: var(--oro) !important;
   color: var(--fondo-oscuro) !important;
 }
 
@@ -302,27 +315,48 @@ html, body {
 /* --- LOADING OVERLAY --- */
 #loading-overlay {
   position: fixed;
-  top: 0; left: 0; width: 100%; height: 100%;
-  background: rgba(12, 8, 20, 0.85); /* Basado en var(--fondo-oscuro) */
+  top: 0;
+  left: 0;
+  width: 100%;
+  height: 100%;
+  background: rgba(12, 8, 20, 0.85);
+  /* Basado en var(--fondo-oscuro) */
   backdrop-filter: blur(3px);
   display: none;
-  justify-content: center; align-items: center;
-  z-index: 1000; color: var(--oro);
+  justify-content: center;
+  align-items: center;
+  z-index: 1000;
+  color: var(--oro);
 }
-.loader { display: flex; flex-direction: column; align-items: center; gap: 16px; }
+
+.loader {
+  display: flex;
+  flex-direction: column;
+  align-items: center;
+  gap: 16px;
+}
+
 .spinner {
-  width: 36px; height: 36px;
-  border: 3px solid transparent; border-top-color: var(--oro); border-radius: 50%;
+  width: 36px;
+  height: 36px;
+  border: 3px solid transparent;
+  border-top-color: var(--oro);
+  border-radius: 50%;
   animation: spin 0.8s linear infinite;
 }
-@keyframes spin { to { transform: rotate(360deg); } }
+
+@keyframes spin {
+  to {
+    transform: rotate(360deg);
+  }
+}
 
 
 /* ==========================================================================
    5. SECCIÓN DE MEDIAS QUERIES: OPTIMIZACIÓN EXCLUSIVA PARA MÓVILES (<= 768px)
    ========================================================================== */
 @media (max-width: 768px) {
-  
+
   /* --- CABECERA PRINCIPAL MÓVIL --- */
   .main-header {
     height: auto;
@@ -349,6 +383,7 @@ html, body {
     width: 100%;
     margin-top: 2px;
   }
+
   .search-group-header input {
     flex-grow: 1;
   }
@@ -361,11 +396,11 @@ html, body {
   #sidebar {
     position: absolute;
     top: 0;
-    left: -100%; 
+    left: -100%;
     width: 85%;
     height: 100%;
-    z-index: 99; 
-    box-shadow: 8px 0 20px rgba(0,0,0,0.65);
+    z-index: 99;
+    box-shadow: 8px 0 20px rgba(0, 0, 0, 0.65);
     transition: left 0.3s ease-in-out;
   }
 
@@ -403,7 +438,7 @@ html, body {
     width: 100%;
     display: flex;
     flex-direction: column;
-    gap: 5px; 
+    gap: 5px;
     padding: 0 0 10px 0;
   }
 
@@ -416,14 +451,14 @@ html, body {
   }
 
   .search-row-top input {
-    flex-grow: 1; 
+    flex-grow: 1;
     padding: 8px 12px;
     font-size: 0.95rem;
     border: 1px solid var(--borde-oro);
     background-color: var(--fondo-oscuro);
     color: var(--texto-suave);
     border-radius: 4px;
-    width: auto; 
+    width: auto;
   }
 
   .search-row-top button {
@@ -436,8 +471,8 @@ html, body {
     width: 100%;
     display: flex;
     align-items: center;
-    padding: 0 0 10px 0;       
-    overflow: visible;      
+    padding: 0 0 10px 0;
+    overflow: visible;
   }
 
   #counter {
@@ -461,14 +496,14 @@ html, body {
     padding: 6px 14px;
     font-size: 0.9rem;
     flex-shrink: 0;
-    margin-left: auto; 
+    margin-left: auto;
   }
 
   /* -----------------------------------------------------------
      ESTADO MINIMIZADO EN MÓVIL
      ----------------------------------------------------------- */
   .nav-bar.minimized {
-    max-height: 42px; 
+    max-height: 42px;
     padding-top: 6px;
     padding-bottom: 6px;
     background-color: var(--fondo-oscuro);
@@ -483,12 +518,12 @@ html, body {
   .nav-bar.minimized .search-row-bottom button:not(.toggle-view-btn) {
     display: none !important;
   }
-  
+
   .nav-bar.minimized .search-box,
   .nav-bar.minimized .search-row-bottom {
     display: flex;
     flex-direction: row;
-    justify-content: flex-end; 
+    justify-content: flex-end;
     margin: 0;
     gap: 0;
     width: 100%;
@@ -503,7 +538,7 @@ html, body {
    STATIC ROW-BOTTOM SAVE SELECTION BUTTON
    ========================================================================== */
 .save-phrase-btn {
-  background-color: var(--oro) !important; 
+  background-color: var(--oro) !important;
   color: var(--fondo-oscuro) !important;
   border-radius: 4px;
   font-family: 'Lato', sans-serif;
@@ -511,7 +546,7 @@ html, body {
   cursor: pointer;
   font-size: 0.85rem;
   transition: all 0.2s ease;
-  pointer-events: auto; 
+  pointer-events: auto;
   touch-action: manipulation;
   position: relative;
 }
@@ -521,7 +556,7 @@ html, body {
   -webkit-user-select: none;
   user-select: none;
   -webkit-tap-highlight-color: transparent;
-  touch-action: manipulation; 
+  touch-action: manipulation;
 }
 
 /* Efectos hover para ratón */
@@ -543,5 +578,5 @@ html, body {
 }
 
 #static-save-btn {
-  pointer-events: auto; 
+  pointer-events: auto;
 }

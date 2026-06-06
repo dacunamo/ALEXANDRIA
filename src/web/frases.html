@@ -1,22 +1,25 @@
 <!DOCTYPE html>
 <html lang="es">
+
 <head>
   <meta charset="UTF-8">
-  <title>Biblioteca Alexandria</title>
+  <title>Alexandria</title>
   <link rel="stylesheet" href="./src/web/mysticF.css">
 </head>
+
 <body>
-  <h1>Biblioteca Alexandria</h1>
+  <h1><a href="./">ALEXANDRIA</a></h1>
   <h2>Frases Guardadas</h2>
   <div id="frases-container"></div>
 
-<script src="./src/web/renderdata.js"></script>
-<script>
-  // Now you can call the function easily
-  // If you are on the phrases page:
-  if (document.getElementById('frases-container')) {
-    loadSavedPhrases('frases-container');
-  }
-</script>
+  <script src="./src/web/renderdata.js"></script>
+  <script>
+    // Now you can call the function easily
+    // If you are on the phrases page:
+    if (document.getElementById('frases-container')) {
+      loadSavedPhrases('frases-container');
+    }
+  </script>
 </body>
+
 </html>

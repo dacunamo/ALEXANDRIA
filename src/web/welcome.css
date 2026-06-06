@@ -20,41 +20,7 @@ html {
     flex-direction: column;
     justify-content: center;
     align-items: center;
-    overflow: hidden;
-}
-
-/* Contenedor del fondo con imágenes de los Maestros */
-.background-overlay {
-    position: absolute;
-    top: 0;
-    left: 0;
-    width: 100%;
-    height: 100%;
-    z-index: -1;
-    display: flex;
-    justify-content: space-around;
-    align-items: center;
-    opacity: 0.3;
-    /* Ajustar para que el texto sea legible */
-    filter: sepia(0.5) grayscale(0.2);
-}
-
-.master-photo {
-    width: 300px;
-    height: 400px;
-    border: 1px solid var(--oro);
-    background-size: cover;
-    background-position: center;
-    box-shadow: 0 0 30px rgba(212, 175, 55, 0.2);
-}
-
-/* Espacio para las fotos (reemplazar URLs en las variables o el style) */
-.photo-samael {
-    background-image: url('tu-link-a-foto-samael.jpg');
-}
-
-.photo-lakshmi {
-    background-image: url('tu-link-a-foto-lakshmi.jpg');
+    overflow: auto;
 }
 
 /* Centra el contenedor del logo */
@@ -73,7 +39,7 @@ html {
 
 /* Controla el tamaño de la imagen */
 .logo-img {
-    max-width: 200px;
+    max-width: 100px;
     /* Ajusta según el tamaño de tu logo */
     height: auto;
     display: block;
@@ -81,6 +47,8 @@ html {
 
 .main-container {
     text-align: center;
+    align-items: center;
+    justify-content: center;
     width: 90%;
     max-width: 800px;
     padding: 1.5rem;
@@ -90,6 +58,10 @@ html {
     backdrop-filter: blur(10px);
     box-shadow: 0 0 50px rgba(0, 0, 0, 0.5);
     box-sizing: border-box;
+    display: flex;
+    flex-direction: column;
+    gap: 10px;
+    margin-bottom: 1.5rem;
 }
 
 h1 {
@@ -110,6 +82,7 @@ p {
 }
 
 .status-tag {
+    width: fit-content;
     display: inline-block;
     font-size: 0.8rem;
     color: var(--oro);
@@ -120,10 +93,11 @@ p {
     opacity: 0.8;
 }
 
-.btn-enter {
+.btn {
     background-color: transparent;
     color: var(--oro);
     border: 2px solid var(--oro);
+    border-radius: 20px;
     padding: 15px 40px;
     font-size: 1.1rem;
     font-weight: bold;
@@ -133,7 +107,7 @@ p {
     letter-spacing: 2px;
 }
 
-.btn-enter:hover {
+.btn:hover {
     background-color: var(--oro);
     color: var(--purpura-oscuro);
     box-shadow: 0 0 20px var(--oro);
@@ -141,7 +115,7 @@ p {
 
 /* Animación sutil de entrada */
 .fade-in {
-    animation: fadeIn 2s ease-in forwards;
+    animation: fadeIn 1s ease-in forwards;
 }
 
 @keyframes fadeIn {
@@ -154,4 +128,11 @@ p {
         opacity: 1;
         transform: translateY(0);
     }
+}
+.main-footer {
+    text-align: center;
+    font-size: 0.85rem;
+    color: var(--oro); /* Reusing your theme color */
+    opacity: 0.7;
+    margin-top: auto; /* Pushes the footer to the bottom in a flex layout */
 }

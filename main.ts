@@ -44,7 +44,7 @@ await buildIndex();
 
 Deno.serve({
   port: 8000,
-  hostname: "0.0.0.0" // 🌟 CRÍTICO: Permite conexiones desde tu celular
+  hostname: "0.0.0.0"
 }, async (req) => {
   const url = new URL(req.url);
 
@@ -101,7 +101,6 @@ Deno.serve({
       for await (const entry of frases) {
         quotes.push(entry.value);
       }
-      console.log(JSON.stringify(quotes))
       return new Response(JSON.stringify(quotes), {
         headers: { "Content-Type": "application/json" }
       });
