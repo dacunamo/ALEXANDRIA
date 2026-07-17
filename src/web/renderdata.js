@@ -136,10 +136,14 @@ window.renderFile = function (idx, q) {
 async function loadSavedPhrases(containerId) {
   const container = document.getElementById(containerId);
   if (!container) return;
+  container.innerHTML = `
+    <div id="loading-indicator" class="loading-wrapper">
+      <span>Cargando frases.</span>
+      <div class="spinner"></div>
+    </div>
+  `;
 
   try {
-    container.textContent = "<p>Cargando archivo...</p>";
-
     const response = await fetch("/api/frases");
     const data = await response.json();
 
@@ -158,17 +162,17 @@ async function loadSavedPhrases(containerId) {
       strong.textContent = f.titulo_libro || "Sin título";
 
       const p = document.createElement("p");
-      p.id = 'frase'
+      p.id = "frase";
       p.textContent = `"${f.texto_frase}"`;
 
       div.appendChild(strong);
       div.appendChild(p);
-      console.log(f.etiquetas)
+      console.log(f.etiquetas);
       // Render Tags (if they exist)
       if (f.etiquetas) {
         const tagContainer = document.createElement("div");
         tagContainer.className = "tag-container";
-        console.log(f.etiquetas)
+        console.log(f.etiquetas);
 
         f.etiquetas.forEach((etiqueta) => {
           const span = document.createElement("span");
@@ -179,17 +183,19 @@ async function loadSavedPhrases(containerId) {
 
         div.appendChild(tagContainer);
       }
-      const copyBtn = document.createElement('button');
+      const copyBtn = document.createElement("button");
       copyBtn.className = "copy-btn";
       copyBtn.textContent = "Copiar";
       copyBtn.style.marginLeft = "auto";
-      copyBtn.addEventListener('click',copyToClipboard)
-      div.appendChild(copyBtn)
+      copyBtn.addEventListener("click", copyToClipboard);
+      div.appendChild(copyBtn);
       container.appendChild(div);
     });
   } catch (error) {
     console.error("Error loading phrases:", error);
     container.innerHTML = "<p>Error al cargar las frases.</p>";
+  } finally {
+    console.log("Process finished.");
   }
 }
 function abrirHerramienta() {
@@ -211,9 +217,9 @@ function abrirFrases() {
     window.location.href = "/frases";
   }, 600);
 }
-function copyToClipboard (event) {
+function copyToClipboard(event) {
   const btn = event.target;
-  const textElement = btn.parentElement.querySelector('p');
+  const textElement = btn.parentElement.querySelector("p");
   const textToCopy = textElement.textContent;
 
   navigator.clipboard.writeText(textToCopy)

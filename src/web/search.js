@@ -21,13 +21,16 @@ async function search() {
   if (!searchBox || !resultsList) return;
 
   const q = searchBox.value.trim();
-  if (!q) return;
+  const author = document.getElementById('authorSelect').value;
+  let url = `/search?q=${encodeURIComponent(q)}`;
 
-  searchBox.blur();
+  if (!q) {
+      console.log("Execution stopped: 'q' is empty, null, or undefined.");
+      return;
+  }
   if (overlay) overlay.style.display = "flex";
-
   try {
-    const res = await fetch(`/search?q=${encodeURIComponent(q)}`);
+    const res = await fetch(url);
     currentResults = await res.json();
 
     resultsList.innerHTML = "";

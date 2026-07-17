@@ -6,18 +6,27 @@
   <meta name="viewport" content="width=device-width, initial-scale=1.0, maximum-scale=1.0, user-scalable=no">
   <title>Alexandria - Buscador Gnóstico</title>
   <link rel="stylesheet" href="./src/web/mystica.css">
+  <link rel="icon" type="image/x-icon" href="/src/imgs/sol_acuario.ico">
 </head>
 
 <body>
 
   <header class="main-header">
     <div class="header-logo" ><a href="./">ALEXANDRIA</a></div>
-
+<div class="author-select-group">
+    <select id="authorSelect" onchange="search()">
+      <option value="all">Todos los autores</option>
+      <option value="samael">Samael Aun Weor</option>
+      <option value="lakshmi">Lakshmi Daimon</option>
+    </select>
+  </div>
     <div class="search-group-header">
       <input type="search" id="searchBox" placeholder="Buscar sabiduría..." enterkeyhint="search"
         onkeyup="if(event.key==='Enter') { search(); this.blur(); }">
       <button onclick="search(); document.getElementById('searchBox').blur();">🔍</button>
+
     </div>
+  </div>
 
     <button id="mobile-toggle" onclick="toggleSidebar()">
       <span></span>
@@ -40,7 +49,7 @@
 
       <div id="previewContent">
         <div class="welcome-msg">
-          <p>Selecciona un texto de la Gran Biblioteca para comenzar la lectura...</p>
+          <p>Haz una busqueda en la Gran Biblioteca para cargar un libro.</p>
         </div>
 
       </div>

@@ -28,6 +28,56 @@ body {
 }
 
 /* ==========================================================================
+   INTEGRACIÓN DEL DESPLEGABLE DE AUTORES
+   ========================================================================== */
+.author-select-group {
+  display: flex;
+  align-items: center;
+  background: var(--fondo-panel);
+  padding: 4px 12px;
+  border-radius: 6px;
+  border: 1px solid var(--borde-oro);
+  position: relative;
+}
+
+#authorSelect {
+  background: transparent;
+  border: none;
+  color: var(--texto-suave);
+  padding: 6px 24px 6px 6px; /* Espacio extra a la derecha para la flecha custom */
+  font-size: 0.95rem;
+  font-family: 'Lato', sans-serif;
+  outline: none;
+  cursor: pointer;
+  appearance: none;
+  -webkit-appearance: none;
+  -moz-appearance: none;
+  width: 180px; /* Tamaño adaptado para el header */
+}
+
+/* Flecha dorada personalizada para no romper la estética mística */
+.author-select-group::after {
+  content: '▼';
+  font-size: 0.7rem;
+  color: var(--oro);
+  position: absolute;
+  right: 12px;
+  pointer-events: none;
+}
+
+/* Estilo para las opciones del desplegable */
+#authorSelect option {
+  background-color: var(--fondo-panel);
+  color: var(--texto-suave);
+  padding: 10px;
+}
+
+/* Cambio visual al interactuar */
+.author-select-group:focus-within {
+  border-color: var(--oro);
+  box-shadow: 0 0 8px rgba(212, 175, 55, 0.2);
+}
+/* ==========================================================================
    2. HEADER PRINCIPAL (Diseño Web / Escritorio por defecto)
    ========================================================================== */
 .main-header {
@@ -356,7 +406,14 @@ body {
    5. SECCIÓN DE MEDIAS QUERIES: OPTIMIZACIÓN EXCLUSIVA PARA MÓVILES (<= 768px)
    ========================================================================== */
 @media (max-width: 768px) {
-
+.author-select-group {
+    width: 100%;
+    margin-top: 2px;
+  }
+  
+  #authorSelect {
+    width: 100%;
+  }
   /* --- CABECERA PRINCIPAL MÓVIL --- */
   .main-header {
     height: auto;
