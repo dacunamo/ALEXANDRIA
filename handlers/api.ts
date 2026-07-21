@@ -42,16 +42,18 @@ const results = libraryIndex
     try {
       const { texto_frase, titulo_libro, etiquetas } = await req.json();
 
-      if (!texto_frase) {
+      if (!texto_frase || typeof texto_frase !== "string" || !texto_frase.trim()) {
         return new Response(JSON.stringify({ success: false, error: "Falta el texto" }), { status: 400 });
       }
 
-      const id = crypto.randomUUID();
-      const key = ["frases", id];
-      const datos_frase = { titulo_libro, texto_frase, etiquetas, createdAt: new Date() };
-      
-      //await alexandriaDB.set(key, datos_frase);
-      console.log("Frase guardada!");
+      const datos_frase = {
+        titulo_libro: typeof titulo_libro === "string" ? titulo_libro : "Sin título",
+        texto_frase: texto_frase.trim(),
+        etiquetas: Array.isArray(etiquetas) ? etiquetas.filter((t) => typeof t === "string") : [],
+        createdAt: new Date(),
+      };
+
+      await agregarFrase(datos_frase);
 
       return new Response(JSON.stringify({ success: true }), {
         status: 200,

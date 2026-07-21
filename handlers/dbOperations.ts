@@ -7,15 +7,11 @@ export interface Frase {
   createdAt: Date;
 }
 // 1. Create a new user
-export async function agregarFrase(frase :Frase){
-try {
+export async function agregarFrase(frase: Frase) {
   const nuevaFrase = await prisma.frases_libros.create({
     data: frase,
   });
-console.log("Nueva Frase Creada con ID" + nuevaFrase.id)
-} catch (error) {
-  console.log(error)
-}
+  console.log("Nueva Frase Creada con ID " + nuevaFrase.id);
 }
 
 export async function eliminarDuplicados(texto: string){
