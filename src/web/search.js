@@ -1,4 +1,6 @@
 let currentResults = [];
+let allResults = [];
+let lastQuery = null;
 let activeMatch = 0;
 let matchCount = 0;
 let lastRenderedContent = "";
@@ -17,12 +19,9 @@ document.addEventListener("DOMContentLoaded", () => {
 async function search() {
   const searchBox = document.getElementById("searchBox");
   const overlay = document.getElementById("loading-overlay");
-  const resultsList = document.getElementById("resultsList");
-  if (!searchBox || !resultsList) return;
+  if (!searchBox) return;
 
   const q = searchBox.value.trim();
-  const author = document.getElementById('authorSelect').value;
-  let url = `/search?q=${encodeURIComponent(q)}`;
 
   if (!q) {
       console.log("Execution stopped: 'q' is empty, null, or undefined.");
@@ -30,27 +29,13 @@ async function search() {
   }
   if (overlay) overlay.style.display = "flex";
   try {
-    const res = await fetch(url);
-    currentResults = await res.json();
+    // Always fetch the full result set for this query (all authors).
+    // Switching the author filter afterwards never needs a new request.
+    const res = await fetch(`/search?q=${encodeURIComponent(q)}`);
+    allResults = await res.json();
+    lastQuery = q;
 
-    resultsList.innerHTML = "";
-
-    currentResults.forEach((f, i) => {
-      // 1. Create the container element
-      const div = document.createElement("div");
-      div.className = "result-item";
-
-      // 2. Set the content safely (prevents XSS)
-      div.textContent = f.name;
-
-      // 3. Attach the event listener directly (avoids inline JS strings)
-      div.addEventListener("click", () => {
-        window.renderFile(i, q);
-      });
-
-      // 4. Append to the results list
-      resultsList.appendChild(div);
-    });
+    filterByAuthor();
 
     if (window.innerWidth <= 768) {
       const sidebar = document.getElementById("sidebar");
@@ -63,6 +48,40 @@ async function search() {
   } finally {
     if (overlay) overlay.style.display = "none";
   }
+}
+
+function filterByAuthor() {
+  const resultsList = document.getElementById("resultsList");
+  const authorSelect = document.getElementById("authorSelect");
+  if (!resultsList || !authorSelect || lastQuery === null) return;
+
+  const author = authorSelect.value;
+  currentResults = author === "all"
+    ? allResults
+    : allResults.filter((r) => r.author?.toLowerCase() === author.toLowerCase());
+
+  renderResultsList(currentResults, resultsList);
+}
+
+function renderResultsList(results, resultsList) {
+  resultsList.innerHTML = "";
+
+  results.forEach((f, i) => {
+    // 1. Create the container element
+    const div = document.createElement("div");
+    div.className = "result-item";
+
+    // 2. Set the content safely (prevents XSS)
+    div.textContent = f.name;
+
+    // 3. Attach the event listener directly (avoids inline JS strings)
+    div.addEventListener("click", () => {
+      window.renderFile(i, lastQuery);
+    });
+
+    // 4. Append to the results list
+    resultsList.appendChild(div);
+  });
 }
 
 function toggleSidebar() {
