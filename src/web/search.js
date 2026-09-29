@@ -90,6 +90,10 @@ function renderResultsList(results, resultsList) {
 
     // 3. Attach the event listener directly (avoids inline JS strings)
     div.addEventListener("click", () => {
+      resultsList.querySelectorAll(".result-item.active").forEach((el) =>
+        el.classList.remove("active")
+      );
+      div.classList.add("active");
       window.renderFile(i, lastQuery, lastPartial);
     });
 

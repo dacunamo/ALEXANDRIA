@@ -239,6 +239,13 @@ body {
   background-color: var(--fondo-panel);
 }
 
+.result-item.active {
+  border-color: var(--oro);
+  background-color: var(--fondo-panel);
+  color: var(--oro);
+  font-weight: 600;
+}
+
 /* --- VISOR DEL LECTOR --- */
 #viewer-container {
   flex-grow: 1;
