@@ -12,10 +12,64 @@ generator client {
 datasource db {
   provider = "postgresql"
 }
+
+model User {
+  id           String   @id @default(uuid(7))
+  email        String   @unique
+  passwordHash String?
+  googleId     String?  @unique
+  displayName  String?
+  createdAt    DateTime @default(now())
+  updatedAt    DateTime @updatedAt
+
+  sessions        Session[]
+  frases          frases_libros[]
+  bookmarkedBooks BookmarkedBook[]
+  notes           Note[]
+}
+
+model Session {
+  id        String   @id
+  userId    String
+  user      User     @relation(fields: [userId], references: [id], onDelete: Cascade)
+  expiresAt DateTime
+  createdAt DateTime @default(now())
+
+  @@index([userId])
+}
+
+model BookmarkedBook {
+  id        Int      @id @default(autoincrement())
+  userId    String
+  user      User     @relation(fields: [userId], references: [id], onDelete: Cascade)
+  author    String
+  slug      String
+  createdAt DateTime @default(now())
+
+  @@unique([userId, author, slug])
+}
+
+model Note {
+  id        Int      @id @default(autoincrement())
+  userId    String
+  user      User     @relation(fields: [userId], references: [id], onDelete: Cascade)
+  content   String
+  createdAt DateTime @default(now())
+  updatedAt DateTime @updatedAt
+
+  @@index([userId])
+}
+
 model frases_libros {
   id           Int      @id @default(autoincrement())
   titulo_libro String
   texto_frase  String
   etiquetas    String[]
   createdAt    DateTime @default(now())
+  userId       String?
+  user         User?    @relation(fields: [userId], references: [id], onDelete: Cascade)
+  isPublic     Boolean  @default(true)
+
+  @@index([userId])
+  @@index([isPublic])
 }

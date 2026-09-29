@@ -6,7 +6,9 @@ const routeMap: Record<string, string> = {
   "/":             "./src/web/loader.html",
   "/frases":       "./src/web/frases.html",
   "/app":          "./src/web/index.html",
-  "/tonica":   "./src/web/tonica.html",
+  "/login":        "./src/web/login.html",
+  "/register":     "./src/web/register.html",
+  "/mi-espacio":   "./src/web/mi-espacio.html",
 };
 
 export async function handleStaticFiles(req: Request, url: URL): Promise<Response> {

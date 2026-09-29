@@ -39,6 +39,12 @@ document.addEventListener("DOMContentLoaded", () => {
       );
       const tags = (tagsInput || "").split(",").filter((t) => t.trim() !== "")
         .map((t) => t.trim());
+
+      // Privada por defecto: sólo se hace pública si el usuario lo confirma.
+      const makePublic = confirm(
+        "¿Quieres que esta frase sea pública (visible para todos)?\n\nAceptar = pública. Cancelar = privada (sólo tú la verás).",
+      );
+
       saveBtn.textContent = "Guardando...";
 
       try {
@@ -50,6 +56,7 @@ document.addEventListener("DOMContentLoaded", () => {
             titulo_libro: document.querySelector(".active-book-title")
               ?.textContent,
             etiquetas: tags, // Send the tags to the backend
+            isPublic: makePublic,
           }),
         });
 

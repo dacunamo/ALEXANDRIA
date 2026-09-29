@@ -39,6 +39,8 @@ export type Frases_librosMinAggregateOutputType = {
   titulo_libro: string | null
   texto_frase: string | null
   createdAt: Date | null
+  userId: string | null
+  isPublic: boolean | null
 }
 
 export type Frases_librosMaxAggregateOutputType = {
@@ -46,6 +48,8 @@ export type Frases_librosMaxAggregateOutputType = {
   titulo_libro: string | null
   texto_frase: string | null
   createdAt: Date | null
+  userId: string | null
+  isPublic: boolean | null
 }
 
 export type Frases_librosCountAggregateOutputType = {
@@ -54,6 +58,8 @@ export type Frases_librosCountAggregateOutputType = {
   texto_frase: number
   etiquetas: number
   createdAt: number
+  userId: number
+  isPublic: number
   _all: number
 }
 
@@ -71,6 +77,8 @@ export type Frases_librosMinAggregateInputType = {
   titulo_libro?: true
   texto_frase?: true
   createdAt?: true
+  userId?: true
+  isPublic?: true
 }
 
 export type Frases_librosMaxAggregateInputType = {
@@ -78,6 +86,8 @@ export type Frases_librosMaxAggregateInputType = {
   titulo_libro?: true
   texto_frase?: true
   createdAt?: true
+  userId?: true
+  isPublic?: true
 }
 
 export type Frases_librosCountAggregateInputType = {
@@ -86,6 +96,8 @@ export type Frases_librosCountAggregateInputType = {
   texto_frase?: true
   etiquetas?: true
   createdAt?: true
+  userId?: true
+  isPublic?: true
   _all?: true
 }
 
@@ -181,6 +193,8 @@ export type Frases_librosGroupByOutputType = {
   texto_frase: string
   etiquetas: string[]
   createdAt: Date
+  userId: string | null
+  isPublic: boolean
   _count: Frases_librosCountAggregateOutputType | null
   _avg: Frases_librosAvgAggregateOutputType | null
   _sum: Frases_librosSumAggregateOutputType | null
@@ -212,6 +226,9 @@ export type frases_librosWhereInput = {
   texto_frase?: Prisma.StringFilter<"frases_libros"> | string
   etiquetas?: Prisma.StringNullableListFilter<"frases_libros">
   createdAt?: Prisma.DateTimeFilter<"frases_libros"> | Date | string
+  userId?: Prisma.StringNullableFilter<"frases_libros"> | string | null
+  isPublic?: Prisma.BoolFilter<"frases_libros"> | boolean
+  user?: Prisma.XOR<Prisma.UserNullableScalarRelationFilter, Prisma.UserWhereInput> | null
 }
 
 export type frases_librosOrderByWithRelationInput = {
@@ -220,6 +237,9 @@ export type frases_librosOrderByWithRelationInput = {
   texto_frase?: Prisma.SortOrder
   etiquetas?: Prisma.SortOrder
   createdAt?: Prisma.SortOrder
+  userId?: Prisma.SortOrderInput | Prisma.SortOrder
+  isPublic?: Prisma.SortOrder
+  user?: Prisma.UserOrderByWithRelationInput
 }
 
 export type frases_librosWhereUniqueInput = Prisma.AtLeast<{
@@ -231,6 +251,9 @@ export type frases_librosWhereUniqueInput = Prisma.AtLeast<{
   texto_frase?: Prisma.StringFilter<"frases_libros"> | string
   etiquetas?: Prisma.StringNullableListFilter<"frases_libros">
   createdAt?: Prisma.DateTimeFilter<"frases_libros"> | Date | string
+  userId?: Prisma.StringNullableFilter<"frases_libros"> | string | null
+  isPublic?: Prisma.BoolFilter<"frases_libros"> | boolean
+  user?: Prisma.XOR<Prisma.UserNullableScalarRelationFilter, Prisma.UserWhereInput> | null
 }, "id">
 
 export type frases_librosOrderByWithAggregationInput = {
@@ -239,6 +262,8 @@ export type frases_librosOrderByWithAggregationInput = {
   texto_frase?: Prisma.SortOrder
   etiquetas?: Prisma.SortOrder
   createdAt?: Prisma.SortOrder
+  userId?: Prisma.SortOrderInput | Prisma.SortOrder
+  isPublic?: Prisma.SortOrder
   _count?: Prisma.frases_librosCountOrderByAggregateInput
   _avg?: Prisma.frases_librosAvgOrderByAggregateInput
   _max?: Prisma.frases_librosMaxOrderByAggregateInput
@@ -255,6 +280,8 @@ export type frases_librosScalarWhereWithAggregatesInput = {
   texto_frase?: Prisma.StringWithAggregatesFilter<"frases_libros"> | string
   etiquetas?: Prisma.StringNullableListFilter<"frases_libros">
   createdAt?: Prisma.DateTimeWithAggregatesFilter<"frases_libros"> | Date | string
+  userId?: Prisma.StringNullableWithAggregatesFilter<"frases_libros"> | string | null
+  isPublic?: Prisma.BoolWithAggregatesFilter<"frases_libros"> | boolean
 }
 
 export type frases_librosCreateInput = {
@@ -262,6 +289,8 @@ export type frases_librosCreateInput = {
   texto_frase: string
   etiquetas?: Prisma.frases_librosCreateetiquetasInput | string[]
   createdAt?: Date | string
+  isPublic?: boolean
+  user?: Prisma.UserCreateNestedOneWithoutFrasesInput
 }
 
 export type frases_librosUncheckedCreateInput = {
@@ -270,6 +299,8 @@ export type frases_librosUncheckedCreateInput = {
   texto_frase: string
   etiquetas?: Prisma.frases_librosCreateetiquetasInput | string[]
   createdAt?: Date | string
+  userId?: string | null
+  isPublic?: boolean
 }
 
 export type frases_librosUpdateInput = {
@@ -277,6 +308,8 @@ export type frases_librosUpdateInput = {
   texto_frase?: Prisma.StringFieldUpdateOperationsInput | string
   etiquetas?: Prisma.frases_librosUpdateetiquetasInput | string[]
   createdAt?: Prisma.DateTimeFieldUpdateOperationsInput | Date | string
+  isPublic?: Prisma.BoolFieldUpdateOperationsInput | boolean
+  user?: Prisma.UserUpdateOneWithoutFrasesNestedInput
 }
 
 export type frases_librosUncheckedUpdateInput = {
@@ -285,6 +318,8 @@ export type frases_librosUncheckedUpdateInput = {
   texto_frase?: Prisma.StringFieldUpdateOperationsInput | string
   etiquetas?: Prisma.frases_librosUpdateetiquetasInput | string[]
   createdAt?: Prisma.DateTimeFieldUpdateOperationsInput | Date | string
+  userId?: Prisma.NullableStringFieldUpdateOperationsInput | string | null
+  isPublic?: Prisma.BoolFieldUpdateOperationsInput | boolean
 }
 
 export type frases_librosCreateManyInput = {
@@ -293,6 +328,8 @@ export type frases_librosCreateManyInput = {
   texto_frase: string
   etiquetas?: Prisma.frases_librosCreateetiquetasInput | string[]
   createdAt?: Date | string
+  userId?: string | null
+  isPublic?: boolean
 }
 
 export type frases_librosUpdateManyMutationInput = {
@@ -300,6 +337,7 @@ export type frases_librosUpdateManyMutationInput = {
   texto_frase?: Prisma.StringFieldUpdateOperationsInput | string
   etiquetas?: Prisma.frases_librosUpdateetiquetasInput | string[]
   createdAt?: Prisma.DateTimeFieldUpdateOperationsInput | Date | string
+  isPublic?: Prisma.BoolFieldUpdateOperationsInput | boolean
 }
 
 export type frases_librosUncheckedUpdateManyInput = {
@@ -308,6 +346,18 @@ export type frases_librosUncheckedUpdateManyInput = {
   texto_frase?: Prisma.StringFieldUpdateOperationsInput | string
   etiquetas?: Prisma.frases_librosUpdateetiquetasInput | string[]
   createdAt?: Prisma.DateTimeFieldUpdateOperationsInput | Date | string
+  userId?: Prisma.NullableStringFieldUpdateOperationsInput | string | null
+  isPublic?: Prisma.BoolFieldUpdateOperationsInput | boolean
+}
+
+export type Frases_librosListRelationFilter = {
+  every?: Prisma.frases_librosWhereInput
+  some?: Prisma.frases_librosWhereInput
+  none?: Prisma.frases_librosWhereInput
+}
+
+export type frases_librosOrderByRelationAggregateInput = {
+  _count?: Prisma.SortOrder
 }
 
 export type StringNullableListFilter<$PrismaModel = never> = {
@@ -324,6 +374,8 @@ export type frases_librosCountOrderByAggregateInput = {
   texto_frase?: Prisma.SortOrder
   etiquetas?: Prisma.SortOrder
   createdAt?: Prisma.SortOrder
+  userId?: Prisma.SortOrder
+  isPublic?: Prisma.SortOrder
 }
 
 export type frases_librosAvgOrderByAggregateInput = {
@@ -335,6 +387,8 @@ export type frases_librosMaxOrderByAggregateInput = {
   titulo_libro?: Prisma.SortOrder
   texto_frase?: Prisma.SortOrder
   createdAt?: Prisma.SortOrder
+  userId?: Prisma.SortOrder
+  isPublic?: Prisma.SortOrder
 }
 
 export type frases_librosMinOrderByAggregateInput = {
@@ -342,18 +396,58 @@ export type frases_librosMinOrderByAggregateInput = {
   titulo_libro?: Prisma.SortOrder
   texto_frase?: Prisma.SortOrder
   createdAt?: Prisma.SortOrder
+  userId?: Prisma.SortOrder
+  isPublic?: Prisma.SortOrder
 }
 
 export type frases_librosSumOrderByAggregateInput = {
   id?: Prisma.SortOrder
 }
 
-export type frases_librosCreateetiquetasInput = {
-  set: string[]
+export type frases_librosCreateNestedManyWithoutUserInput = {
+  create?: Prisma.XOR<Prisma.frases_librosCreateWithoutUserInput, Prisma.frases_librosUncheckedCreateWithoutUserInput> | Prisma.frases_librosCreateWithoutUserInput[] | Prisma.frases_librosUncheckedCreateWithoutUserInput[]
+  connectOrCreate?: Prisma.frases_librosCreateOrConnectWithoutUserInput | Prisma.frases_librosCreateOrConnectWithoutUserInput[]
+  createMany?: Prisma.frases_librosCreateManyUserInputEnvelope
+  connect?: Prisma.frases_librosWhereUniqueInput | Prisma.frases_librosWhereUniqueInput[]
 }
 
-export type StringFieldUpdateOperationsInput = {
-  set?: string
+export type frases_librosUncheckedCreateNestedManyWithoutUserInput = {
+  create?: Prisma.XOR<Prisma.frases_librosCreateWithoutUserInput, Prisma.frases_librosUncheckedCreateWithoutUserInput> | Prisma.frases_librosCreateWithoutUserInput[] | Prisma.frases_librosUncheckedCreateWithoutUserInput[]
+  connectOrCreate?: Prisma.frases_librosCreateOrConnectWithoutUserInput | Prisma.frases_librosCreateOrConnectWithoutUserInput[]
+  createMany?: Prisma.frases_librosCreateManyUserInputEnvelope
+  connect?: Prisma.frases_librosWhereUniqueInput | Prisma.frases_librosWhereUniqueInput[]
+}
+
+export type frases_librosUpdateManyWithoutUserNestedInput = {
+  create?: Prisma.XOR<Prisma.frases_librosCreateWithoutUserInput, Prisma.frases_librosUncheckedCreateWithoutUserInput> | Prisma.frases_librosCreateWithoutUserInput[] | Prisma.frases_librosUncheckedCreateWithoutUserInput[]
+  connectOrCreate?: Prisma.frases_librosCreateOrConnectWithoutUserInput | Prisma.frases_librosCreateOrConnectWithoutUserInput[]
+  upsert?: Prisma.frases_librosUpsertWithWhereUniqueWithoutUserInput | Prisma.frases_librosUpsertWithWhereUniqueWithoutUserInput[]
+  createMany?: Prisma.frases_librosCreateManyUserInputEnvelope
+  set?: Prisma.frases_librosWhereUniqueInput | Prisma.frases_librosWhereUniqueInput[]
+  disconnect?: Prisma.frases_librosWhereUniqueInput | Prisma.frases_librosWhereUniqueInput[]
+  delete?: Prisma.frases_librosWhereUniqueInput | Prisma.frases_librosWhereUniqueInput[]
+  connect?: Prisma.frases_librosWhereUniqueInput | Prisma.frases_librosWhereUniqueInput[]
+  update?: Prisma.frases_librosUpdateWithWhereUniqueWithoutUserInput | Prisma.frases_librosUpdateWithWhereUniqueWithoutUserInput[]
+  updateMany?: Prisma.frases_librosUpdateManyWithWhereWithoutUserInput | Prisma.frases_librosUpdateManyWithWhereWithoutUserInput[]
+  deleteMany?: Prisma.frases_librosScalarWhereInput | Prisma.frases_librosScalarWhereInput[]
+}
+
+export type frases_librosUncheckedUpdateManyWithoutUserNestedInput = {
+  create?: Prisma.XOR<Prisma.frases_librosCreateWithoutUserInput, Prisma.frases_librosUncheckedCreateWithoutUserInput> | Prisma.frases_librosCreateWithoutUserInput[] | Prisma.frases_librosUncheckedCreateWithoutUserInput[]
+  connectOrCreate?: Prisma.frases_librosCreateOrConnectWithoutUserInput | Prisma.frases_librosCreateOrConnectWithoutUserInput[]
+  upsert?: Prisma.frases_librosUpsertWithWhereUniqueWithoutUserInput | Prisma.frases_librosUpsertWithWhereUniqueWithoutUserInput[]
+  createMany?: Prisma.frases_librosCreateManyUserInputEnvelope
+  set?: Prisma.frases_librosWhereUniqueInput | Prisma.frases_librosWhereUniqueInput[]
+  disconnect?: Prisma.frases_librosWhereUniqueInput | Prisma.frases_librosWhereUniqueInput[]
+  delete?: Prisma.frases_librosWhereUniqueInput | Prisma.frases_librosWhereUniqueInput[]
+  connect?: Prisma.frases_librosWhereUniqueInput | Prisma.frases_librosWhereUniqueInput[]
+  update?: Prisma.frases_librosUpdateWithWhereUniqueWithoutUserInput | Prisma.frases_librosUpdateWithWhereUniqueWithoutUserInput[]
+  updateMany?: Prisma.frases_librosUpdateManyWithWhereWithoutUserInput | Prisma.frases_librosUpdateManyWithWhereWithoutUserInput[]
+  deleteMany?: Prisma.frases_librosScalarWhereInput | Prisma.frases_librosScalarWhereInput[]
+}
+
+export type frases_librosCreateetiquetasInput = {
+  set: string[]
 }
 
 export type frases_librosUpdateetiquetasInput = {
@@ -361,16 +455,99 @@ export type frases_librosUpdateetiquetasInput = {
   push?: string | string[]
 }
 
-export type DateTimeFieldUpdateOperationsInput = {
-  set?: Date | string
+export type BoolFieldUpdateOperationsInput = {
+  set?: boolean
 }
 
-export type IntFieldUpdateOperationsInput = {
-  set?: number
-  increment?: number
-  decrement?: number
-  multiply?: number
-  divide?: number
+export type frases_librosCreateWithoutUserInput = {
+  titulo_libro: string
+  texto_frase: string
+  etiquetas?: Prisma.frases_librosCreateetiquetasInput | string[]
+  createdAt?: Date | string
+  isPublic?: boolean
+}
+
+export type frases_librosUncheckedCreateWithoutUserInput = {
+  id?: number
+  titulo_libro: string
+  texto_frase: string
+  etiquetas?: Prisma.frases_librosCreateetiquetasInput | string[]
+  createdAt?: Date | string
+  isPublic?: boolean
+}
+
+export type frases_librosCreateOrConnectWithoutUserInput = {
+  where: Prisma.frases_librosWhereUniqueInput
+  create: Prisma.XOR<Prisma.frases_librosCreateWithoutUserInput, Prisma.frases_librosUncheckedCreateWithoutUserInput>
+}
+
+export type frases_librosCreateManyUserInputEnvelope = {
+  data: Prisma.frases_librosCreateManyUserInput | Prisma.frases_librosCreateManyUserInput[]
+  skipDuplicates?: boolean
+}
+
+export type frases_librosUpsertWithWhereUniqueWithoutUserInput = {
+  where: Prisma.frases_librosWhereUniqueInput
+  update: Prisma.XOR<Prisma.frases_librosUpdateWithoutUserInput, Prisma.frases_librosUncheckedUpdateWithoutUserInput>
+  create: Prisma.XOR<Prisma.frases_librosCreateWithoutUserInput, Prisma.frases_librosUncheckedCreateWithoutUserInput>
+}
+
+export type frases_librosUpdateWithWhereUniqueWithoutUserInput = {
+  where: Prisma.frases_librosWhereUniqueInput
+  data: Prisma.XOR<Prisma.frases_librosUpdateWithoutUserInput, Prisma.frases_librosUncheckedUpdateWithoutUserInput>
+}
+
+export type frases_librosUpdateManyWithWhereWithoutUserInput = {
+  where: Prisma.frases_librosScalarWhereInput
+  data: Prisma.XOR<Prisma.frases_librosUpdateManyMutationInput, Prisma.frases_librosUncheckedUpdateManyWithoutUserInput>
+}
+
+export type frases_librosScalarWhereInput = {
+  AND?: Prisma.frases_librosScalarWhereInput | Prisma.frases_librosScalarWhereInput[]
+  OR?: Prisma.frases_librosScalarWhereInput[]
+  NOT?: Prisma.frases_librosScalarWhereInput | Prisma.frases_librosScalarWhereInput[]
+  id?: Prisma.IntFilter<"frases_libros"> | number
+  titulo_libro?: Prisma.StringFilter<"frases_libros"> | string
+  texto_frase?: Prisma.StringFilter<"frases_libros"> | string
+  etiquetas?: Prisma.StringNullableListFilter<"frases_libros">
+  createdAt?: Prisma.DateTimeFilter<"frases_libros"> | Date | string
+  userId?: Prisma.StringNullableFilter<"frases_libros"> | string | null
+  isPublic?: Prisma.BoolFilter<"frases_libros"> | boolean
+}
+
+export type frases_librosCreateManyUserInput = {
+  id?: number
+  titulo_libro: string
+  texto_frase: string
+  etiquetas?: Prisma.frases_librosCreateetiquetasInput | string[]
+  createdAt?: Date | string
+  isPublic?: boolean
+}
+
+export type frases_librosUpdateWithoutUserInput = {
+  titulo_libro?: Prisma.StringFieldUpdateOperationsInput | string
+  texto_frase?: Prisma.StringFieldUpdateOperationsInput | string
+  etiquetas?: Prisma.frases_librosUpdateetiquetasInput | string[]
+  createdAt?: Prisma.DateTimeFieldUpdateOperationsInput | Date | string
+  isPublic?: Prisma.BoolFieldUpdateOperationsInput | boolean
+}
+
+export type frases_librosUncheckedUpdateWithoutUserInput = {
+  id?: Prisma.IntFieldUpdateOperationsInput | number
+  titulo_libro?: Prisma.StringFieldUpdateOperationsInput | string
+  texto_frase?: Prisma.StringFieldUpdateOperationsInput | string
+  etiquetas?: Prisma.frases_librosUpdateetiquetasInput | string[]
+  createdAt?: Prisma.DateTimeFieldUpdateOperationsInput | Date | string
+  isPublic?: Prisma.BoolFieldUpdateOperationsInput | boolean
+}
+
+export type frases_librosUncheckedUpdateManyWithoutUserInput = {
+  id?: Prisma.IntFieldUpdateOperationsInput | number
+  titulo_libro?: Prisma.StringFieldUpdateOperationsInput | string
+  texto_frase?: Prisma.StringFieldUpdateOperationsInput | string
+  etiquetas?: Prisma.frases_librosUpdateetiquetasInput | string[]
+  createdAt?: Prisma.DateTimeFieldUpdateOperationsInput | Date | string
+  isPublic?: Prisma.BoolFieldUpdateOperationsInput | boolean
 }
 
 
@@ -381,6 +558,9 @@ export type frases_librosSelect<ExtArgs extends runtime.Types.Extensions.Interna
   texto_frase?: boolean
   etiquetas?: boolean
   createdAt?: boolean
+  userId?: boolean
+  isPublic?: boolean
+  user?: boolean | Prisma.frases_libros$userArgs<ExtArgs>
 }, ExtArgs["result"]["frases_libros"]>
 
 export type frases_librosSelectCreateManyAndReturn<ExtArgs extends runtime.Types.Extensions.InternalArgs = runtime.Types.Extensions.DefaultArgs> = runtime.Types.Extensions.GetSelect<{
@@ -389,6 +569,9 @@ export type frases_librosSelectCreateManyAndReturn<ExtArgs extends runtime.Types
   texto_frase?: boolean
   etiquetas?: boolean
   createdAt?: boolean
+  userId?: boolean
+  isPublic?: boolean
+  user?: boolean | Prisma.frases_libros$userArgs<ExtArgs>
 }, ExtArgs["result"]["frases_libros"]>
 
 export type frases_librosSelectUpdateManyAndReturn<ExtArgs extends runtime.Types.Extensions.InternalArgs = runtime.Types.Extensions.DefaultArgs> = runtime.Types.Extensions.GetSelect<{
@@ -397,6 +580,9 @@ export type frases_librosSelectUpdateManyAndReturn<ExtArgs extends runtime.Types
   texto_frase?: boolean
   etiquetas?: boolean
   createdAt?: boolean
+  userId?: boolean
+  isPublic?: boolean
+  user?: boolean | Prisma.frases_libros$userArgs<ExtArgs>
 }, ExtArgs["result"]["frases_libros"]>
 
 export type frases_librosSelectScalar = {
@@ -405,19 +591,34 @@ export type frases_librosSelectScalar = {
   texto_frase?: boolean
   etiquetas?: boolean
   createdAt?: boolean
+  userId?: boolean
+  isPublic?: boolean
 }
 
-export type frases_librosOmit<ExtArgs extends runtime.Types.Extensions.InternalArgs = runtime.Types.Extensions.DefaultArgs> = runtime.Types.Extensions.GetOmit<"id" | "titulo_libro" | "texto_frase" | "etiquetas" | "createdAt", ExtArgs["result"]["frases_libros"]>
+export type frases_librosOmit<ExtArgs extends runtime.Types.Extensions.InternalArgs = runtime.Types.Extensions.DefaultArgs> = runtime.Types.Extensions.GetOmit<"id" | "titulo_libro" | "texto_frase" | "etiquetas" | "createdAt" | "userId" | "isPublic", ExtArgs["result"]["frases_libros"]>
+export type frases_librosInclude<ExtArgs extends runtime.Types.Extensions.InternalArgs = runtime.Types.Extensions.DefaultArgs> = {
+  user?: boolean | Prisma.frases_libros$userArgs<ExtArgs>
+}
+export type frases_librosIncludeCreateManyAndReturn<ExtArgs extends runtime.Types.Extensions.InternalArgs = runtime.Types.Extensions.DefaultArgs> = {
+  user?: boolean | Prisma.frases_libros$userArgs<ExtArgs>
+}
+export type frases_librosIncludeUpdateManyAndReturn<ExtArgs extends runtime.Types.Extensions.InternalArgs = runtime.Types.Extensions.DefaultArgs> = {
+  user?: boolean | Prisma.frases_libros$userArgs<ExtArgs>
+}
 
 export type $frases_librosPayload<ExtArgs extends runtime.Types.Extensions.InternalArgs = runtime.Types.Extensions.DefaultArgs> = {
   name: "frases_libros"
-  objects: {}
+  objects: {
+    user: Prisma.$UserPayload<ExtArgs> | null
+  }
   scalars: runtime.Types.Extensions.GetPayloadResult<{
     id: number
     titulo_libro: string
     texto_frase: string
     etiquetas: string[]
     createdAt: Date
+    userId: string | null
+    isPublic: boolean
   }, ExtArgs["result"]["frases_libros"]>
   composites: {}
 }
@@ -812,6 +1013,7 @@ readonly fields: frases_librosFieldRefs;
  */
 export interface Prisma__frases_librosClient<T, Null = never, ExtArgs extends runtime.Types.Extensions.InternalArgs = runtime.Types.Extensions.DefaultArgs, GlobalOmitOptions = {}> extends Prisma.PrismaPromise<T> {
   readonly [Symbol.toStringTag]: "PrismaPromise"
+  user<T extends Prisma.frases_libros$userArgs<ExtArgs> = {}>(args?: Prisma.Subset<T, Prisma.frases_libros$userArgs<ExtArgs>>): Prisma.Prisma__UserClient<runtime.Types.Result.GetResult<Prisma.$UserPayload<ExtArgs>, T, "findUniqueOrThrow", GlobalOmitOptions> | null, null, ExtArgs, GlobalOmitOptions>
   /**
    * Attaches callbacks for the resolution and/or rejection of the Promise.
    * @param onfulfilled The callback to execute when the Promise is resolved.
@@ -846,6 +1048,8 @@ export interface frases_librosFieldRefs {
   readonly texto_frase: Prisma.FieldRef<"frases_libros", 'String'>
   readonly etiquetas: Prisma.FieldRef<"frases_libros", 'String[]'>
   readonly createdAt: Prisma.FieldRef<"frases_libros", 'DateTime'>
+  readonly userId: Prisma.FieldRef<"frases_libros", 'String'>
+  readonly isPublic: Prisma.FieldRef<"frases_libros", 'Boolean'>
 }
     
 
@@ -862,6 +1066,10 @@ export type frases_librosFindUniqueArgs<ExtArgs extends runtime.Types.Extensions
    * Omit specific fields from the frases_libros
    */
   omit?: Prisma.frases_librosOmit<ExtArgs> | null
+  /**
+   * Choose, which related nodes to fetch as well
+   */
+  include?: Prisma.frases_librosInclude<ExtArgs> | null
   /**
    * Filter, which frases_libros to fetch.
    */
@@ -881,6 +1089,10 @@ export type frases_librosFindUniqueOrThrowArgs<ExtArgs extends runtime.Types.Ext
    */
   omit?: Prisma.frases_librosOmit<ExtArgs> | null
   /**
+   * Choose, which related nodes to fetch as well
+   */
+  include?: Prisma.frases_librosInclude<ExtArgs> | null
+  /**
    * Filter, which frases_libros to fetch.
    */
   where: Prisma.frases_librosWhereUniqueInput
@@ -898,6 +1110,10 @@ export type frases_librosFindFirstArgs<ExtArgs extends runtime.Types.Extensions.
    * Omit specific fields from the frases_libros
    */
   omit?: Prisma.frases_librosOmit<ExtArgs> | null
+  /**
+   * Choose, which related nodes to fetch as well
+   */
+  include?: Prisma.frases_librosInclude<ExtArgs> | null
   /**
    * Filter, which frases_libros to fetch.
    */
@@ -947,6 +1163,10 @@ export type frases_librosFindFirstOrThrowArgs<ExtArgs extends runtime.Types.Exte
    */
   omit?: Prisma.frases_librosOmit<ExtArgs> | null
   /**
+   * Choose, which related nodes to fetch as well
+   */
+  include?: Prisma.frases_librosInclude<ExtArgs> | null
+  /**
    * Filter, which frases_libros to fetch.
    */
   where?: Prisma.frases_librosWhereInput
@@ -994,6 +1214,10 @@ export type frases_librosFindManyArgs<ExtArgs extends runtime.Types.Extensions.I
    * Omit specific fields from the frases_libros
    */
   omit?: Prisma.frases_librosOmit<ExtArgs> | null
+  /**
+   * Choose, which related nodes to fetch as well
+   */
+  include?: Prisma.frases_librosInclude<ExtArgs> | null
   /**
    * Filter, which frases_libros to fetch.
    */
@@ -1043,6 +1267,10 @@ export type frases_librosCreateArgs<ExtArgs extends runtime.Types.Extensions.Int
    */
   omit?: Prisma.frases_librosOmit<ExtArgs> | null
   /**
+   * Choose, which related nodes to fetch as well
+   */
+  include?: Prisma.frases_librosInclude<ExtArgs> | null
+  /**
    * The data needed to create a frases_libros.
    */
   data: Prisma.XOR<Prisma.frases_librosCreateInput, Prisma.frases_librosUncheckedCreateInput>
@@ -1076,6 +1304,10 @@ export type frases_librosCreateManyAndReturnArgs<ExtArgs extends runtime.Types.E
    */
   data: Prisma.frases_librosCreateManyInput | Prisma.frases_librosCreateManyInput[]
   skipDuplicates?: boolean
+  /**
+   * Choose, which related nodes to fetch as well
+   */
+  include?: Prisma.frases_librosIncludeCreateManyAndReturn<ExtArgs> | null
 }
 
 /**
@@ -1090,6 +1322,10 @@ export type frases_librosUpdateArgs<ExtArgs extends runtime.Types.Extensions.Int
    * Omit specific fields from the frases_libros
    */
   omit?: Prisma.frases_librosOmit<ExtArgs> | null
+  /**
+   * Choose, which related nodes to fetch as well
+   */
+  include?: Prisma.frases_librosInclude<ExtArgs> | null
   /**
    * The data needed to update a frases_libros.
    */
@@ -1142,6 +1378,10 @@ export type frases_librosUpdateManyAndReturnArgs<ExtArgs extends runtime.Types.E
    * Limit how many frases_libros to update.
    */
   limit?: number
+  /**
+   * Choose, which related nodes to fetch as well
+   */
+  include?: Prisma.frases_librosIncludeUpdateManyAndReturn<ExtArgs> | null
 }
 
 /**
@@ -1156,6 +1396,10 @@ export type frases_librosUpsertArgs<ExtArgs extends runtime.Types.Extensions.Int
    * Omit specific fields from the frases_libros
    */
   omit?: Prisma.frases_librosOmit<ExtArgs> | null
+  /**
+   * Choose, which related nodes to fetch as well
+   */
+  include?: Prisma.frases_librosInclude<ExtArgs> | null
   /**
    * The filter to search for the frases_libros to update in case it exists.
    */
@@ -1183,6 +1427,10 @@ export type frases_librosDeleteArgs<ExtArgs extends runtime.Types.Extensions.Int
    */
   omit?: Prisma.frases_librosOmit<ExtArgs> | null
   /**
+   * Choose, which related nodes to fetch as well
+   */
+  include?: Prisma.frases_librosInclude<ExtArgs> | null
+  /**
    * Filter which frases_libros to delete.
    */
   where: Prisma.frases_librosWhereUniqueInput
@@ -1203,6 +1451,25 @@ export type frases_librosDeleteManyArgs<ExtArgs extends runtime.Types.Extensions
 }
 
 /**
+ * frases_libros.user
+ */
+export type frases_libros$userArgs<ExtArgs extends runtime.Types.Extensions.InternalArgs = runtime.Types.Extensions.DefaultArgs> = {
+  /**
+   * Select specific fields to fetch from the User
+   */
+  select?: Prisma.UserSelect<ExtArgs> | null
+  /**
+   * Omit specific fields from the User
+   */
+  omit?: Prisma.UserOmit<ExtArgs> | null
+  /**
+   * Choose, which related nodes to fetch as well
+   */
+  include?: Prisma.UserInclude<ExtArgs> | null
+  where?: Prisma.UserWhereInput
+}
+
+/**
  * frases_libros without action
  */
 export type frases_librosDefaultArgs<ExtArgs extends runtime.Types.Extensions.InternalArgs = runtime.Types.Extensions.DefaultArgs> = {
@@ -1214,4 +1481,8 @@ export type frases_librosDefaultArgs<ExtArgs extends runtime.Types.Extensions.In
    * Omit specific fields from the frases_libros
    */
   omit?: Prisma.frases_librosOmit<ExtArgs> | null
+  /**
+   * Choose, which related nodes to fetch as well
+   */
+  include?: Prisma.frases_librosInclude<ExtArgs> | null
 }

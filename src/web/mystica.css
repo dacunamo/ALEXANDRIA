@@ -135,6 +135,25 @@ body {
   width: 250px;
 }
 
+.auth-status {
+  margin-left: auto;
+  display: flex;
+  align-items: center;
+  gap: 10px;
+  font-size: 0.85rem;
+  color: var(--texto-suave);
+  white-space: nowrap;
+}
+
+.auth-status a {
+  color: var(--oro);
+  text-decoration: none;
+}
+
+.auth-status a:hover {
+  text-decoration: underline;
+}
+
 .search-group-header button {
   background: transparent;
   border: none;
@@ -443,6 +462,12 @@ body {
 
   .search-group-header input {
     flex-grow: 1;
+  }
+
+  .auth-status {
+    margin-left: 0;
+    width: 100%;
+    justify-content: flex-end;
   }
 
   /* --- ESTRUCTURA VERTICAL DE LA APP --- */

@@ -51,6 +51,10 @@ export const AnyNull = runtime.AnyNull
 
 
 export const ModelName = {
+  User: 'User',
+  Session: 'Session',
+  BookmarkedBook: 'BookmarkedBook',
+  Note: 'Note',
   frases_libros: 'frases_libros'
 } as const
 
@@ -70,12 +74,59 @@ export const TransactionIsolationLevel = runtime.makeStrictEnum({
 export type TransactionIsolationLevel = (typeof TransactionIsolationLevel)[keyof typeof TransactionIsolationLevel]
 
 
+export const UserScalarFieldEnum = {
+  id: 'id',
+  email: 'email',
+  passwordHash: 'passwordHash',
+  googleId: 'googleId',
+  displayName: 'displayName',
+  createdAt: 'createdAt',
+  updatedAt: 'updatedAt'
+} as const
+
+export type UserScalarFieldEnum = (typeof UserScalarFieldEnum)[keyof typeof UserScalarFieldEnum]
+
+
+export const SessionScalarFieldEnum = {
+  id: 'id',
+  userId: 'userId',
+  expiresAt: 'expiresAt',
+  createdAt: 'createdAt'
+} as const
+
+export type SessionScalarFieldEnum = (typeof SessionScalarFieldEnum)[keyof typeof SessionScalarFieldEnum]
+
+
+export const BookmarkedBookScalarFieldEnum = {
+  id: 'id',
+  userId: 'userId',
+  author: 'author',
+  slug: 'slug',
+  createdAt: 'createdAt'
+} as const
+
+export type BookmarkedBookScalarFieldEnum = (typeof BookmarkedBookScalarFieldEnum)[keyof typeof BookmarkedBookScalarFieldEnum]
+
+
+export const NoteScalarFieldEnum = {
+  id: 'id',
+  userId: 'userId',
+  content: 'content',
+  createdAt: 'createdAt',
+  updatedAt: 'updatedAt'
+} as const
+
+export type NoteScalarFieldEnum = (typeof NoteScalarFieldEnum)[keyof typeof NoteScalarFieldEnum]
+
+
 export const Frases_librosScalarFieldEnum = {
   id: 'id',
   titulo_libro: 'titulo_libro',
   texto_frase: 'texto_frase',
   etiquetas: 'etiquetas',
-  createdAt: 'createdAt'
+  createdAt: 'createdAt',
+  userId: 'userId',
+  isPublic: 'isPublic'
 } as const
 
 export type Frases_librosScalarFieldEnum = (typeof Frases_librosScalarFieldEnum)[keyof typeof Frases_librosScalarFieldEnum]
@@ -95,4 +146,12 @@ export const QueryMode = {
 } as const
 
 export type QueryMode = (typeof QueryMode)[keyof typeof QueryMode]
+
+
+export const NullsOrder = {
+  first: 'first',
+  last: 'last'
+} as const
+
+export type NullsOrder = (typeof NullsOrder)[keyof typeof NullsOrder]
 

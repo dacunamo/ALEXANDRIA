@@ -10,7 +10,11 @@
     "pg": "npm:pg@^8.21.0",
     "prisma": "npm:prisma@^7.8.0",
     "prisma/config": "npm:@prisma/config@^7.0.0",
-    "@types/pg": "npm:@types/pg@^8.0.0"
+    "@types/pg": "npm:@types/pg@^8.0.0",
+    "hash-wasm": "npm:hash-wasm@^4.12.0",
+    "arctic": "npm:arctic@^3.7.0",
+    "marked": "npm:marked@^12.0.0",
+    "@std/http/cookie": "https://deno.land/std@0.224.0/http/cookie.ts"
   },
   "tasks": {
     "dbtest": "deno run -A --env=.env --watch dbtest.ts",

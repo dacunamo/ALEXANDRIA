@@ -26,7 +26,15 @@
       <button onclick="search(); document.getElementById('searchBox').blur();">🔍</button>
 
     </div>
+    <div class="search-options">
+      <label title="Por defecto se busca la palabra o frase completa">
+        <input type="checkbox" id="partialMatch" onchange="search()">
+        Coincidencia parcial
+      </label>
+    </div>
   </div>
+
+    <div id="auth-status" class="auth-status"></div>
 
     <button id="mobile-toggle" onclick="toggleSidebar()">
       <span></span>
@@ -66,6 +74,7 @@
   <script src="./src/web/search.js"></script>
   <script src="./src/web/toolbox.js"></script>
   <script src="./src/web/renderdata.js"></script>
+  <script src="./src/web/auth.js"></script>
 
 </body>
 

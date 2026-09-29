@@ -1,5 +1,8 @@
 //FUNCTION TO RENDER THE BOOKS ON THE VIEWERCONTAINER
-window.renderFile = function (idx, q) {
+// `partial` is the mode used for the library search that produced this result
+// (false = whole word, true = contains) — the in-book "Palabra completa"
+// checkbox inherits it, so opening a book continues the same search mode.
+window.renderFile = function (idx, q, partial) {
   const container = document.getElementById("viewer-container");
   if (!container || !currentResults || !currentResults[idx]) {
     console.error("Error: Contenedor o datos no válidos.");
@@ -29,6 +32,7 @@ window.renderFile = function (idx, q) {
   const checkbox = document.createElement("input");
   checkbox.type = "checkbox";
   checkbox.id = "wholeWord";
+  checkbox.checked = partial === false; // inherited: whole word unless the library search used "contains"
   label.appendChild(checkbox);
   label.appendChild(document.createTextNode(" Palabra completa"));
   searchOptions.appendChild(label);
@@ -90,12 +94,37 @@ window.renderFile = function (idx, q) {
   savePhraseBtn.className = "save-phrase-btn disabled"; // Disabled by default until text is highlighted
   savePhraseBtn.title = "Highlight text in the book to save it";
 
+  const bookmarkBtn = document.createElement("button");
+  bookmarkBtn.textContent = "Guardar libro";
+  bookmarkBtn.className = "save-phrase-btn";
+  bookmarkBtn.title = "Guardar este libro en Mi Espacio";
+  bookmarkBtn.addEventListener("click", async () => {
+    bookmarkBtn.textContent = "Guardando...";
+    try {
+      const res = await fetch("/api/bookmarks", {
+        method: "POST",
+        headers: { "Content-Type": "application/json" },
+        body: JSON.stringify({ author: file.author, slug: file.name }),
+      });
+      if (res.status === 401) {
+        bookmarkBtn.textContent = "Inicia sesión";
+        return;
+      }
+      const result = await res.json();
+      bookmarkBtn.textContent = result.success ? "Guardado" : "Error";
+    } catch (err) {
+      console.error("Error al guardar el libro:", err);
+      bookmarkBtn.textContent = "Error";
+    }
+  });
+
   searchRowTop.appendChild(innerSearch);
   searchRowTop.appendChild(searchBtn);
   searchRowBottom.appendChild(counter);
   searchRowBottom.appendChild(prevBtn);
   searchRowBottom.appendChild(nextBtn);
   searchRowBottom.appendChild(savePhraseBtn);
+  searchRowBottom.appendChild(bookmarkBtn);
   searchRowBottom.appendChild(toggleMinBtn);
 
   searchBox.appendChild(searchRowTop);
@@ -132,8 +161,10 @@ window.renderFile = function (idx, q) {
 /**
  * Fetches phrases from the API and renders them into the container.
  * Assumes the API returns: [{ titulo_libro, texto_frase, tags: "tag1,tag2" }, ...]
+ * @param {string} containerId
+ * @param {string} endpoint - "/api/frases" (public feed) or "/api/my-frases" (own, incl. private)
  */
-async function loadSavedPhrases(containerId) {
+async function loadSavedPhrases(containerId, endpoint = "/api/frases") {
   const container = document.getElementById(containerId);
   if (!container) return;
   container.innerHTML = `
@@ -144,7 +175,7 @@ async function loadSavedPhrases(containerId) {
   `;
 
   try {
-    const response = await fetch("/api/frases");
+    const response = await fetch(endpoint);
     const data = await response.json();
 
     container.textContent = ""; // Clear loading message
@@ -167,7 +198,14 @@ async function loadSavedPhrases(containerId) {
 
       div.appendChild(strong);
       div.appendChild(p);
-      console.log(f.etiquetas);
+
+      if (f.isPublic === false) {
+        const privateBadge = document.createElement("span");
+        privateBadge.className = "tag-badge";
+        privateBadge.textContent = "🔒 Privada";
+        div.appendChild(privateBadge);
+      }
+
       // Render Tags (if they exist)
       if (f.etiquetas) {
         const tagContainer = document.createElement("div");
@@ -229,3 +267,24 @@ function copyToClipboard(event) {
       setTimeout(() => btn.textContent = originalText, 1000);
     });
 }
+
+// Abre directamente un libro guardado desde Mi Espacio, vía /app?open=autor/slug
+document.addEventListener("DOMContentLoaded", async () => {
+  if (!document.getElementById("viewer-container")) return;
+
+  const open = new URLSearchParams(window.location.search).get("open");
+  if (!open) return;
+
+  const [author, ...rest] = open.split("/");
+  const slug = rest.join("/");
+
+  try {
+    const res = await fetch(`/api/book?author=${encodeURIComponent(author)}&slug=${encodeURIComponent(slug)}`);
+    if (!res.ok) return;
+    const doc = await res.json();
+    currentResults.unshift(doc);
+    window.renderFile(0);
+  } catch (err) {
+    console.error("Error abriendo el libro guardado:", err);
+  }
+});

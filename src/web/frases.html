@@ -12,14 +12,15 @@
 <body>
   <h1><a href="./">ALEXANDRIA</a></h1>
   <h2>Frases Guardadas</h2>
+  <div id="auth-status" class="auth-status"></div>
   <div id="frases-container"></div>
 
   <script src="./src/web/renderdata.js"></script>
+  <script src="./src/web/auth.js"></script>
   <script>
-    // Now you can call the function easily
-    // If you are on the phrases page:
+    // Página pública: cualquiera puede ver las frases marcadas como públicas.
     if (document.getElementById('frases-container')) {
-      loadSavedPhrases('frases-container');
+      loadSavedPhrases('frases-container', '/api/frases');
     }
   </script>
 </body>

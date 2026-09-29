@@ -6,6 +6,9 @@
     "npm:@prisma/client@7": "7.8.0_prisma@7.8.0__@types+react@19.2.17__react@19.2.7__react-dom@19.2.7___react@19.2.7_@types+react@19.2.17_react@19.2.7_react-dom@19.2.7__react@19.2.7",
     "npm:@prisma/config@7": "7.8.0",
     "npm:@types/pg@8": "8.20.0",
+    "npm:arctic@^3.7.0": "3.7.0",
+    "npm:hash-wasm@^4.12.0": "4.12.0",
+    "npm:marked@12": "12.0.2",
     "npm:pg@*": "8.21.0",
     "npm:pg@^8.21.0": "8.21.0",
     "npm:prisma@*": "7.8.0_@types+react@19.2.17_react@19.2.7_react-dom@19.2.7__react@19.2.7",
@@ -36,6 +39,34 @@
     },
     "@kurkle/color@0.3.4": {
       "integrity": "sha512-M5UknZPHRu3DEDWoipU6sE8PdkZ6Z/S+v4dD+Ke8IaNlpdSQah50lz1KtcFBa2vsdOnwbbnxJwVM4wty6udA5w=="
+    },
+    "@oslojs/asn1@1.0.0": {
+      "integrity": "sha512-zw/wn0sj0j0QKbIXfIlnEcTviaCzYOY3V5rAyjR6YtOByFtJiT574+8p9Wlach0lZH9fddD4yb9laEAIl4vXQA==",
+      "dependencies": [
+        "@oslojs/binary"
+      ]
+    },
+    "@oslojs/binary@1.0.0": {
+      "integrity": "sha512-9RCU6OwXU6p67H4NODbuxv2S3eenuQ4/WFLrsq+K/k682xrznH5EVWA7N4VFk9VYVcbFtKqur5YQQZc0ySGhsQ=="
+    },
+    "@oslojs/crypto@1.0.1": {
+      "integrity": "sha512-7n08G8nWjAr/Yu3vu9zzrd0L9XnrJfpMioQcvCMxBIiF5orECHe5/3J0jmXRVvgfqMm/+4oxlQ+Sq39COYLcNQ==",
+      "dependencies": [
+        "@oslojs/asn1",
+        "@oslojs/binary"
+      ]
+    },
+    "@oslojs/encoding@0.4.1": {
+      "integrity": "sha512-hkjo6MuIK/kQR5CrGNdAPZhS01ZCXuWDRJ187zh6qqF2+yMHZpD9fAYpX8q2bOO6Ryhl3XpCT6kUX76N8hhm4Q=="
+    },
+    "@oslojs/encoding@1.1.0": {
+      "integrity": "sha512-70wQhgYmndg4GCPxPPxPGevRKqTIJ2Nh4OkiMWmDAVYsTQ+Ta7Sq+rPevXyXGdzr30/qZBnyOalCszoMxlyldQ=="
+    },
+    "@oslojs/jwt@0.2.0": {
+      "integrity": "sha512-bLE7BtHrURedCn4Mco3ma9L4Y1GR2SMBuIvjWr7rmQ4/W/4Jy70TIAgZ+0nIlk0xHz1vNP8x8DCns45Sb2XRbg==",
+      "dependencies": [
+        "@oslojs/encoding@0.4.1"
+      ]
     },
     "@prisma/adapter-pg@7.8.0": {
       "integrity": "sha512-ygb3UkerK3v8MDpXVgCISdRNDozpxh6+JVJgiIGbSr5KBgz10LLf5ejUskPGoXlsIjxsOu6nuy1JVQr2EKGSlg==",
@@ -272,6 +303,14 @@
         "require-from-string"
       ]
     },
+    "arctic@3.7.0": {
+      "integrity": "sha512-ZMQ+f6VazDgUJOd+qNV+H7GohNSYal1mVjm5kEaZfE2Ifb7Ss70w+Q7xpJC87qZDkMZIXYf0pTIYZA0OPasSbw==",
+      "dependencies": [
+        "@oslojs/crypto",
+        "@oslojs/encoding@1.1.0",
+        "@oslojs/jwt"
+      ]
+    },
     "aws-ssl-profiles@1.1.2": {
       "integrity": "sha512-NZKeq9AfyQvEeNlN0zSYAaWrmBffJh3IELMZfRpJVWgrpEbtEpnjvzqBPf+mxoI287JohRDoa+/nsfqqiZmF6g=="
     },
@@ -393,6 +432,9 @@
     "graphmatch@1.1.1": {
       "integrity": "sha512-5ykVn/EXM1hF0XCaWh05VbYvEiOL2lY1kBxZtaYsyvjp7cmWOU1XsAdfQBwClraEofXDT197lFbXOEVMHpvQOg=="
     },
+    "hash-wasm@4.12.0": {
+      "integrity": "sha512-+/2B2rYLb48I/evdOIhP+K/DD2ca2fgBjp6O+GBEnCDk2e4rpeXIK8GvIyRPjTezgmWn9gmKwkQjjx6BtqDHVQ=="
+    },
     "hono@4.12.25": {
       "integrity": "sha512-2NFaIyNVgJmBs/ecmtGzlmluTFs5cHEWGTdu0t1HBwYzoGXOL5nUQBRMXsXWla5i4KkG//QMzVP88m1+I3fdAQ=="
     },
@@ -423,6 +465,10 @@
     },
     "lru.min@1.1.4": {
       "integrity": "sha512-DqC6n3QQ77zdFpCMASA1a3Jlb64Hv2N2DciFGkO/4L9+q/IpIAuRlKOvCXabtRW6cQf8usbmM6BE/TOPysCdIA=="
+    },
+    "marked@12.0.2": {
+      "integrity": "sha512-qXUm7e/YKFoqFPYPa3Ukg9xlI5cyAtGmyEIzMfW//m6kXwCy2Ps9DYf5ioijFKQ8qyuscrHoY04iJGctu2Kg0Q==",
+      "bin": true
     },
     "mysql2@3.15.3": {
       "integrity": "sha512-FBrGau0IXmuqg4haEZRBfHNWB5mUARw6hNwPDXXGg0XzVJ50mr/9hb267lvpVMnhZ1FON3qNd4Xfcez1rbFwSg==",
@@ -650,6 +696,7 @@
     "https://deno.land/std@0.224.0/encoding/base64.ts": "dd59695391584c8ffc5a296ba82bcdba6dd8a84d41a6a539fbee8e5075286eaf",
     "https://deno.land/std@0.224.0/fmt/bytes.ts": "7b294a4b9cf0297efa55acb55d50610f3e116a0ac772d1df0ae00f0b833ccd4a",
     "https://deno.land/std@0.224.0/fmt/colors.ts": "508563c0659dd7198ba4bbf87e97f654af3c34eb56ba790260f252ad8012e1c5",
+    "https://deno.land/std@0.224.0/http/cookie.ts": "a377fa60175ba5f61dd4b8a70b34f2bbfbc70782dfd5faf36d314c42e4306006",
     "https://deno.land/std@0.224.0/http/etag.ts": "9ca56531be682f202e4239971931060b688ee5c362688e239eeaca39db9e72cb",
     "https://deno.land/std@0.224.0/http/file_server.ts": "2a5392195b8e7713288f274d071711b705bb5b3220294d76cce495d456c61a93",
     "https://deno.land/std@0.224.0/http/status.ts": "ed61b4882af2514a81aefd3245e8df4c47b9a8e54929a903577643d2d1ebf514",
@@ -693,6 +740,9 @@
       "npm:@prisma/client@7",
       "npm:@prisma/config@7",
       "npm:@types/pg@8",
+      "npm:arctic@^3.7.0",
+      "npm:hash-wasm@^4.12.0",
+      "npm:marked@12",
       "npm:pg@^8.21.0",
       "npm:prisma@^7.8.0"
     ]

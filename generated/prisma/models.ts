@@ -8,5 +8,9 @@
  *
  * 🟢 You can import this file directly.
  */
+export type * from './models/User.ts'
+export type * from './models/Session.ts'
+export type * from './models/BookmarkedBook.ts'
+export type * from './models/Note.ts'
 export type * from './models/frases_libros.ts'
 export type * from './commonInputTypes.ts'

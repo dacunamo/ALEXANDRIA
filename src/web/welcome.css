@@ -136,3 +136,133 @@ p {
     opacity: 0.7;
     margin-top: auto; /* Pushes the footer to the bottom in a flex layout */
 }
+
+.auth-status {
+    display: flex;
+    justify-content: center;
+    gap: 10px;
+    font-size: 0.85rem;
+    color: var(--blanco-suave);
+    margin-bottom: 1rem;
+}
+
+.auth-status a {
+    color: var(--oro);
+    text-decoration: none;
+}
+
+.auth-status a:hover {
+    text-decoration: underline;
+}
+
+.auth-form {
+    display: flex;
+    flex-direction: column;
+    gap: 14px;
+    width: 100%;
+    max-width: 320px;
+    margin: 0 auto;
+    text-align: left;
+}
+
+.auth-form label {
+    font-size: 0.85rem;
+    color: var(--oro);
+    text-transform: uppercase;
+    letter-spacing: 1px;
+    margin-bottom: 4px;
+    display: block;
+}
+
+.auth-form input {
+    width: 100%;
+    box-sizing: border-box;
+    background: rgba(255, 255, 255, 0.05);
+    border: 1px solid rgba(212, 175, 55, 0.4);
+    border-radius: 6px;
+    padding: 10px 12px;
+    color: var(--blanco-suave);
+    font-size: 1rem;
+}
+
+.auth-form input:focus {
+    outline: none;
+    border-color: var(--oro);
+}
+
+.password-field {
+    position: relative;
+    display: flex;
+}
+
+.password-field input {
+    padding-right: 40px;
+}
+
+.password-toggle {
+    position: absolute;
+    right: 6px;
+    top: 50%;
+    transform: translateY(-50%);
+    background: transparent;
+    border: none;
+    cursor: pointer;
+    font-size: 1.1rem;
+    line-height: 1;
+    padding: 4px 6px;
+}
+
+.auth-error {
+    color: #e07a7a;
+    font-size: 0.9rem;
+    min-height: 1.2em;
+}
+
+.auth-divider {
+    display: flex;
+    align-items: center;
+    gap: 10px;
+    width: 100%;
+    max-width: 320px;
+    margin: 1.2rem auto;
+    color: rgba(224, 224, 224, 0.5);
+    font-size: 0.8rem;
+    text-transform: uppercase;
+}
+
+.auth-divider::before,
+.auth-divider::after {
+    content: "";
+    flex: 1;
+    height: 1px;
+    background: rgba(212, 175, 55, 0.3);
+}
+
+.google-btn {
+    display: inline-flex;
+    align-items: center;
+    justify-content: center;
+    gap: 10px;
+    width: 100%;
+    max-width: 320px;
+    margin: 0 auto;
+    background: var(--blanco-suave);
+    color: #1a0f2e;
+    border-radius: 20px;
+    padding: 12px;
+    font-weight: bold;
+    text-decoration: none;
+}
+
+.google-btn:hover {
+    opacity: 0.9;
+}
+
+.auth-switch {
+    margin-top: 1.5rem;
+    font-size: 0.9rem;
+}
+
+.auth-switch a {
+    color: var(--oro);
+}

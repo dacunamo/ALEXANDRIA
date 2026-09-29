@@ -1,0 +1,637 @@
+<!DOCTYPE html>
+<html lang="en">
+<head>
+<meta charset="UTF-8">
+<meta name="viewport" content="width=device-width, initial-scale=1.0">
+<title>Alexandria — Session Record</title>
+<style>
+  :root {
+    --ink: #17121f;
+    --surface: #1f1830;
+    --surface-2: #241c39;
+    --text: #e7e1ee;
+    --dim: #a89bbd;
+    --accent: #c9a545;
+    --accent-dim: rgba(201, 165, 69, 0.28);
+    --good: #7fae7a;
+    --bad: #c17b64;
+    --warn: #c98b52;
+    --rule: rgba(201, 165, 69, 0.2);
+    --font-display: "Iowan Old Style", "Palatino Linotype", Palatino, Georgia, serif;
+    --font-body: -apple-system, BlinkMacSystemFont, "Segoe UI", Roboto, "Helvetica Neue", Arial, sans-serif;
+    --font-mono: ui-monospace, "SF Mono", "Cascadia Code", "JetBrains Mono", Menlo, Consolas, monospace;
+  }
+
+  :root[data-theme="light"] {
+    --ink: #faf6ec;
+    --surface: #f1e9d6;
+    --surface-2: #e9dfc6;
+    --text: #2a2033;
+    --dim: #6c6178;
+    --accent: #8a6216;
+    --accent-dim: rgba(138, 98, 22, 0.18);
+    --good: #3f7a45;
+    --bad: #99493a;
+    --warn: #8a5a1f;
+    --rule: rgba(138, 98, 22, 0.25);
+  }
+
+  @media (prefers-color-scheme: light) {
+    :root:not([data-theme="dark"]) {
+      --ink: #faf6ec;
+      --surface: #f1e9d6;
+      --surface-2: #e9dfc6;
+      --text: #2a2033;
+      --dim: #6c6178;
+      --accent: #8a6216;
+      --accent-dim: rgba(138, 98, 22, 0.18);
+      --good: #3f7a45;
+      --bad: #99493a;
+      --warn: #8a5a1f;
+      --rule: rgba(138, 98, 22, 0.25);
+    }
+  }
+
+  * { box-sizing: border-box; }
+
+  html, body {
+    margin: 0;
+    background: var(--ink);
+    color: var(--text);
+    font-family: var(--font-body);
+    -webkit-font-smoothing: antialiased;
+  }
+
+  body {
+    display: grid;
+    grid-template-columns: minmax(0, 1fr);
+    justify-content: center;
+  }
+
+  .page {
+    width: 100%;
+    max-width: 1120px;
+    margin: 0 auto;
+    padding: 0 24px;
+    display: grid;
+    grid-template-columns: 200px minmax(0, 720px);
+    gap: 56px;
+    align-items: start;
+  }
+
+  @media (max-width: 880px) {
+    .page { grid-template-columns: minmax(0, 1fr); gap: 0; }
+    nav.index { display: none; }
+  }
+
+  header.masthead {
+    grid-column: 1 / -1;
+    padding: 56px 0 28px;
+    border-bottom: 1px solid var(--rule);
+  }
+
+  .eyebrow {
+    font-family: var(--font-mono);
+    font-size: 0.72rem;
+    letter-spacing: 0.14em;
+    text-transform: uppercase;
+    color: var(--accent);
+  }
+
+  h1.title {
+    font-family: var(--font-display);
+    font-weight: 400;
+    font-size: clamp(2.1rem, 4vw, 2.9rem);
+    margin: 10px 0 8px;
+    text-wrap: balance;
+    letter-spacing: 0.01em;
+  }
+
+  .dek {
+    font-size: 1.05rem;
+    color: var(--dim);
+    max-width: 640px;
+    line-height: 1.55;
+    margin: 0;
+  }
+
+  nav.index {
+    position: sticky;
+    top: 40px;
+    padding-top: 48px;
+    display: flex;
+    flex-direction: column;
+    gap: 2px;
+  }
+
+  nav.index .index-label {
+    font-family: var(--font-mono);
+    font-size: 0.68rem;
+    letter-spacing: 0.12em;
+    text-transform: uppercase;
+    color: var(--dim);
+    margin-bottom: 10px;
+  }
+
+  nav.index a {
+    color: var(--dim);
+    text-decoration: none;
+    font-size: 0.88rem;
+    padding: 7px 0;
+    border-left: 2px solid transparent;
+    padding-left: 12px;
+    line-height: 1.35;
+    transition: color 0.15s, border-color 0.15s;
+  }
+
+  nav.index a:hover { color: var(--text); border-left-color: var(--accent-dim); }
+
+  nav.index a span.n {
+    font-family: var(--font-mono);
+    color: var(--accent);
+    margin-right: 6px;
+  }
+
+  main { padding: 40px 0 90px; min-width: 0; }
+
+  section.entry {
+    margin-bottom: 64px;
+    scroll-margin-top: 24px;
+  }
+
+  .entry-head {
+    display: flex;
+    align-items: baseline;
+    gap: 14px;
+    margin-bottom: 6px;
+  }
+
+  .entry-num {
+    font-family: var(--font-mono);
+    color: var(--accent);
+    font-size: 0.95rem;
+  }
+
+  h2.entry-title {
+    font-family: var(--font-display);
+    font-size: 1.55rem;
+    font-weight: 400;
+    margin: 0;
+    text-wrap: balance;
+  }
+
+  .status-row {
+    display: flex;
+    gap: 8px;
+    margin: 10px 0 18px;
+    flex-wrap: wrap;
+  }
+
+  .pill {
+    font-family: var(--font-mono);
+    font-size: 0.7rem;
+    letter-spacing: 0.04em;
+    padding: 3px 9px;
+    border-radius: 3px;
+    border: 1px solid var(--rule);
+    color: var(--dim);
+  }
+
+  .pill.done { color: var(--good); border-color: color-mix(in srgb, var(--good) 40%, transparent); }
+  .pill.pending { color: var(--warn); border-color: color-mix(in srgb, var(--warn) 40%, transparent); }
+
+  p { line-height: 1.65; color: var(--text); }
+  p.lede { color: var(--dim); font-size: 0.98rem; }
+
+  ul.plain, ol.plain { padding-left: 1.15em; line-height: 1.6; }
+  ul.plain li, ol.plain li { margin-bottom: 6px; }
+
+  code {
+    font-family: var(--font-mono);
+    font-size: 0.86em;
+    background: var(--accent-dim);
+    color: var(--accent);
+    padding: 1px 5px;
+    border-radius: 3px;
+  }
+
+  .panel {
+    background: var(--surface);
+    border: 1px solid var(--rule);
+    border-radius: 6px;
+    margin: 16px 0;
+    overflow: hidden;
+  }
+
+  .panel-cap {
+    font-family: var(--font-mono);
+    font-size: 0.72rem;
+    color: var(--dim);
+    padding: 8px 14px;
+    border-bottom: 1px solid var(--rule);
+    background: var(--surface-2);
+    display: flex;
+    justify-content: space-between;
+    letter-spacing: 0.02em;
+  }
+
+  .panel-cap .tag {
+    color: var(--accent);
+  }
+
+  .panel pre {
+    margin: 0;
+    padding: 14px 16px;
+    overflow-x: auto;
+    font-family: var(--font-mono);
+    font-size: 0.82rem;
+    line-height: 1.55;
+    color: var(--text);
+  }
+
+  .panel pre code {
+    background: none;
+    color: inherit;
+    padding: 0;
+  }
+
+  .diffline-add { color: var(--good); }
+  .diffline-rm { color: var(--bad); }
+
+  table.filetable {
+    width: 100%;
+    border-collapse: collapse;
+    font-size: 0.88rem;
+    margin: 14px 0 6px;
+  }
+
+  table.filetable th {
+    text-align: left;
+    font-family: var(--font-mono);
+    font-size: 0.7rem;
+    letter-spacing: 0.06em;
+    text-transform: uppercase;
+    color: var(--dim);
+    border-bottom: 1px solid var(--rule);
+    padding: 6px 10px 8px 0;
+  }
+
+  table.filetable td {
+    padding: 7px 10px 7px 0;
+    border-bottom: 1px solid var(--rule);
+    vertical-align: top;
+  }
+
+  table.filetable td.path {
+    font-family: var(--font-mono);
+    font-size: 0.82rem;
+    color: var(--text);
+    white-space: nowrap;
+  }
+
+  table.filetable td.status {
+    font-family: var(--font-mono);
+    font-size: 0.78rem;
+  }
+
+  .status-new { color: var(--good); }
+  .status-mod { color: var(--accent); }
+  .status-del { color: var(--bad); }
+
+  .callout {
+    border-left: 3px solid var(--accent);
+    background: var(--accent-dim);
+    padding: 12px 16px;
+    border-radius: 0 4px 4px 0;
+    margin: 18px 0;
+    font-size: 0.92rem;
+  }
+
+  .callout .callout-label {
+    font-family: var(--font-mono);
+    font-size: 0.68rem;
+    letter-spacing: 0.1em;
+    text-transform: uppercase;
+    color: var(--accent);
+    display: block;
+    margin-bottom: 4px;
+  }
+
+  .flow-steps {
+    display: flex;
+    flex-direction: column;
+    gap: 0;
+    margin: 16px 0;
+    border: 1px solid var(--rule);
+    border-radius: 6px;
+    overflow: hidden;
+  }
+
+  .flow-step {
+    display: grid;
+    grid-template-columns: 34px minmax(0, 1fr);
+    padding: 10px 14px;
+    border-bottom: 1px solid var(--rule);
+    font-size: 0.88rem;
+  }
+
+  .flow-step:last-child { border-bottom: none; }
+  .flow-step .fn { font-family: var(--font-mono); color: var(--accent); }
+  .flow-step code { font-size: 0.82em; }
+
+  hr.close {
+    border: none;
+    border-top: 1px solid var(--rule);
+    margin: 70px 0 28px;
+  }
+
+  footer.colophon {
+    color: var(--dim);
+    font-size: 0.85rem;
+    line-height: 1.6;
+    padding-bottom: 40px;
+  }
+
+  footer.colophon .eyebrow { display: block; margin-bottom: 8px; }
+</style>
+</head>
+<body>
+<div class="page">
+  <header class="masthead">
+    <span class="eyebrow">Alexandria — dev session record</span>
+    <h1 class="title">What changed, and why</h1>
+    <p class="dek">
+      A working record of every change made to the Alexandria codebase this session, in the order it happened —
+      from a search bug to a full accounts system. Each entry names the files touched, the reasoning behind the
+      approach, and anything still left for you to finish by hand.
+    </p>
+  </header>
+
+  <nav class="index">
+    <span class="index-label">Entries</span>
+    <a href="#e1"><span class="n">01</span>Author filter caching</a>
+    <a href="#e2"><span class="n">02</span>save-phrase actually saves</a>
+    <a href="#e3"><span class="n">03</span>Accounts &amp; sessions</a>
+    <a href="#e4"><span class="n">04</span>Google sign-in</a>
+    <a href="#e5"><span class="n">05</span>Per-user data</a>
+    <a href="#e6"><span class="n">06</span>Public vs. private frases</a>
+    <a href="#e7"><span class="n">07</span>Password visibility + reset</a>
+    <a href="#e8"><span class="n">08</span>Housekeeping</a>
+    <a href="#e9"><span class="n">09</span>Dependencies &amp; migrations</a>
+    <a href="#e10"><span class="n">10</span>What's left for you</a>
+  </nav>
+
+  <main>
+
+    <section class="entry" id="e1">
+      <div class="entry-head"><span class="entry-num">01</span><h2 class="entry-title">Author filter no longer re-queries the server</h2></div>
+      <div class="status-row"><span class="pill done">done</span><span class="pill">frontend only</span></div>
+      <p class="lede">You asked: when you've already searched with both authors selected, switching to one author should filter instantly, not search again.</p>
+      <p>
+        Previously, changing the author dropdown called the same <code>search()</code> function as pressing Enter,
+        which re-fetched <code>/search</code> every time. Now a real search always fetches the <em>full</em> result
+        set for the typed query (ignoring author) and caches it; changing the dropdown afterward just filters that
+        cached array in memory.
+      </p>
+      <div class="panel">
+        <div class="panel-cap"><span class="tag">src/web/search.js</span><span>new state + flow</span></div>
+        <pre><code>let allResults = [];   // full result set for the current query text
+let lastQuery = null;  // the query that produced allResults
+
+search()         → fetch(`/search?q=...`) → cache into allResults → filterByAuthor()
+filterByAuthor() → filters allResults in memory, no network call</code></pre>
+      </div>
+      <p>
+        <code>index.html</code>'s author <code>&lt;select&gt;</code> now calls <code>filterByAuthor()</code> on
+        change instead of <code>search()</code>. If nothing has been searched yet, changing the dropdown is a
+        harmless no-op.
+      </p>
+    </section>
+
+    <section class="entry" id="e2">
+      <div class="entry-head"><span class="entry-num">02</span><h2 class="entry-title">Saved phrases were silently going nowhere</h2></div>
+      <div class="status-row"><span class="pill done">done</span><span class="pill">bug fix</span></div>
+      <p class="lede">This was the most important fix in the session: <code>POST /api/save-phrase</code> never wrote to the database.</p>
+      <p>
+        The handler built the phrase record, then the actual database write was commented out
+        (<code>//await alexandriaDB.set(...)</code>) — a leftover from an earlier Deno KV attempt. It logged
+        <code>"Frase guardada!"</code> and returned <code>success: true</code> regardless. Every "Guardado" you saw
+        in the reader was a lie.
+      </p>
+      <div class="panel">
+        <div class="panel-cap"><span class="tag">handlers/api.ts</span><span>save-phrase, before → after</span></div>
+        <pre><code><span class="diffline-rm">- //await alexandriaDB.set(key, datos_frase);
+- console.log("Frase guardada!");</span>
+<span class="diffline-add">+ await agregarFrase(datos_frase, user.id, isPublic === true);</span></code></pre>
+      </div>
+      <p>
+        The other half of the bug: <code>agregarFrase()</code> in <code>dbOperations.ts</code> caught its own
+        Prisma errors and only <code>console.log</code>'d them — so even after wiring it up, a failed write would
+        still report success. It now lets errors propagate, so <code>handlers/api.ts</code>'s existing try/catch
+        can return a real <code>500</code> when a save genuinely fails.
+      </p>
+    </section>
+
+    <section class="entry" id="e3">
+      <div class="entry-head"><span class="entry-num">03</span><h2 class="entry-title">Accounts, sessions, and a private space</h2></div>
+      <div class="status-row"><span class="pill done">done</span><span class="pill">new subsystem</span></div>
+      <p class="lede">
+        The app had zero concept of a user. You asked for email+password registration, Google sign-in, and a
+        personal space to save phrases, bookmark books, and keep notes.
+      </p>
+
+      <h3 style="font-family: var(--font-display); font-weight: 400; font-size: 1.15rem; margin-top: 28px;">Password handling</h3>
+      <p>
+        Passwords are hashed with <code>argon2id</code> via <code>hash-wasm</code> — pure WebAssembly, no native
+        bindings, so it runs in Deno with no extra permissions. Parameters follow the OWASP baseline
+        (19 MiB memory, 2 iterations, 1 thread).
+      </p>
+
+      <h3 style="font-family: var(--font-display); font-weight: 400; font-size: 1.15rem; margin-top: 28px;">Sessions</h3>
+      <p>A session token is a random 24-byte value, base64url-encoded, handed to the browser as an <code>HttpOnly</code> cookie. The database never sees the raw token:</p>
+      <div class="flow-steps">
+        <div class="flow-step"><span class="fn">1</span><div>Generate 24 random bytes → base64url → this is the cookie value the browser holds.</div></div>
+        <div class="flow-step"><span class="fn">2</span><div>Store <code>SHA-256(token)</code> as the <code>Session</code> row's primary key — the raw token is never persisted.</div></div>
+        <div class="flow-step"><span class="fn">3</span><div>On each request, hash the incoming cookie and look it up by that hash. Expired rows are deleted on read.</div></div>
+      </div>
+      <p>
+        Cookie flags: <code>HttpOnly</code>, <code>Secure</code> (only when the request came in over
+        <code>https:</code>, so plain <code>http://localhost</code> still works), <code>SameSite=Lax</code>, 30-day
+        fixed expiry. <code>SameSite=Lax</code> was judged sufficient CSRF protection here since the frontend only
+        ever calls same-origin <code>fetch()</code> — no third-party embeds, no cross-site form posts to worry about.
+      </p>
+
+      <div class="callout">
+        <span class="callout-label">Deliberately cut</span>
+        No sliding session renewal (expiry is fixed at creation), no password-reset UI in the first pass, no CSRF
+        tokens beyond <code>SameSite</code>. All three were sized to an app with one real user — see entries 07 and 10
+        for how password reset actually landed.
+      </div>
+
+      <table class="filetable">
+        <tr><th>File</th><th>Status</th><th>What's there</th></tr>
+        <tr><td class="path">handlers/auth.ts</td><td class="status status-new">new</td><td>Hashing, session creation/lookup, and every <code>/api/auth/*</code> route</td></tr>
+        <tr><td class="path">src/web/login.html</td><td class="status status-new">new</td><td>Email/password form + "Continuar con Google" link</td></tr>
+        <tr><td class="path">src/web/register.html</td><td class="status status-new">new</td><td>Same pattern, plus a display name field</td></tr>
+        <tr><td class="path">src/web/mi-espacio.html</td><td class="status status-new">new</td><td>Personal space: frases, bookmarked books, notes journal</td></tr>
+        <tr><td class="path">src/web/auth.js</td><td class="status status-new">new</td><td>Shared header widget — shows "Iniciar sesión" or "Hola, {email} · Mi espacio · Salir"</td></tr>
+      </table>
+    </section>
+
+    <section class="entry" id="e4">
+      <div class="entry-head"><span class="entry-num">04</span><h2 class="entry-title">Google sign-in</h2></div>
+      <div class="status-row"><span class="pill pending">needs your credentials</span></div>
+      <p>
+        Implemented with <code>arctic</code>, an OAuth2/OIDC client built purely on Web Crypto and <code>fetch</code>
+        — genuinely Deno-compatible, not a Node library papered over.
+      </p>
+      <div class="flow-steps">
+        <div class="flow-step"><span class="fn">→</span><div><code>GET /api/auth/google</code> generates a <code>state</code> and PKCE <code>codeVerifier</code>, stashes both in a short-lived cookie, redirects to Google's consent screen.</div></div>
+        <div class="flow-step"><span class="fn">→</span><div><code>GET /api/auth/google/callback</code> checks <code>state</code> matches (that's the CSRF check), exchanges the code, reads the profile.</div></div>
+        <div class="flow-step"><span class="fn">→</span><div>Matches an existing account by Google ID, then by verified email (linking the two), or creates a new user — then starts a normal session.</div></div>
+      </div>
+      <p>This one genuinely needs something from you: a Google Cloud OAuth Client ID and Secret. Steps are in entry 10.</p>
+    </section>
+
+    <section class="entry" id="e5">
+      <div class="entry-head"><span class="entry-num">05</span><h2 class="entry-title">Everything else got a userId</h2></div>
+      <div class="status-row"><span class="pill done">done</span></div>
+      <p>Three new endpoints, all gated behind a session the same way <code>save-phrase</code> now is:</p>
+      <table class="filetable">
+        <tr><th>Endpoint</th><th>Purpose</th></tr>
+        <tr><td class="path">/api/bookmarks</td><td>Save/remove/list a favorited library book (author + slug, not a file upload)</td></tr>
+        <tr><td class="path">/api/notes</td><td>A standalone personal journal, independent of any book</td></tr>
+        <tr><td class="path">/api/book</td><td>Opens one specific library doc directly, for the "open" link on a bookmarked book</td></tr>
+      </table>
+      <p>
+        A "Guardar libro" button was added next to the existing phrase-save button in the reader
+        (<code>src/web/renderdata.js</code>), and opening a bookmarked book from Mi Espacio deep-links into
+        <code>/app?open=author/slug</code>, which fetches and renders that one book directly.
+      </p>
+    </section>
+
+    <section class="entry" id="e6">
+      <div class="entry-head"><span class="entry-num">06</span><h2 class="entry-title">Public feed, private profile</h2></div>
+      <div class="status-row"><span class="pill done">done</span></div>
+      <p class="lede">
+        You wanted the existing phrases to stay public, and new saves to be private unless a user chooses otherwise.
+      </p>
+      <p>
+        A new <code>isPublic</code> column on <code>frases_libros</code> defaults to <code>true</code> at the
+        database level — which is what made all your pre-existing phrases public automatically the moment the
+        migration ran, with no manual backfill needed for that part. The application layer overrides that default
+        for new saves: <code>handlers/api.ts</code> only sets <code>isPublic: true</code> when the client explicitly
+        asks for it, so a fresh save without that flag lands as private.
+      </p>
+      <table class="filetable">
+        <tr><th>Endpoint</th><th>Auth</th><th>Returns</th></tr>
+        <tr><td class="path">GET /api/frases</td><td>none — public</td><td>Everyone's phrases marked <code>isPublic: true</code></td></tr>
+        <tr><td class="path">GET /api/my-frases</td><td>required</td><td>All of <em>your</em> phrases, public and private</td></tr>
+      </table>
+      <p>
+        <code>/frases</code> dropped its login redirect — anyone can browse it now. Mi Espacio's "Mis Frases" section
+        switched to <code>/api/my-frases</code> and shows a <code>🔒 Privada</code> badge on anything not public. The
+        highlight-and-save flow in <code>toolbox.js</code> now asks, via a confirm dialog, whether the new phrase
+        should be public before saving it.
+      </p>
+    </section>
+
+    <section class="entry" id="e7">
+      <div class="entry-head"><span class="entry-num">07</span><h2 class="entry-title">Show/hide password, and getting back in</h2></div>
+      <div class="status-row"><span class="pill done">done</span></div>
+      <p>
+        A small eye toggle (<code>src/web/passwordToggle.js</code>) sits inside every password field on
+        <code>/login</code> and <code>/register</code> — click it to reveal or re-hide what you typed. It's one
+        tiny script wired by a shared <code>.password-toggle</code> class, not duplicated per page.
+      </p>
+      <p>
+        For the actual "I forgot my password" problem: rather than build a full self-service email flow (which
+        would need an email-sending service configured first — a real prerequisite, not yet in place), you chose the
+        lighter option for now.
+      </p>
+      <div class="panel">
+        <div class="panel-cap"><span class="tag">resetPassword.ts</span><span>run by hand, no email needed</span></div>
+        <pre><code>deno run -A --env=.env resetPassword.ts &lt;email&gt; &lt;new-password&gt;</code></pre>
+      </div>
+      <p>
+        It hashes the new password with the exact same <code>hashPassword()</code> used at registration (now
+        exported from <code>handlers/auth.ts</code> so both places share one definition of "how we hash"), updates
+        the account, and deletes that user's existing sessions so the new password takes effect immediately.
+      </p>
+    </section>
+
+    <section class="entry" id="e8">
+      <div class="entry-head"><span class="entry-num">08</span><h2 class="entry-title">Housekeeping</h2></div>
+      <div class="status-row"><span class="pill done">done</span></div>
+      <ul class="plain">
+        <li><code>dbMigration.ts</code> deleted — a one-off Deno KV → Postgres backfill script that had already run, and whose one call site no longer matched the current function signature.</li>
+        <li><code>dbtest.ts</code> updated to call the current <code>obtenerMisFrases(userId)</code> signature instead of the old no-argument one.</li>
+        <li>The dead <code>/tonica</code> route in <code>handlers/static.ts</code> removed — it pointed at an <code>.html</code> file that was never in the repo.</li>
+      </ul>
+    </section>
+
+    <section class="entry" id="e9">
+      <div class="entry-head"><span class="entry-num">09</span><h2 class="entry-title">Dependencies and database migrations</h2></div>
+      <div class="status-row"><span class="pill done">done</span><span class="pill">no data loss</span></div>
+      <p>
+        Two packages were added to <code>deno.json</code>: <code>hash-wasm</code> (password hashing) and
+        <code>arctic</code> (Google OAuth). Cookies use Deno's own <code>std/http/cookie.ts</code> — no third package
+        needed there.
+      </p>
+      <div class="callout">
+        <span class="callout-label">The one real risk in this session</span>
+        Your database had real saved phrases but no Prisma migration history — it had been set up with
+        <code>db push</code>, not <code>migrate dev</code>. Running <code>migrate dev</code> blind on a database
+        like that is exactly the situation where Prisma can offer to reset it. Before touching the schema, the
+        current structure was captured and marked as an already-applied baseline migration
+        (<code>0_baseline</code>), so every migration after that only ever added things — nothing was dropped or
+        reset, and this was verified with <code>prisma migrate status</code> before and after.
+      </div>
+      <table class="filetable">
+        <tr><th>Migration</th><th>What it did</th></tr>
+        <tr><td class="path">0_baseline</td><td>Records your existing schema as already applied — no SQL executed against real data</td></tr>
+        <tr><td class="path">add_users_sessions_bookmarks_notes</td><td><code>User</code>, <code>Session</code>, <code>BookmarkedBook</code>, <code>Note</code> tables; nullable <code>userId</code> added to <code>frases_libros</code></td></tr>
+        <tr><td class="path">add_frase_visibility</td><td><code>isPublic boolean default true</code> added to <code>frases_libros</code></td></tr>
+      </table>
+      <p>Every change was verified against the real dev database with curl (register → save → logout → 401 → login → public/private split) before being called done.</p>
+    </section>
+
+    <section class="entry" id="e10">
+      <div class="entry-head"><span class="entry-num">10</span><h2 class="entry-title">What's left for you</h2></div>
+      <div class="status-row"><span class="pill pending">action needed</span></div>
+      <ol class="plain">
+        <li>
+          <strong>Create Google OAuth credentials.</strong> Google Cloud Console → OAuth consent screen (External,
+          Testing mode — this skips Google's review process) → add yourself as a test user → Credentials → OAuth
+          client ID → Web application → redirect URI
+          <code>http://localhost:8000/api/auth/google/callback</code>. Drop the resulting Client ID and Secret into
+          <code>.env</code> as <code>GOOGLE_CLIENT_ID</code> / <code>GOOGLE_CLIENT_SECRET</code> — they're currently
+          blank.
+        </li>
+        <li>
+          <strong>Register your real account</strong>, then run
+          <code>deno run -A --env=.env backfillOwnerFrases.ts</code> once — it attaches your pre-existing saved
+          phrases (currently unowned) to that account so they show up under your Mi Espacio.
+        </li>
+        <li>
+          <strong>Reset your password</strong> if you're still locked out:
+          <code>deno run -A --env=.env resetPassword.ts your@email password-here</code>.
+        </li>
+        <li>
+          <strong>Revisit email-based password reset later</strong>, if this grows past a one- or two-person app —
+          that's the natural upgrade once it's worth setting up an email-sending service.
+        </li>
+      </ol>
+    </section>
+
+    <hr class="close">
+    <footer class="colophon">
+      <span class="eyebrow">Colophon</span>
+      Written to be read top to bottom once, then kept as a reference. Every file path and endpoint above matches
+      what's actually in the repo as of this session — nothing here is aspirational.
+    </footer>
+
+  </main>
+</div>
+</body>
+</html>

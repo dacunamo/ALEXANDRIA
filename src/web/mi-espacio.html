@@ -1,0 +1,152 @@
+<!DOCTYPE html>
+<html lang="es">
+
+<head>
+  <meta charset="UTF-8">
+  <meta name="viewport" content="width=device-width, initial-scale=1.0">
+  <title>Alexandria - Mi Espacio</title>
+  <link rel="stylesheet" href="./src/web/mysticF.css">
+  <link rel="icon" type="image/x-icon" href="/src/imgs/sol_acuario.ico">
+</head>
+
+<body>
+  <h1><a href="./">ALEXANDRIA</a></h1>
+  <h2>Mi Espacio</h2>
+  <div id="auth-status" class="auth-status"></div>
+
+  <div class="space-section">
+    <h3>Mis Frases</h3>
+    <div id="frases-container"></div>
+  </div>
+
+  <div class="space-section">
+    <h3>Mis Libros Guardados</h3>
+    <div id="bookmarks-container"></div>
+  </div>
+
+  <div class="space-section">
+    <h3>Mis Pensamientos</h3>
+    <form id="note-form" class="note-form">
+      <textarea id="note-content" placeholder="Escribe un pensamiento..." required></textarea>
+      <button type="submit" class="btn-nav">Guardar pensamiento</button>
+    </form>
+    <div id="notes-container"></div>
+  </div>
+
+  <a href="/app" class="btn-nav">Volver a la biblioteca</a>
+
+  <script src="./src/web/renderdata.js"></script>
+  <script src="./src/web/auth.js"></script>
+  <script>
+    (async () => {
+      const meRes = await fetch("/api/auth/me");
+      if (!meRes.ok) {
+        window.location.href = "/login";
+        return;
+      }
+
+      if (document.getElementById("frases-container")) {
+        loadSavedPhrases("frases-container", "/api/my-frases");
+      }
+      loadBookmarks();
+      loadNotes();
+    })();
+
+    async function loadBookmarks() {
+      const container = document.getElementById("bookmarks-container");
+      try {
+        const res = await fetch("/api/bookmarks");
+        const bookmarks = await res.json();
+
+        container.textContent = "";
+        if (bookmarks.length === 0) {
+          container.textContent = "Aún no has guardado ningún libro.";
+          return;
+        }
+
+        bookmarks.forEach((b) => {
+          const div = document.createElement("div");
+          div.className = "bookmark-item";
+
+          const link = document.createElement("a");
+          link.href = `/app?open=${encodeURIComponent(b.author)}/${encodeURIComponent(b.slug)}`;
+          link.textContent = b.slug;
+
+          div.appendChild(link);
+          container.appendChild(div);
+        });
+      } catch (err) {
+        console.error("Error cargando libros guardados:", err);
+        container.textContent = "Error al cargar los libros guardados.";
+      }
+    }
+
+    async function loadNotes() {
+      const container = document.getElementById("notes-container");
+      try {
+        const res = await fetch("/api/notes");
+        const notes = await res.json();
+
+        container.textContent = "";
+        if (notes.length === 0) {
+          container.textContent = "Aún no has escrito ningún pensamiento.";
+          return;
+        }
+
+        notes.forEach((n) => {
+          const div = document.createElement("div");
+          div.className = "note-item";
+
+          const p = document.createElement("p");
+          p.textContent = n.content;
+
+          const meta = document.createElement("div");
+          meta.className = "note-meta";
+
+          const date = document.createElement("span");
+          date.textContent = new Date(n.createdAt).toLocaleString();
+
+          const deleteBtn = document.createElement("button");
+          deleteBtn.className = "copy-btn";
+          deleteBtn.textContent = "Eliminar";
+          deleteBtn.addEventListener("click", async () => {
+            await fetch(`/api/notes/${n.id}`, { method: "DELETE" });
+            loadNotes();
+          });
+
+          meta.appendChild(date);
+          meta.appendChild(deleteBtn);
+          div.appendChild(p);
+          div.appendChild(meta);
+          container.appendChild(div);
+        });
+      } catch (err) {
+        console.error("Error cargando pensamientos:", err);
+        container.textContent = "Error al cargar los pensamientos.";
+      }
+    }
+
+    document.getElementById("note-form").addEventListener("submit", async (e) => {
+      e.preventDefault();
+      const textarea = document.getElementById("note-content");
+      const content = textarea.value.trim();
+      if (!content) return;
+
+      try {
+        const res = await fetch("/api/notes", {
+          method: "POST",
+          headers: { "Content-Type": "application/json" },
+          body: JSON.stringify({ content }),
+        });
+        if (res.ok) {
+          textarea.value = "";
+          loadNotes();
+        }
+      } catch (err) {
+        console.error("Error guardando el pensamiento:", err);
+      }
+    });
+  </script>
+</body>
+
+</html>
