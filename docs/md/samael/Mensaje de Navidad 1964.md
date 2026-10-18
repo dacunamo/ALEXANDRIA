@@ -498,7 +498,7 @@ Muchos iniciados que lograron crearse los cuerpos existenciales superiores del S
 
 Esos iniciados no pudieron celebrar la navidad del corazón, no lograron encarnar al Ser, a pesar de poseer los cuerpos existenciales superiores, y se convirtieron en Hanasmussianos con doble centro de gravedad.
 
-Es necesario comprender la necesidad de trabajar con los tres factores de la revolución de la Conciencia si es que realmente queremos la Auto-realización a fondo.
+Es necesario comprender la necesidad de trabajar con los tres factores de la revolución de la Conciencia si es que realmente queremos la Autorealización a fondo.
 
 Si excluimos cualquier factor de la revolución de la Conciencia, el resultado es el fracaso.
 
@@ -708,7 +708,7 @@ Cuando practicamos la meditación, nuestra mente es asaltada por muchos recuerdo
 
 Debemos evitar el conflicto entre la atención y la distracción. Existe conflicto entre la distracción y la atención cuando combatimos contra esos asaltantes de la mente. El Yo es el proyector de dichos asaltantes mentales. Donde hay conflicto, no existe quietud ni silencio.
 
-Debemos anular al proyector mediante la auto-observación y la comprensión. Examinad cada imagen, cada recuerdo, cada pensamiento que llegue a la mente, Recordad que todo pensamiento tiene dos polos: el positivo y el negativo.
+Debemos anular al proyector mediante la autoobservación y la comprensión. Examinad cada imagen, cada recuerdo, cada pensamiento que llegue a la mente, Recordad que todo pensamiento tiene dos polos: el positivo y el negativo.
 
 Entrar y salir son dos aspectos de una misma cosa, el comedor y el baño, lo alto y lo bajo, lo agradable y lo desagradable, etc., son siempre los dos polos de una misma cosa.
 
@@ -716,7 +716,7 @@ Examinad los dos polos de cada forma mental que llegue a la mente. Recordad que 
 
 Toda forma mental puede ser eliminada mediante la síntesis. Ejemplo: nos asalta el recuerdo de una novia. ¿Es bella? Pensemos que la belleza es el opuesto de la fealdad y que si en su juventud es bella, en su vejez será fea. Síntesis: no vale la pena pensar en ella, es una ilusión, una flor que se marchitará inevitablemente.
 
-En la India esta auto-observación y estudio de nuestra propia mente es llamada PRATYARA.
+En la India esta autoobservación y estudio de nuestra propia mente es llamada PRATYARA.
 
 Los pájaros-pensamientos deben pasar por el espacio de nuestra propia mente en sucesivo desfile pero sin dejar rastro alguno.
 

@@ -368,7 +368,7 @@ Es mejor cultivar el arte de la música, que perder el tiempo en el batallar de 
 
 La música es la palabra de Dios.
 
-La verdadera música es la música clásica. La música afro-cubana (Guarachas, porros, mambos, cumbias, etc.) sólo sirve para despertar las bajas pasiones animales. Escuchemos siempre con devoción a Beethoven, Liszt, Schubert, Haydn, Mozart, Tchaikovsky, Strauss, Handel, etc.
+La verdadera música es la música clásica. La música afrocubana (Guarachas, porros, mambos, cumbias, etc.) sólo sirve para despertar las bajas pasiones animales. Escuchemos siempre con devoción a Beethoven, Liszt, Schubert, Haydn, Mozart, Tchaikovsky, Strauss, Handel, etc.
 
 #### CAPITULO VI
 
@@ -496,9 +496,9 @@ El hombre es un trío de cuerpo, alma y espíritu. Entre el cuerpo y el espírit
 
 Los grandes clarividentes nos hablan de los siete Chakras, los describen con lujo de detalles; estos Chakras son realmente los sentidos del cuerpo astral. Dichos centros magnéticos se encuentran en íntima correlación con las glándulas de secreción interna.
 
-En el laboratorio del organismo humano existen siete ingredientes sometidos a un triple control nervioso. Los nervios como agentes de la ley del triángulo controlan al septenario glandular. Los tres controles nerviosos diferentes que interactúan entre sí, son los siguientes: Primero el sistema Nervioso cerebro-espinal, agente de las funciones conscientes. Segundo, sistema nervioso gran-simpático, agente de las funciones subconscientes, inconscientes e instintivas. Tercero, sistema para-simpático ó vago, quien colabora frenando las funciones instintivas, bajo la dirección de la mente.
+En el laboratorio del organismo humano existen siete ingredientes sometidos a un triple control nervioso. Los nervios como agentes de la ley del triángulo controlan al septenario glandular. Los tres controles nerviosos diferentes que interactúan entre sí, son los siguientes: Primero el sistema Nervioso cerebroespinal, agente de las funciones conscientes. Segundo, sistema nervioso gran-simpático, agente de las funciones subconscientes, inconscientes e instintivas. Tercero, sistema parasimpático ó vago, quien colabora frenando las funciones instintivas, bajo la dirección de la mente.
 
-El sistema cerebro-espinal, es el trono del espíritu divino. El sistema gran-simpático es el vehículo del astral; el vago o para-simpático obedece las órdenes de la mente. Tres rayos y siete centros magnéticos son la base para cualquier cosmos, tanto en lo infinitamente grande como en lo infinitamente pequeño.
+El sistema cerebroespinal, es el trono del espíritu divino. El sistema gran-simpático es el vehículo del astral; el vago o parasimpático obedece las órdenes de la mente. Tres rayos y siete centros magnéticos son la base para cualquier cosmos, tanto en lo infinitamente grande como en lo infinitamente pequeño.
 
 Las siete glándulas más Importantes del organismo humano, constituyen los siete laboratorios controlados por la ley del triángulo. Cada una de estas glándulas tiene su exponente en un Chakra del organismo; cada uno de los siete Chakras se halla radicado en íntima correlación con las siete iglesias de la médula espinal; las siete iglesias de la espina dorsal controlan los siete chakras del sistema nervioso gran-simpático.
 

@@ -24,7 +24,7 @@ Pero para lograr el éxito en este empeño, debemos disponer del conocimiento de
 
 Sólo con la *Muerte* adviene lo nuevo. Los temas que se incluyen en este libro nos mostrarán la manera única de llevar a término esa *PURIFICACIÓN*, nos permitirán llegar algún día a poseer la verdadera Sabiduría Universal de toda Perfección, siempre y cuando pongamos en práctica, desde ahora mismo, el *Conocimiento* que nos ofrece la Obra de **SAMAEL AUN WEOR**, que nos ofrece esta **Didáctica del Auto-Conocimiento.**
 
-Para ello tenemos que enfrentarnos con mente nueva a la realidad de los hechos, libres de las trabas del escepticismo materialista que tiene su origen en la mentira de aquel que se auto-estima desmesuradamente.
+Para ello tenemos que enfrentarnos con mente nueva a la realidad de los hechos, libres de las trabas del escepticismo materialista que tiene su origen en la mentira de aquel que se autoestima desmesuradamente.
 
 La cruda realidad de los hechos es que los eventos pueden estarse repitiendo una y otra vez, pero lo que nosotros tenemos que modificar es nuestra actitud frente a tales circunstancias.
 
@@ -118,7 +118,7 @@ Ante todo, ¿qué debemos hacer? Hay que comprender el Trabajo que debemos hacer
 
 Es claro que cuando se comience a comprender este Trabajo, se comienza a dejar de ser hombre mecánico que sirve a los fines de la Naturaleza. Y esto va en contra de nuestra Auto-Realización Intima. Ustedes pues, empiezan a comprender el significado ahora de todo cuanto digo. Si piensan ahora en el significado de todo cuanto se les enseña aquí por la vía del esfuerzo propio, empezando por la observación de sí mismo, verán que en el lado práctico esotérico todo se relaciona íntimamente con la transformación de las energías y lo que resulta naturalmente de las mismas.
 
-El trabajo por ejemplo, de las reacciones negativas sobre los estados de ánimo enojosos, sobre la cuestión ésta de la identificación, sobre la auto-consideración, sobre los YOES sucesivos, sobre la mentira, sobre la auto-justificación, sobre la disculpa, sobre los estados inconscientes en que nos encontramos, se relacionan con la transformación de las Impresiones.
+El trabajo por ejemplo, de las reacciones negativas sobre los estados de ánimo enojosos, sobre la cuestión ésta de la identificación, sobre la auto-consideración, sobre los YOES sucesivos, sobre la mentira, sobre la autojustificación, sobre la disculpa, sobre los estados inconscientes en que nos encontramos, se relacionan con la transformación de las Impresiones.
 
 Así convendrán que en cierto modo el Trabajo en sí, se compara a la decisión en el sentido de que en una transformación. Es necesario, pues, que reflexionemos en esto, comprendamos lo que es el Primer Choque Consciente. Es necesario formar un elemento de cambio en el lugar de entrada de las Impresiones. ¡No lo olviden!
 
@@ -164,7 +164,7 @@ Así pues, conviene que mediante la Comprensión transformemos las Impresiones q
 
 Impresiones de un mundo que llamamos exterior y que realmente no es tan exterior como se cree. Conviene, pues, que nosotros transformemos las Impresiones mediante la Comprensión. Si alguien nos saluda, nos alaba, ¿cómo transformaríamos la Vanidad que tal o cual adulador podría provocar en nosotros? Obviamente las alabanzas, las adulaciones, no son más que Impresiones que llegan a la Mente y ésta reacciona en forma de Vanidad. Pero si se transforman esas Impresiones la Vanidad se hace imposible. ¿Cómo se transformarían pues, las palabras de un adulador? MEDIANTE LA COMPRENSIÓN.
 
-Cuando uno comprende realmente que no es mas que una infinitesimal criatura en un rincón del Universo, de hecho transforma por sí mismo tales Impresiones de alabanza, de lisonja, en algo distinto. Convierte a tales Impresiones en lo que son; polvo, polvareda cósmica. Porque comprende su propia posición. Sabemos que nuestro planeta Tierra es un grano de arena en el Espacio. Pensemos que en la Galaxia en que vivimos, compuesta por millones de mundos, ¿qué es la Tierra? Es una partícula de polvo en el infinito y nosotros, dijéramos, somos unos micro-organismos dentro de esa partícula. ¿Entonces qué? Si nosotros comprendiéramos esto cuando nos adulan, haríamos una transformación de las Impresiones que se relacionan con la lisonja y la adulación o alabanza, y no reaccionaríamos como resultado en forma de Orgullo, ¿verdad? Tanto más reflexionemos en esto, vemos más y más la necesidad de una transformación completa de las Impresiones.
+Cuando uno comprende realmente que no es mas que una infinitesimal criatura en un rincón del Universo, de hecho transforma por sí mismo tales Impresiones de alabanza, de lisonja, en algo distinto. Convierte a tales Impresiones en lo que son; polvo, polvareda cósmica. Porque comprende su propia posición. Sabemos que nuestro planeta Tierra es un grano de arena en el Espacio. Pensemos que en la Galaxia en que vivimos, compuesta por millones de mundos, ¿qué es la Tierra? Es una partícula de polvo en el infinito y nosotros, dijéramos, somos unos microorganismos dentro de esa partícula. ¿Entonces qué? Si nosotros comprendiéramos esto cuando nos adulan, haríamos una transformación de las Impresiones que se relacionan con la lisonja y la adulación o alabanza, y no reaccionaríamos como resultado en forma de Orgullo, ¿verdad? Tanto más reflexionemos en esto, vemos más y más la necesidad de una transformación completa de las Impresiones.
 
 Todo lo que vemos externo es interior. Si no trabajamos con lo interior vamos por el camino del error, porque no modificamos entonces nuestros hábitos. Si queremos ser distintos necesitamos transformarnos Íntegramente. Y si queremos transformarnos, debemos empezar por transformar las Impresiones animales, bestiales, en elementos de la devoción. Entonces surge en nosotros la transformación sexual, la transmutación.
 
@@ -334,7 +334,7 @@ El Vacío Iluminador sólo es posible mediante el gran salto y a condición de h
 
 En aquella época aún no había pasado yo por la Aniquilación Budhista, y, obviamente, a medida que me acercaba a la Gran Realidad, la Conciencia se expandía en forma desmesurada. Es obvio que en esta situación, no habiendo pasado por la Aniquilación Budhista, sentí indecible terror, motivo por el cual regresé a mi Universo de la Relatividad de Einstein. Repito, tres veces experimenté pues el Vacío Iluminador.
 
-Existe una Intuición de tipo trascendental, porque en el terreno de la Intuición, o en el Mundo de la Intuicionalidad, hay distintos grados de Intuición. Incuestionablemente, el más elevado grado Intuicional es el de las mentes filosófico-religiosas o filosófico-místicas, es el tipo de Intuición que corresponde al Prajna Paramita.
+Existe una Intuición de tipo trascendental, porque en el terreno de la Intuición, o en el Mundo de la Intuicionalidad, hay distintos grados de Intuición. Incuestionablemente, el más elevado grado Intuicional es el de las mentes filosófico-religiosas o filosóficomísticas, es el tipo de Intuición que corresponde al Prajna Paramita.
 
 Tal facultad pues, me permitió pasar más allá del Mundo del Vacío Iluminador, a la Gran Realidad.
 
@@ -528,7 +528,7 @@ Cuando descubrí que había por ahí un demonio muy perverso que sentía ira y q
 
 Estamos hablando sí, estamos hablando, pero tal vez, ¿qué palabras estoy diciendo? Así que debemos estar alertas con nuestras palabras. Tenemos emoción sí, tenemos. ¿Qué clase de emoción? Tal vez estamos emocionados por algún tango cuando escuchamos las canciones de Carlos Gardel. ¿Qué clase de emociones tenemos?, ¿Son buenas?, ¿Son malas?, ¿Serán emociones altas o, simplemente inferiores? Eso de salir en una fiesta movidos por emociones inferiores, bailando algo meramente profano ¿qué está indicando?
 
-De manera que en los hechos de la vida práctica debemos descubrir las emociones inferiores. Estas acusan, indican, YOES emocionalmente inferiores que hay que desintegrar. Si nosotros no extirpamos, no hacemos sangrar con el cuchillo de la auto-critica las emociones inferiores, no será posible que se desarrolle en nosotros el Centro Emocional Superior que tan necesario es, precisamente, para recibir los mensajes que vienen de los mundos superiores. Así que es en la vida donde debemos Auto-Descubrirnos, tenemos que estar acechando nuestras propias palabras, nuestros propios pensamientos, nuestras propias ideas.
+De manera que en los hechos de la vida práctica debemos descubrir las emociones inferiores. Estas acusan, indican, YOES emocionalmente inferiores que hay que desintegrar. Si nosotros no extirpamos, no hacemos sangrar con el cuchillo de la autocritica las emociones inferiores, no será posible que se desarrolle en nosotros el Centro Emocional Superior que tan necesario es, precisamente, para recibir los mensajes que vienen de los mundos superiores. Así que es en la vida donde debemos Auto-Descubrirnos, tenemos que estar acechando nuestras propias palabras, nuestros propios pensamientos, nuestras propias ideas.
 
 Que de pronto llega la Mente a un pensamiento lujurioso, una escena morbosa, ¿ustedes creen, que habrá llegado así porque sí?, ¿Qué indica esto? No hay duda que tras ese cine nefasto de la Mente, tras de esa procesión de formas morbosas, algún YO de la lujuria está en actividad. Si hay YOES de lujuria y se apoderan de los rollos esos que almacenamos en el cerebro, cuadros de recuerdos, y de formas pasionarias, luego proyecta el cine tales rollos sobre la pantalla del entendimiento. Si uno se identifica con esas escenas morbosas fortifica también a los YOES. Así que si en un instante de esos somos asaltados por pensamientos de esa clase se hace indispensable invocar a la Divina Kundalini Shakti para que con su flamígero poder extraordinario, reduzca a polvo a tal YO.
 
@@ -542,7 +542,7 @@ La Conciencia que ha tomado posesión de sí misma es una Conciencia libre, una 
 
 El día que ustedes hayan tomado, dijéramos, Conciencia iluminada, el día en que ustedes se hayan hecho libres de verdad, ese día también habrán cristalizado eso que se llama Alma y serán todo Alma. Hasta sus cuerpos físicos se volverán Alma, estarán cargados de atributos y poderes cósmicos, poderes que divinizan.
 
-Les he enseñado hoy, pues, una Didáctica práctica a través de una Dialéctica definitiva. Y en este preciso instante vamos a entrar en Meditación. Pero antes, es necesario saber sobre qué vamos a trabajar, de lo contrarío no tendría sentido lo que vamos a hacer. Como quiera que ustedes son personas que luchan por el auto-descubrimiento, es obvio que estarán trabajando sobre tal o cual error psicológico. ¿Hay alguno de ustedes que todavía no sepa sobre lo que va a Trabajar? ¿Es posible que exista aquí en este grupo algún hermano que no esté ocupado en desintegrar algún defecto? Si así fuere, me gustaría conocerlo. ¿Cuál de ellos?
+Les he enseñado hoy, pues, una Didáctica práctica a través de una Dialéctica definitiva. Y en este preciso instante vamos a entrar en Meditación. Pero antes, es necesario saber sobre qué vamos a trabajar, de lo contrarío no tendría sentido lo que vamos a hacer. Como quiera que ustedes son personas que luchan por el autodescubrimiento, es obvio que estarán trabajando sobre tal o cual error psicológico. ¿Hay alguno de ustedes que todavía no sepa sobre lo que va a Trabajar? ¿Es posible que exista aquí en este grupo algún hermano que no esté ocupado en desintegrar algún defecto? Si así fuere, me gustaría conocerlo. ¿Cuál de ellos?
 
 V.M.- ¿Sobre cuál estás trabajando tú?
 
@@ -620,7 +620,7 @@ P.- Usted nos habla sobre el desorden de la casa. El Maestro G. -habla sobre el 
 
 V.M.- Pues, francamente eso de tal «Mayordomo» tan citado por Nicoll, y por G. y por Ouspensky, pues me parece una tontería. No tiene ningún valor. Por mi parte, jamás, o mejor dicho, éste que está aquí dentro que disolvió el Ego, con sinceridad, nunca usó eso del sistema del «Mayordomo».
 
-Un día me decía un amigo que tenia una fabrica de pantalones por allá en El Salvador: «Maestro, si yo desintegro el Yo útil que hace pantalones en mi fábrica, entonces, ¿quién va a seguir haciendo pantalones?, ¿Va a fracasar mi fábrica?» No te preocupes -le dije- buen amigo, si tú desintegras ese YO, una parte del *Ser* correspondiente a toda clase de artes, se encargará de la labor de hacer pantalones. Y lo hará mejores que tú. Mi amigo se mostró satisfecho y continuó a su cargo.
+Un día me decía un amigo que tenia una fabrica de pantalones por allá en El Salvador: «Maestro, si yo desintegro el Yo útil que hace pantalones en mi fábrica, entonces, ¿quién va a seguir haciendo pantalones?, ¿Va a fracasar mi fábrica?» No te preocupes -le dije-buen amigo, si tú desintegras ese YO, una parte del *Ser* correspondiente a toda clase de artes, se encargará de la labor de hacer pantalones. Y lo hará mejores que tú. Mi amigo se mostró satisfecho y continuó a su cargo.
 
 Los YOES buenos hacen buenas obras, pero no saben hacer buenas obras. Hacen el bien cuando no se debe hacer. Le dan una limosna a un marihuanero para que vaya a comprar más marihuana, le dan limosnas a un borracho para que siga emborrachándose, le dan limosna a un rico que pide limosna, y cosas por el estilo. Los YOES del bien no saben hacer el bien.
 
@@ -694,7 +694,7 @@ Hay instantes raros en la vida, muy raros, en los que uno logra ver su propia ri
 
 Vale la pena que nosotros seamos sinceros con nosotros mismos. Se trata de auto-conocernos, si es que de verdad queremos nosotros hacer manifiesto al SER que llevamos dentro, si es que de verdad aspiramos nosotros a la realidad y nada mas que la realidad, sin un átomo de fantasía. Necesitamos el valor de desgarrarnos, de romper esa persona fantasía que no existe. Los demás saben que no existe, pero que uno cree que existe.
 
-Claro que se necesita utilizar el bisturí de la auto-crítica, de lo contrario no sería posible la autocrítica. Si procedemos así, lograremos romper el Yo fantasía, lograremos destrozarlo, reducirlo a cenizas, a polvareda cósmica. Objetivo: descubrir el SER que mora en nuestras profundidades; Pero el Yo fantasía eclipsa al SER, lo mantiene a uno en sí mismo tan fascinado con lo que no es real, que no lo deja a uno descubrir al SER.
+Claro que se necesita utilizar el bisturí de la autocrítica, de lo contrario no sería posible la autocrítica. Si procedemos así, lograremos romper el Yo fantasía, lograremos destrozarlo, reducirlo a cenizas, a polvareda cósmica. Objetivo: descubrir el SER que mora en nuestras profundidades; Pero el Yo fantasía eclipsa al SER, lo mantiene a uno en sí mismo tan fascinado con lo que no es real, que no lo deja a uno descubrir al SER.
 
 No olviden ustedes, mis queridos hermanos, que el Reino de los Cielos está dentro de nosotros mismos, que tiene distintos niveles, y también el Reino de la Tierra está aquí en nosotros y el nivel más alto del Reino de la Tierra no le da por los pies al más pequeño que vive en los Cielos. Pero, ¿cómo poder salir de los distintos niveles de la Tierra, para entrar siquiera en el Reino inferior del Reino de los Cielos? La primera escala del Reino de los Cielos dentro de nosotros está, y no fuera de nosotros. El de la Tierra tiene distintos niveles, unos mas elevados, otros más refinados; pero el más refinado de los niveles de la Tierra no es el Reino de los Cielos.
 
@@ -704,7 +704,7 @@ Para pasar del más alto escalón del Reino de la Tierra al más bajo escalón d
 
 Obviamente la fantasía es la que tiene a la humanidad sumida en el estado de inconsciencia en que se encuentra. Mientras exista la fantasía, la Conciencia continuará dormida: hay que destruir la fantasía.
 
-En vez de la fantasía debemos tener nosotros la Memoria del Trabajo. Así que el que practique el ejercicio retrospectivo para revisar su vida, acaba con la memoria mecánica y establece dentro de sí mismo la Memoria Consciente, la Memoria del Trabajo. Así que con el ejercicio retrospectivo podemos recordar las vidas anteriores, acabamos con la fantasía; de este modo, la Memoria Trabajo y la Imaginación Consciente nos permitirán meternos por el camino del auto-descubrimiento. Hasta aquí mis palabras, si alguno de ustedes tiene algo que preguntar, puede hacerlo con la más absoluta libertad.
+En vez de la fantasía debemos tener nosotros la Memoria del Trabajo. Así que el que practique el ejercicio retrospectivo para revisar su vida, acaba con la memoria mecánica y establece dentro de sí mismo la Memoria Consciente, la Memoria del Trabajo. Así que con el ejercicio retrospectivo podemos recordar las vidas anteriores, acabamos con la fantasía; de este modo, la Memoria Trabajo y la Imaginación Consciente nos permitirán meternos por el camino del autodescubrimiento. Hasta aquí mis palabras, si alguno de ustedes tiene algo que preguntar, puede hacerlo con la más absoluta libertad.
 
 P.- Maestro, ¿cuales podrían ser los mejores ejercicios para desarrollar bien la Glándula -Pineal?
 
@@ -766,7 +766,7 @@ Como les decía, el verdadero iluminado no tiene sueños, los sueños son para l
 
 ¿Qué diremos nosotros aquí sobre los Tres Alimentos? Ya expliqué como nos alimentamos, cual es el primer alimento. No pienso referirme a nada de eso. Ya hablamos también sobre el segundo alimento que es la respiración, más importante que aquel que va; al estómago. Pero hay un tercer alimento que les dije a ustedes que es el de las IMPRESIONES. Nadie puede vivir sin impresiones siquiera un minuto. Ustedes me están escuchando aquí, yo estoy rascándome y a sus mentes está llegando una serie de impresiones. Ven una figura humana vestida con una Vestidura Sagrada de la Orden de los Caballeros del Santo Grial. Esto llega pues a través de las impresiones o por medio de impresiones, todo esto son impresiones para ustedes.
 
-Desgraciadamente el ser humano es negativo. ¿Qué le dirían ustedes, por-ejemplo, ahora que estamos en este salón, si les abriéramos la puerta aquí a unos ladrones para que entraran? A ustedes, hermanos que nos acompañan en esta plática, ¿les parecería correcto que abriera la puerta para que entrara la gente, qué sucedería? Sin embargo, no hacemos lo mismo con las impresiones, le abrimos las puertas a todas las impresiones negativas del mundo.
+Desgraciadamente el ser humano es negativo. ¿Qué le dirían ustedes, porejemplo, ahora que estamos en este salón, si les abriéramos la puerta aquí a unos ladrones para que entraran? A ustedes, hermanos que nos acompañan en esta plática, ¿les parecería correcto que abriera la puerta para que entrara la gente, qué sucedería? Sin embargo, no hacemos lo mismo con las impresiones, le abrimos las puertas a todas las impresiones negativas del mundo.
 
 Estas penetran en nuestra Psiquis y hacen desastres allá dentro, se transforman en Agregados Psíquicos y desarrollan en nosotros el Centro Emocional Negativo y, por último, nos llenan de lodo. ¿Será correcto eso?, ¿Es correcto que una persona, por ejemplo, que esté llena de impresiones negativas que emanan del Centro Emocional Negativo, tenga cabida entre nosotros, que le abramos las puertas a todas las impresiones negativas de esa persona?
 
@@ -880,7 +880,7 @@ Concluida esa labor descendí nuevamente al Mundo Astral, penetré dentro del Cu
 
 Así pues, pasaron muchos años sin volver jamás. Confieso sin embargo, porque no puedo ser falso conmigo mismo, que una vez dieron una película sobre el fin del mundo de Miguel de Nostradamus. Bueno, dije, ésta no debe ser mala, se trata de Nostradamus, sobre los tiempos del fin, y fui. Se trataba de Nostradamus y de sus centurias, no sé si ustedes conocen algo sobre el particular. La encontré muy sana, pero tampoco se me reprendió en esa ocasión sobre la película que fui a ver. Y no me atreví a volver, pues de pronto va y me jalan las orejas por estar metiéndome en camisas de once varas.
 
-De manera pues que así son esas películas a «go-go» o esas de mucha lujuria o erotismo. Yo jamás volví a eso, la única excepción fue la de Nostradamus. De todas maneras, reconozco que es peligroso entrar en esos antros porque hay multitud de larvas que no son más que Representaciones, formas mentales de personas, de bandidos; es decir, de todo aquello que han visto en la pantalla. Así que en nombre de la verdad les digo a ustedes que una cosa son los Agregados Psicológicos y otra las Representaciones.
+De manera pues que así son esas películas a «gogo» o esas de mucha lujuria o erotismo. Yo jamás volví a eso, la única excepción fue la de Nostradamus. De todas maneras, reconozco que es peligroso entrar en esos antros porque hay multitud de larvas que no son más que Representaciones, formas mentales de personas, de bandidos; es decir, de todo aquello que han visto en la pantalla. Así que en nombre de la verdad les digo a ustedes que una cosa son los Agregados Psicológicos y otra las Representaciones.
 
 Los difuntos, por lo común, pierden mucho tiempo en el Devachan. No les puedo negar a ustedes que el Devachan sea un lugar de felicidad, delicias y felicidad, pero las figuras que hacen agradable la vida en el Devachan a los difuntos son meras representaciones vivientes de sus familiares, parientes, de sus amigos que dejaron en la Tierra. En una palabra, las formas del Devachan son Representaciones o Efigies vivientes. Resultan de naturaleza insólita, por eso digo que pierden mucho tiempo en el Devachan, pero son felices en esa parte, se sienten acompañados de los seres queridos que dejaron en la Tierra. No se dan cuenta ni en forma remota, que ese mundo de felicidad son meras Efigies mentales. Si se dieran cuenta pues, perderían todo el Devachan.
 
@@ -1262,7 +1262,7 @@ Así que vale la pena poseerla, más, ¿cómo llegaría uno a poseer su Alma7 Pu
 
 Si nosotros no logramos desintegrar los Agregados Psíquicos, viva personificación de nuestros defectos de tipo psicológico, perdemos el Alma.
 
-¿De que serviría –dice Jesús el Cristo- si un hombre adquiere todos los tesoros del mundo, pero pierde su Alma? De nada le sirve. ¿Es posible perder su Alma? Sí es posible. Quien ingresa a los mundos infiernos pierde su Alma, eso es obvio.
+¿De que serviría –dice Jesús el Cristo-si un hombre adquiere todos los tesoros del mundo, pero pierde su Alma? De nada le sirve. ¿Es posible perder su Alma? Sí es posible. Quien ingresa a los mundos infiernos pierde su Alma, eso es obvio.
 
 Se dice perder ese tesoro. ¿Habría alguna forma para no perderlo? Sí, repito, cristalizándola en sí mismo, aquí y ahora.
 
@@ -1374,9 +1374,9 @@ Nadie podría gozar de la Iluminación si no posee al BODHISITA. Y nadie podría
 
 Así que, mis queridos, necesitamos trabajar sobre sí mismos, si es que queremos poseer eso que se llama Alma. “En paciencia poseeréis vuestras Almas. Así está escrito en el Evangelio del Señor.
 
-Obviamente se necesita una Didáctica para poder aniquilar los Agregados Psíquicos. Incuestionablemente hemos de empezar por la Auto-observación Psicológica. Cuando uno admite que tiene una Psicología individual, particular, propia, nos proponemos Auto-observarnos en relación con las amistades, en la calle, en el Templo, en la casa, en el trabajo, en el campo, etc., donde nuestros defectos psicológicos afloren. Si nosotros nos Auto-Observamos en forma continua, podremos verlos. Defecto descubierto debe ser abierto con el bisturí de la auto-crítica para ver que es lo que tiene. En vez de estar nosotros criticando vidas ajenas; tenemos que auto-criticarnos.
+Obviamente se necesita una Didáctica para poder aniquilar los Agregados Psíquicos. Incuestionablemente hemos de empezar por la Autoobservación Psicológica. Cuando uno admite que tiene una Psicología individual, particular, propia, nos proponemos Auto-observarnos en relación con las amistades, en la calle, en el Templo, en la casa, en el trabajo, en el campo, etc., donde nuestros defectos psicológicos afloren. Si nosotros nos Auto-Observamos en forma continua, podremos verlos. Defecto descubierto debe ser abierto con el bisturí de la autocrítica para ver que es lo que tiene. En vez de estar nosotros criticando vidas ajenas; tenemos que auto-criticarnos.
 
-Cuando hemos encontrado algún defecto en sí mismos, debemos analizarlo cuidadosamente, abrirlo, repito, con el bisturí de la auto-critica. Esto es posible a base de la «Auto-Reflexión Evidente del Ser» en Meditación de fondo. Una vez comprendido íntegramente el defecto en cuestión, entonces debemos desintegrarlo atómicamente.
+Cuando hemos encontrado algún defecto en sí mismos, debemos analizarlo cuidadosamente, abrirlo, repito, con el bisturí de la autocritica. Esto es posible a base de la «Auto-Reflexión Evidente del Ser» en Meditación de fondo. Una vez comprendido íntegramente el defecto en cuestión, entonces debemos desintegrarlo atómicamente.
 
 La Mente por sí sola no puede alterar radicalmente ningún defecto, puede pasarlo de un nivel a otro del entendimiento, esconderlo de sí misma o de los demás, justificado o condenarlo, buscarle evasivas, etc., más nunca alterarlo radicalmente.
 
@@ -1498,7 +1498,7 @@ Así pues existen otros sentidos en nosotros que son de perfección pero que se 
 
 En el mundo hay muchas ideologías, en el mundo hay muchas creencias y cada cual es libre de creer en lo que le da la gana pero la ÚNICA fuerza que tiene autoridad para transformarnos, fue la que nos creó, la que nos puso sobre el tapete de la existencia, me refiero en forma enfática a la Fuerza Sexual.
 
-Aprender a manejar esa Energía maravillosa del Sexo significa ser amo de la Creación, cuando el Esperma Sagrado se TRANSFORMA en energía, se provocan cambios psico-somáticos extraordinarios.
+Aprender a manejar esa Energía maravillosa del Sexo significa ser amo de la Creación, cuando el Esperma Sagrado se TRANSFORMA en energía, se provocan cambios psicosomáticos extraordinarios.
 
 Bien sabemos nosotros lo que son esos vasos hormonales de nuestras gónadas, como trabajan, como pasan las hormonas de vaso en vaso, como a lo largo de los cordones llega por último hasta la Próstata. Bien sabemos lo valiosa que es la Próstata, ahí se producen las más grandes transformaciones de la Entidad del Semen. Y las hormonas, por último, entran en el torrente sanguíneo. La palabra HORMONA viene de una raíz griega que significa, «ANSIA DE SER, FUERZA DE SER».
 
@@ -1517,6 +1517,8 @@ Así pues, desde un punto de vista revolucionario, nosotros podemos convertirnos
 ## CON LA MUERTE SE MATA LA MUERTE POR TODA UNA ETERNIDAD
 
 **SAMAEL AUN WEOR**, filósofo, antropólogo, esoterista y psicólogo contemporáneo, quien paralelamente al casi medio centenar de Obras escritas a lo largo de su dilatada labor docente, como *máxima figura del Movimiento Gnóstico Internacional*, ha dejado testimonio del carácter revolucionario de su Enseñanza en un sinfín de conferencias y cursos dictados allí donde su presencia era anhelada por aquellas personas ansiosas de escapar a la Luz.
+
+![Imagen 1](Didactica del Autoconocimiento/Didactica del Autoconocimiento - 001 - TODA UNA ETERNIDAD.jpeg)
 
 El Maestro era la Luz en el Camino. SAMAEL AUN WEOR sigue siendo la antorcha que ha de alumbrarnos la Senda de la Revolución de la Conciencia hacia una nueva Edad de Oro.
 

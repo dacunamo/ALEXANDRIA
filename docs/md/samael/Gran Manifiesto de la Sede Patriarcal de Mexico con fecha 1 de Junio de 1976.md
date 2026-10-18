@@ -74,7 +74,7 @@ En modo alguno la Sede Patriarcal de México, podría autorizar marcha hacia atr
 
 Toda marcha hacia atrás es de tipo reaccionario, y nosotros todos incluyendo al Maestro Gargha Cuichines somos revolucionarias en un ciento por ciento.
 
-No podría concebir y hasta me parecería incongruente el hecho de que a espaldas de la SEDE PATRIARCAL DE MÉXICO, se iniciará un regreso hacia los anos 65-70; etapas incipientes de nuestra organización ya superadas de hecho, con las labores de los hermanos del SUMUN SU-PREMUN SANCTUARIUN.
+No podría concebir y hasta me parecería incongruente el hecho de que a espaldas de la SEDE PATRIARCAL DE MÉXICO, se iniciará un regreso hacia los anos 65-70; etapas incipientes de nuestra organización ya superadas de hecho, con las labores de los hermanos del SUMUN SUPREMUN SANCTUARIUN.
 
 El Supremo Consejo Gnóstico Ejecutivo Internacional, está organizado de la siguiente manera:
 

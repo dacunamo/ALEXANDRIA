@@ -40,7 +40,7 @@ La mujer es el pensamiento más bello del Creador, hecho carne. La mujer es la p
 
 La música viene de los Mundos Superiores. La música tiene el poder de despertar la conciencia en los mundos superiores. La música es el verbo de DIOS.
 
-Es mejor cultivar el arte de la música, que perder el tiempo en el batallar de los razonamientos. La música es la palabra de DIOS. La verdadera música es la música clásica. La música afro-cubana (guarachas, porros, mambos, cumbias, etc.) , sólo sirven para despertar las bajas pasiones animales. Escuchemos siempre con devoción a Beethoven, Listz, Schubert, Haydn, Mozart, Tchaikovsky, Strauss, Handel, etc.
+Es mejor cultivar el arte de la música, que perder el tiempo en el batallar de los razonamientos. La música es la palabra de DIOS. La verdadera música es la música clásica. La música afrocubana (guarachas, porros, mambos, cumbias, etc.) , sólo sirven para despertar las bajas pasiones animales. Escuchemos siempre con devoción a Beethoven, Listz, Schubert, Haydn, Mozart, Tchaikovsky, Strauss, Handel, etc.
 
 ## CAPÍTULO VI
 

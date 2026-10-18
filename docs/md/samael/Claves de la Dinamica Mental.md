@@ -204,7 +204,7 @@ Antes de que se realizara el CONGREDO DE GUADALAJARA (Octubre 27 a Noviembre 4 d
 
 Cómo es esto? El Maestro Samael sabía que iba a ser recibido en el aeropuerto con todo el amor que todos nosotros le promulgamos, que iba a estar la BANDA DEL ESTADO DE JALISCO, que iban a estar las máximas autoridades, que llegaba en un jet ejecutivo, que iban a tocar el himno del Avatara y el Himno de México, la bandera del Movimiento Gnóstico enarbolada en lo más alto, y que iba a recibir la expresión de cariño de los que nos encontrábamos allí presentes, la confianza, la alegría, el anhelo de dialogar, el anhelo de al menos tocarlo a él o de palparlo.
 
-Entonces el Maestro Samael comenzaba a prepararse: Por qué voy a permitir que lleguen a nacer (re-nacer los gérmenes de los Yoes? - Porque a pesar de que un Maestro haya muerto en su totalidad, siempre el Yo puede volver a nacer, a renacer, según decía el Maestro Samael: “como el ave Fénix que renace de sus propias cenizas”-. Entonces un maestro, como explicaba El, también tiene que estar atento para que no vuelva a surgir nuevamente algún agregado psíquico....
+Entonces el Maestro Samael comenzaba a prepararse: Por qué voy a permitir que lleguen a nacer (renacer los gérmenes de los Yoes? - Porque a pesar de que un Maestro haya muerto en su totalidad, siempre el Yo puede volver a nacer, a renacer, según decía el Maestro Samael: “como el ave Fénix que renace de sus propias cenizas”-. Entonces un maestro, como explicaba El, también tiene que estar atento para que no vuelva a surgir nuevamente algún agregado psíquico....
 
 Así fue que él empezó a prepararse u mes antes... Si siento orgullo porque me están tocando el Himno del Avatara, y una Banda, y la policía, y los motociclistas..... A quién le hacen el homenaje? A esta persona física, o a mi Real Ser interior profundo? Por qué estoy triunfando? Por qué todo el pueblo Gnóstico me quiere? Por qué me siguen a mí? NO ES POR ESTA FORMA FISICA, SINO POR LO QUE SE HA MANIFESTADO A TRAVES DE ESTE CUERPO!
 
@@ -216,7 +216,7 @@ Después, el segundo ejemplo para pasar luego a otros puntos, lo tenemos cuando 
 
 Cuando llegamos al hotel, le preguntamos: Maestro, qué era lo que estaba haciendo? Perdone mi pregunta.... y me decía: “Mano....., estoy aprovechando estos instantes, porque no puedo llegar a identificarme con esas situaciones exteriores: Esto de las patrullas, pasa....
 
-Entonces el Maestro SAMAEL decía: No puedo llegar a identificarme con esos estados exteriores. Ahorita (ahora) que acabo de llegar al hotel, qué se hizo el público? Qué se hizo la gente? Dónde está la radio-patrulla? Dónde están los aplausos? Ya todo eso quedó en un pasado, y eso se lo hacían a mi Real SER...
+Entonces el Maestro SAMAEL decía: No puedo llegar a identificarme con esos estados exteriores. Ahorita (ahora) que acabo de llegar al hotel, qué se hizo el público? Qué se hizo la gente? Dónde está la radiopatrulla? Dónde están los aplausos? Ya todo eso quedó en un pasado, y eso se lo hacían a mi Real SER...
 
 Entonces, él se preparaba siempre psicológicamente, y no era afectado por los estados exteriores, por los ESTADOS IDENTIFICATIVOS DE LA EXTEREO-PSIQUE... Porque la EXTEREO-PSIQUE es como un “Radar”, un radar que va captando todas las ondas que va emitiendo el ámbito exterior.
 
@@ -260,7 +260,7 @@ O sea, de que en este Congreso tenemos magníficas oportunidades para aprovechar
 
 ### ESTADOS ARQUEO - PSIQUICOS
 
-Ahora, pasemos a los ESTADOS ARQUEO - PSIQUICOS. A qué se refiere nuestro muy amado Maestro Samael con los “Estados ARQUEO- PSIQUICOS? El los define como: “ESTADOS REGRESIVOS”, es decir, para atrás, o también como “FENOMENOS DEL PASADO”.
+Ahora, pasemos a los ESTADOS ARQUEO - PSIQUICOS. A qué se refiere nuestro muy amado Maestro Samael con los “Estados ARQUEO-PSIQUICOS? El los define como: “ESTADOS REGRESIVOS”, es decir, para atrás, o también como “FENOMENOS DEL PASADO”.
 
 Cada uno de nosotros tiene yoes creados en esta existencia (vida) presente, y Yoes o Agregados Psicológicos creados en otras existencias pasadas. Aquel que anhele la LIBERACION FINAL, tiene que llegar a destruir los Egos o Agregados Psíquicos de existencias pasadas, porque de lo contrario no se llegará a tener el triunfo total.
 
@@ -288,7 +288,7 @@ Eso sí, el Maestro Samael hace la aclaración que el soltero solamente puede ll
 
 ### LA ETOLOGIA
 
-Entonces estamos conociendo todo lo que es el ESTADO ARQUEO-PSIQUICO... Pero, qué nos indica el Maestro para profundizar más, y que esté ligado al fenómeno de la ESTEREO-PSIQUE, y también al fenómeno de los estados NEO-PSIQUICOS Y ARQUEO-PSIQUICOS?
+Entonces estamos conociendo todo lo que es el ESTADO ARQUEO-PSIQUICO... Pero, qué nos indica el Maestro para profundizar más, y que esté ligado al fenómeno de la ESTEREOPSIQUE, y también al fenómeno de los estados NEO-PSIQUICOS Y ARQUEO-PSIQUICOS?
 
 Aquí tenemos lo que el Maestro llama la “ETOLOGIA”. El Maestro Samael, como lo tenemos aquí transcrito, define la ETOLOGIA en su característica peculiar de sintetismo conceptual con la siguiente frase: ETOLOGIA ES LA INVESTIGACION SOBRE LOS PERIODOS CRITICOS Y DE LAS COSTUMBRES DE LOS SERES HUMANOS.
 
@@ -654,7 +654,7 @@ Lo define de la siguiente manera:
 
 Veamos ejemplos claros y concisos de algunos falsos razonamientos que inducen en la actualidad a cada uno de nosotros al error, SOFISMAS DE DISTRACCION que inducen la humanidad moderna al error.
 
-Un ejemplo muy claro es el siguiente: En la actualidad existe lo que se llama la “Sociobiología”, una corriente pseudo-científica con su principal exponente en Robert Dules, biólogo de la Universidad de Harvard en los EE. UU.
+Un ejemplo muy claro es el siguiente: En la actualidad existe lo que se llama la “Sociobiología”, una corriente pseudocientífica con su principal exponente en Robert Dules, biólogo de la Universidad de Harvard en los EE. UU.
 
 Este biólogo es el que ha promulgado al mundo, se ha dado el lujo de plantear un razonamiento que va a inducir a la gran mayoría de la humanidad al error!
 
@@ -728,7 +728,7 @@ Veamos algunos ejemplos claros y concisos para ampliar esta explicación sintét
 
 En el ámbito pseudo-artístico moderno actual existe un grupo muy “interesante”, el cual surgió también en Inglaterra. Este grupo se denomina “Las pistolas sexuales” (Sex Pistols) y sus principales integrantes y dirigentes se hacen llamar “Jhonny Broken” “Juancito el quebrado”, “Sid Viscious” (El vicioso) y así otros nombres por el estilo.
 
-Han establecido estos jóvenes en la actualidad, lo que se llama la “Corriente Punk” (1), sinónimo de fealdad y de suciedad. Y esta corriente se ha convertido pues en una “Moda” dentro del ámbito moderno internacional, especialmente en los países “super- civilizados”, pero también en otras partes....
+Han establecido estos jóvenes en la actualidad, lo que se llama la “Corriente Punk” (1), sinónimo de fealdad y de suciedad. Y esta corriente se ha convertido pues en una “Moda” dentro del ámbito moderno internacional, especialmente en los países “super-civilizados”, pero también en otras partes....
 
 En el ámbito pues moderno, existe esta corriente “Punk”, es decir, el hábito del EGO, y el conjunto de los “Sex Pistol” se distinguen porque en sus canciones ellos incitan al público a través de palabras groseras a que caigan en los vicios, a que practiquen toda clase de actitudes negativas que puedan llevar a cabo: groserías, insultos, destrucción del mundo, destrucción de las religiones, destrucción de Dios, destrucción de Inglaterra, etc., etc., etc.
 
@@ -906,7 +906,7 @@ Entonces, en un momento viendo el camino, trató de detenerse y lo vió difícil
 
 “Nadie, pero nadie, podrá llegar a tener éxito en el ambiente de ser dirigente, si no aniquila, sino elimina, si no quita de sí mismo su Talón de Aquiles”.
 
-Aquiles tuvo un talón y por ese talón llegó a fallecer. Pero cuál fue el Talón de Aquiles? El talón de Aquiles fue la personalidad. Por eso el Maestro Samael, llegó a destruir o aniquilar a toda su personalidad y también como lo dijimos en la primera conferencia de Super- Dinámica Mental, llegó a aniquilar los Yoes buenos como los malos, los Gérmenes de los Yoes, las Cintas Teleoginoras y también llegó a aniquilar los Yoes de la Cara Oculta de la Luna Psicológica.
+Aquiles tuvo un talón y por ese talón llegó a fallecer. Pero cuál fue el Talón de Aquiles? El talón de Aquiles fue la personalidad. Por eso el Maestro Samael, llegó a destruir o aniquilar a toda su personalidad y también como lo dijimos en la primera conferencia de Super-Dinámica Mental, llegó a aniquilar los Yoes buenos como los malos, los Gérmenes de los Yoes, las Cintas Teleoginoras y también llegó a aniquilar los Yoes de la Cara Oculta de la Luna Psicológica.
 
 Finalmente, desde el mes de Enero hasta el mes de Julio su personalidad, porque él decía:
 
@@ -1308,7 +1308,7 @@ Ay.... Ay... Ay....! Esto si que está difícil! La mayoría de nosotros, empeza
 
 Diariamente nosotros mismos nos encargamos de lacerarnos a sí mismos! Diariamente nos encargamos de afectar a nuestros semejantes! Es una falta de respeto terrible la que existe, irrespeto... Criticamos a todo el mundo, hasta sus mínimos detalles.
 
-A pesar de ser hermanos Gnósticos, a pesar de que conocemos el Camino, y debido a que transmutamos nuestra energía - nuestros Yoes están bien vivos, bien “gordos”, bien alimentados- aparecen las críticas y las laceraciones por todas partes...
+A pesar de ser hermanos Gnósticos, a pesar de que conocemos el Camino, y debido a que transmutamos nuestra energía - nuestros Yoes están bien vivos, bien “gordos”, bien alimentados-aparecen las críticas y las laceraciones por todas partes...
 
 Pero veamos cómo el Maestro Samael sí vivía la Pudicia Gnóstica... En una ocasión en el mes de Diciembre de 1977, en los últimos días de su proceso y existencia física, el Maestro Samael sentía grandes dolores a raíz del malestar que lo afectaba.
 
@@ -1490,7 +1490,7 @@ Segregar al Agregado Psíquico, sacarlo de lo más hondo del subconsciente. Incl
 
 Así, con la Técnica del Análisis Transaccional y el Análisis Estructural, cada uno de nosotros puede realizar un debido trabajo sobre sí mismo. Tenemos las armas, tenemos las herramientas. No nos queda más que llevar el Trabajo a cabo, hermanos Gnósticos.
 
-Practiquemos, hagamos la Práxis: “La aplicación práctica de la teoría”. Y no nos dejemos llevar por las situaciones exteriores. Desarrollemos la Visión Antropo-céntrica del hombre. Coloquémonos en el centro de las cosas. Aprendamos a utilizar tanto la fuerza positiva como la negativa y también la neutra en un momento dado....
+Practiquemos, hagamos la Práxis: “La aplicación práctica de la teoría”. Y no nos dejemos llevar por las situaciones exteriores. Desarrollemos la Visión Antropocéntrica del hombre. Coloquémonos en el centro de las cosas. Aprendamos a utilizar tanto la fuerza positiva como la negativa y también la neutra en un momento dado....
 
 Aprendamos a practicar los ejemplos que el Maestro Samael nos ha dejado a cada uno de nosotros......
 

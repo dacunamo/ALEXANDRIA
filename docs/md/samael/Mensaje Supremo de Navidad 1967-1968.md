@@ -6,7 +6,7 @@
 
 #### SAMAEL AUN WEOR KALKI AVATARA DE LA NUEVA ERA ACUARIA
 
-**Primera Edición- Colombia 1967**
+**Primera Edición-Colombia 1967**
 
 ## PREFACIO
 
@@ -146,17 +146,17 @@ Muchos comerciantes de perlas de la Atlántida se salvaros refugiándose en PERL
 
 Fueron ATLANTES los que construyeron las pirámides de los EGIPCIOS y de los AZTECAS, quienes fundaron la civilización INCAICA, quienes establecieron los MISTERIOS DE LA INDIA, CHINA, EGIPTO, YUCATÁN, etc.
 
-Desapareció la RAZA ATLANTE tragada por el mar, dicha raza tuvo siete sub-razas, la última de ellas, la séptima, corresponde a los sobrevivientes de la GRAN TRAGEDIA.
+Desapareció la RAZA ATLANTE tragada por el mar, dicha raza tuvo siete subrazas, la última de ellas, la séptima, corresponde a los sobrevivientes de la GRAN TRAGEDIA.
 
-La semilla de nuestra raza Aria es NÓRDICA, pero al mezclarse con los sobrevivientes Atlantes dio origen a las sub-razas del tronco Ario.
+La semilla de nuestra raza Aria es NÓRDICA, pero al mezclarse con los sobrevivientes Atlantes dio origen a las subrazas del tronco Ario.
 
 La primera SUB-RAZA floreció en el ASIA CENTRAL. La segunda Sub-Raza se desenvolvió en la INDIA y todo el SUR DEL ASIA. La tercera SUB-RAZA creó las poderosas civilizaciones de BABILONIA, CALDEA, EGIPTO, etc. La cuarta SUB-RAZA se desarrolló en GRECIA, ROMA, ITALIA, etc. La quinta SUB-RAZA es la ANGLO-SAJONA Y TEUTONA.
 
 Los GRANDES TRATADISTAS DE LA ANTROPOGÉNESIS moderna tales como H P B. Rudolf Steíner, Max Heindel y otros, cometieron el error muy lamentable de suponer que en estos momentos nos hallamos en la quinta SUB-RAZA de la QUINTA RAZA RAÍZ, como si nosotros los Latino-Americanos no existiéramos, como si nosotros también fuéramos Anglo-Sajones o Teutones, o algo por el estilo.
 
-Es absurdo ignorar el fenómeno RACIAL de la América Latina; a todas luces resulta lógico que de la mezcla de los conquistadores españoles con las tribus Indo-Americanas, resultó de hecho y por derecho propio, una nueva sub-raza, la SEXTA RAMA del Tronco Ario.
+Es absurdo ignorar el fenómeno RACIAL de la América Latina; a todas luces resulta lógico que de la mezcla de los conquistadores españoles con las tribus Indo-Americanas, resultó de hecho y por derecho propio, una nueva subraza, la SEXTA RAMA del Tronco Ario.
 
-El trabajo de formación de la sexta sub-raza en el territorio Piel Roja, fue mucho más difícil porque los conquistadores Ingleses en vez de mezclarse con los nativos indígenas, los destruyeron, los asesinaron, solo en forma muy insignificante e incipiente se realizó tal mezcla de sangres, por ello la FRATERNIDAD OCULTA que gobierna los destinos del mundo se vio en la necesidad de convertir el territorio Norte-Americano en un Crisol de fundición de Razas; En Estados Unidos todas las Razas del mundo se han mezclado para formar la sexta sub-raza con enorme dificultad.
+El trabajo de formación de la sexta subraza en el territorio Piel Roja, fue mucho más difícil porque los conquistadores Ingleses en vez de mezclarse con los nativos indígenas, los destruyeron, los asesinaron, solo en forma muy insignificante e incipiente se realizó tal mezcla de sangres, por ello la FRATERNIDAD OCULTA que gobierna los destinos del mundo se vio en la necesidad de convertir el territorio Norte-Americano en un Crisol de fundición de Razas; En Estados Unidos todas las Razas del mundo se han mezclado para formar la sexta subraza con enorme dificultad.
 
 La SEXTA SUB-RAZA en la América Latina, se formó fácilmente y esto es algo que no deben ignorar los tratadistas de la Antropogénesis y del Ocultismo.
 
@@ -164,11 +164,11 @@ LA SEPTIMA SUB-RZA ARIA todavía no existe, pero existirá y estará formada por
 
 En aquellos reinos hoy desaparecidos del Asia Central y cuyas ruinas todavía existen en los Himalayas, alrededor del país del Tibet, en aquellos otros países como GOBILANDIA, MARAPLEICIE, etc. todos ellos situados en el corazón del Asia, existieron las poderosas CIVILIZACIONES ESPIRITUALES DE LA PRIMERA SUB-RAZA ARIA.
 
-En PERLANDIA, la tierra sagrada de los Vedas, el viejo Indostán, y en todas esas regiones del sur del Asia, existieron formidables culturas Esotéricas y tremendas civilizaciones en donde se desenvolvió la segunda sub-raza Aria.
+En PERLANDIA, la tierra sagrada de los Vedas, el viejo Indostán, y en todas esas regiones del sur del Asia, existieron formidables culturas Esotéricas y tremendas civilizaciones en donde se desenvolvió la segunda subraza Aria.
 
 BABILONIA, antes de su decadencia, Caldea y sus augustos misterios, Egipto y sus pirámides, fueron el escenario de muy ricas y poderosas civilizaciones creadas por la TERCERA SUB-RAZA ARIA.
 
-ATENAS, la gran ciudad fundada por la Diosa Atenea, ROMA antes de su degeneración y destrucción fueron el escenario maravilloso donde se desarrollaron las poderosas civilizaciones de la cuarta sub-raza Aria.
+ATENAS, la gran ciudad fundada por la Diosa Atenea, ROMA antes de su degeneración y destrucción fueron el escenario maravilloso donde se desarrollaron las poderosas civilizaciones de la cuarta subraza Aria.
 
 La primera y la segunda guerra mundial con toda su barbarie y corrupción moral señalan con su dedo acusador a los hombres y mujeres de la QUINTA-SUB-RAZA ARIA.
 
@@ -200,11 +200,11 @@ Después de la Segunda Guerra Mundial cayó sobre la humanidad entera, la epidem
 
 Lo más grave de los así llamados "Rebeldes Sin Causa" es su estado de Absoluta Irresponsabilidad Moral; cuando se les conduce ante los tribunales, nunca saben por qué mataron, por que hirieron, y lo peor de todo es que ni siquiera les interesa saber.
 
-El Mundo Artístico Sublime, ha llegado al maximun de la degeneración; el Templo del Arte ha sido convertido en un burdel, en un prostíbulo donde buscan refugio, los homo-sexuales, drogómanos, alcohólicos, meretrices, asesinos, ladrones, etc.
+El Mundo Artístico Sublime, ha llegado al maximun de la degeneración; el Templo del Arte ha sido convertido en un burdel, en un prostíbulo donde buscan refugio, los homosexuales, drogómanos, alcohólicos, meretrices, asesinos, ladrones, etc.
 
 Es tan grave la corrupción humana, que ya se ha hecho del homicidio un arte, y para colmo de los colmos, actualmente existen clubes de asesinos y abundante literatura sobre el arte del Asesinato.
 
-Todas las ramas del arte actual acusan lujuria, alcoholismo, drogas, homo-sexualismo, sangre... horror...
+Todas las ramas del arte actual acusan lujuria, alcoholismo, drogas, homosexualismo, sangre... horror...
 
 Los autores clásicos son mirados por estos tiempos con el mismo infinito desprecio; tocar a Beethoven o a Mozart en cualquier fiesta moderna, significa retirada general de todos los invitados.
 
@@ -528,13 +528,13 @@ Por último la Gran PIRAMIDE coloca a la humanidad frente al GRAN JUEZ en la SAL
 
 El RAYO DE LA CREACIÓN comienza en el ABSOLUTO y termina en el INFIERNO. Esta palabra viene del Latín Infiernus que significa lugar inferior.
 
-Alguien cuyo nombre no menciono, dijo que el lugar Inferior era este mundo físico, este mundo CELULAR en que vivimos, pero ese autor se equivocó lamentablemente porque el Infiernus es el Sub-mundo, el REINO MINERAL SUMERGIDO.
+Alguien cuyo nombre no menciono, dijo que el lugar Inferior era este mundo físico, este mundo CELULAR en que vivimos, pero ese autor se equivocó lamentablemente porque el Infiernus es el Submundo, el REINO MINERAL SUMERGIDO.
 
-Dante descubre al Infierno dentro del interior de la tierra, el Sub-mundo dentro de la tierra.
+Dante descubre al Infierno dentro del interior de la tierra, el Submundo dentro de la tierra.
 
 El descenso hacia el interior profundo de nuestro organismo planetario es un descenso a lugares de mayor densidad, de mayor materialidad. Esta es en verdad la sabia idea expresada por DANTE en su DIVINA COMEDIA.
 
-Dante ve el Sub-mundo, lo analiza, lo comprende, lo describe formidablemente. Dante habla de esferas o círculos de densidad creciente que conducían según sus mismas palabras: "HACIA EL MEDIO, EN CUYO PUNTO UNENSE TODAS LAS SUBSTANCIAS PESADAS... ESE PUNTO, AL CUAL DE TODAS PARTES ES ARRASTRADA TODA SUBSTANCIA PESADA"
+Dante ve el Submundo, lo analiza, lo comprende, lo describe formidablemente. Dante habla de esferas o círculos de densidad creciente que conducían según sus mismas palabras: "HACIA EL MEDIO, EN CUYO PUNTO UNENSE TODAS LAS SUBSTANCIAS PESADAS... ESE PUNTO, AL CUAL DE TODAS PARTES ES ARRASTRADA TODA SUBSTANCIA PESADA"
 
 Dante vio en el dintel de una puerta del infierno escritas con caracteres negros estos terribles palabra; "POR MI SE VA A LA CIUDAD DEL LLANTO; POR MI SE VA AL ETERNO DOLOR; POR MI SE VA HACIA LA RAZA CONDENADA; LA JUSTICIA ANIMÓ A MI SUBLIME ARQUITECTO; ME HIZO LA DIVINA POTESTAD, LA SUPREMA SABIDURÍA Y EL SUPREMO AMOR. ANTES QUE YO NO HUBO NADA CREADO, A EXCEPCIÓN DE LO INMORTAL, Y YO DURO ETERNAMENTE. ¡OH VOSOTROS LOS QUE ENTRÁIS, ABANDONAD TODA ESPERANZA!"
 
@@ -550,7 +550,7 @@ El RAYO DE LA CREACIÓN comienza en el Absoluto y termina en el Infierno; ¿pero
 
 La música aclara todo esto. El RAYO de la creación como todo proceso completo de la vida, es una Octava descendente en la que DO pasa a SI, SI pasa a LA, etc.
 
-En el Absoluto con su Única Ley vibra el Do de la escala musical. En todos los Mundos del Infinito con sus tres Leyes, resuena el SI de la Gran Escala. En todos los Soles con sus Seis Leyes, vibra la nota LA. En el Sol que nos ilumina con sus Doce Leyes, resuena la nota SOL. Todos los planetas de Nuestro Sistema Solar vibran con sus veinticuatro Leyes con ese FA que resuena en toda la naturaleza. La tierra con sus cuarenta y ocho Leyes vibra con la nota Mi. La Sub-tierra, es decir el Sub-mundo, vibra con la nota RE. El Rayo de la creación Termina en el Sub-mundo, más allá del Reino de los Metales está el Absoluto con su nota DO vibrando eternamente.
+En el Absoluto con su Única Ley vibra el Do de la escala musical. En todos los Mundos del Infinito con sus tres Leyes, resuena el SI de la Gran Escala. En todos los Soles con sus Seis Leyes, vibra la nota LA. En el Sol que nos ilumina con sus Doce Leyes, resuena la nota SOL. Todos los planetas de Nuestro Sistema Solar vibran con sus veinticuatro Leyes con ese FA que resuena en toda la naturaleza. La tierra con sus cuarenta y ocho Leyes vibra con la nota Mi. La Sub-tierra, es decir el Submundo, vibra con la nota RE. El Rayo de la creación Termina en el Submundo, más allá del Reino de los Metales está el Absoluto con su nota DO vibrando eternamente.
 
 El infierno con sus 96 LEYES y su nota RE, es pues el fin del RAYO de la CREACIÓN.
 
@@ -636,7 +636,7 @@ La evolución de los cuerpos protoplasmáticos se realiza sobre la superficie de
 
 La involución de los cuerpos protoplasmáticos se procesa en el REINO MINERAL SUMERGIDO.
 
-No es extraño que los cuerpos protoplasmáticos inicien su involución en el mundo celular, pero sus complejos procesos involutivos se desenvuelven en el sub-mundo.
+No es extraño que los cuerpos protoplasmáticos inicien su involución en el mundo celular, pero sus complejos procesos involutivos se desenvuelven en el submundo.
 
 La muerte del CUERPO FÍSICO jamás puede destruir los cuerpos protoplasmáticos, éstos continúan en el MUNDO MOLECULAR.
 
@@ -1078,7 +1078,7 @@ El mismo hecho explica con claridad meridiana la superioridad indiscutible de lo
 
 El HERMANO GNÓSTICO, C.Iturralde V., me envió una interesante carta procedente de su país, Bolivia, en la que dice: "Algo interesante y curioso es aquí una leyenda que no solamente es creación fantasiosa de algunas mentes sino que parece que tiene una realidad objetiva, es que existieron seres humanos de proporciones pequeñísimas; en unos casos de más o menos 15 centímetros y en otros casos hasta de 25 centímetros, que vivían en una especie de aldeas o poblados, con casas construidas por ellos, utensilios tales como ollas, etc."
 
-"Cuando niño escuché que cerca a la ciudad en que vivía habían existido tales seres, (exactamente en Lipes, una altiplanicie rodeada de montañas —los Andes— y un solar enorme al este); ahora he sabido que cerca de aquí (POTOSÍ), a unos 120 kilómetros hay una población de unos treinta centímetros de altura — las viviendas- en cuyo interior se encuentran vajillas correspondientes a seres muy pequeñísimos. Esta población dicen que está rodeada de unos cerros puntiagudos, bastante raros que se elevan máximo a dos o tres metros pero que para el caserío semejan montañas; alrededor recién se levantan los cerros más grandes de cientos de metros. Según, continúan diciendo, los indígenas del lugar, no admiten que nadie se acerque a esta curiosidad".
+"Cuando niño escuché que cerca a la ciudad en que vivía habían existido tales seres, (exactamente en Lipes, una altiplanicie rodeada de montañas —los Andes— y un solar enorme al este); ahora he sabido que cerca de aquí (POTOSÍ), a unos 120 kilómetros hay una población de unos treinta centímetros de altura — las viviendas-en cuyo interior se encuentran vajillas correspondientes a seres muy pequeñísimos. Esta población dicen que está rodeada de unos cerros puntiagudos, bastante raros que se elevan máximo a dos o tres metros pero que para el caserío semejan montañas; alrededor recién se levantan los cerros más grandes de cientos de metros. Según, continúan diciendo, los indígenas del lugar, no admiten que nadie se acerque a esta curiosidad".
 
 Esta es una Raza Lémur muy INVOLUCIONADA; Esta es la raza LILIPUTENSE y JINA de los míticos siberianos, verdaderos NIBELUNGOS de sus galenas, hombres-hormigas, en fin de los que han quedado indelebles huellas aún en las propias pinturas rupestres, empezada» a estudiar hoy por los científicos de nuestros días.
 
@@ -1102,7 +1102,7 @@ Existe Involución en todo proceso destructivo, en el árbol que se marchita y q
 
 Todo lo que existe en la creación evoluciona hasta cierto punto perfectamente definido por la naturaleza, y luego involucióna hasta regresar al punto de partida original.
 
-Ningún ser viviente puede Auto-Realizarse ni mucho menos Liberarse con la Ley Mecánica de-la Evolución.
+Ningún ser viviente puede Auto-Realizarse ni mucho menos Liberarse con la Ley Mecánica dela Evolución.
 
 #### -CAPITULO DIECISEIS-
 
@@ -1258,7 +1258,7 @@ En las regiones SUB-LUNARES encontró Dante a la lujuriosa Semiramis, aquella em
 
 En las regiones SUB-LUNARES encontró Dante a aquella mujer que se mató por pasión y quebrantó la FE prometida a las cenizas de Siqueo y a la bella Elena y a la lasciva Cleopatra.
 
-A la escasa luz de la luna nueva encontró Dante en los MUNDOS INFIERNOS al famoso BRUNETTO LATINI y a muchos homo-sexuales degenerados, secuaces de LILIT.
+A la escasa luz de la luna nueva encontró Dante en los MUNDOS INFIERNOS al famoso BRUNETTO LATINI y a muchos homosexuales degenerados, secuaces de LILIT.
 
 #### -CAPITULO DIECIOCHO-
 
@@ -2724,7 +2724,7 @@ Dicen las viejas tradiciones del MUNDO ÁRABE que AL HALLAJ fue crucificado desp
 
 ¡Oh Dios mío! Voy a entrar en la morada de mis deseos y allí contemplaré tus maravillas. ¡Oh Dios mío!, Si Tú manifiestas tu amor aun a aquel que te perjudica, ¿cómo entonces no lo darías a aquel que es perjudicado en Ti?"
 
-Después de esta plegaria salida del corazón Santísimo de AL HALLAJ, las gentes que presenciaron el suplicio vieron a ABU BAKR, al-SHIBLI, quien avanzando hacia el PATÍBULO grito muy fuerte el versículo. "¿No-te habíamos prohibido recibir ningún huésped, sea hombre o ángel?" Luego le dijo: "¿Qué es la Mística?" AL HALLAJ le respondió: "Su grado menor, aquí lo ves". "Y su grado supremo?" "Tú no puedes tener acceso a él, y no obstante, mañana has de ver lo que acontecerá. Yo lo atestiguo en el misterio Divino en que existe y para ti permanece oculto".
+Después de esta plegaria salida del corazón Santísimo de AL HALLAJ, las gentes que presenciaron el suplicio vieron a ABU BAKR, al-SHIBLI, quien avanzando hacia el PATÍBULO grito muy fuerte el versículo. "¿Note habíamos prohibido recibir ningún huésped, sea hombre o ángel?" Luego le dijo: "¿Qué es la Mística?" AL HALLAJ le respondió: "Su grado menor, aquí lo ves". "Y su grado supremo?" "Tú no puedes tener acceso a él, y no obstante, mañana has de ver lo que acontecerá. Yo lo atestiguo en el misterio Divino en que existe y para ti permanece oculto".
 
 A la hora vespertina, cuando llegó la hora de la plegaria, vino la orden del cruel CALIFA sanguinario autorizando degollar a la santa victima, pero los verdugos dijeron: "Es demasiado tarde, dejémoslo para mañana".
 

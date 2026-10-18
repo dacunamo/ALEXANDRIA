@@ -10,6 +10,10 @@ Hermética
 
 **Kalki Avatara de la Nueva Era de Acuario**
 
+![Imagen 1](Tratado Esoterico de Astrologia Hermetica/Tratado Esoterico de Astrologia Hermetica - 001 - Portada.jpeg)
+
+![Imagen 2](Tratado Esoterico de Astrologia Hermetica/Tratado Esoterico de Astrologia Hermetica - 002 - Portada.jpeg)
+
 **Tabla de Contenidos**
 
 PREFACIO Por el V. M. Gargha Kuichines ................................... 7 CAPITULO 1: ARIES ................................................................... 13 CAPITULO 2: TAURUS ............................................................... 21 CAPITULO 3: GÉMINIS .............................................................. 31 CAPÍTULO 4: CÁNCER .............................................................. 41 CAPITULO 5: LEO ...................................................................... 51 CAPÍTULO 6: VIRGO .................................................................. 61 CAPÍTULO 7: LIBRA ................................................................... 73 CAPÍTULO 8: ESCORPIO ........................................................... 83 CAPÍTULO 9: SAGITARIO .......................................................... 97 CAPÍTULO 10: CAPRICORNIO ................................................ 111 CAPÍTULO 11: ACUARIO ......................................................... 125 CAPÍTULO 12: PISCIS .............................................................. 143
@@ -18,25 +22,27 @@ PREFACIO Por el V. M. Gargha Kuichines ................................... 7 CAP
 
 #### Por el V.M.Gargha Kuichines
 
-Existe la Astrología Científica o Numérica que requiere extensos estudios para su aprendizaje, con ella los Astrólogos de todos los tiempos han hecho predicciones sobre acontecimientos de importan-cia. También se han valido de esos conocimientos grandes persona-jes como el caso de Hitler en Alemania quién se valió de Astrólogos especializados para dirigirlos en sus ataques bélicos.
+Existe la Astrología Científica o Numérica que requiere extensos estudios para su aprendizaje, con ella los Astrólogos de todos los tiempos han hecho predicciones sobre acontecimientos de importancia. También se han valido de esos conocimientos grandes personajes como el caso de Hitler en Alemania quién se valió de Astrólogos especializados para dirigirlos en sus ataques bélicos.
 
-Nosotros los Gnósticos nos separamos dé esa forma de estudio, porque con ella el hombre es un juguete según las predicciones, un indefenso ante los signos que marcan las distintas cuadraturas y pa-so de los astros, nosotros conocemos una astrología que nos ense-ña a manipular con las estrellas y así podemos evitar los aconteci-mientos que pudieran predecirnos los especializados de la Astrología Numérica. Para ello se requiere cambiar los cuerpos lunares con los cuales nacemos, por cuerpos solares o lumínicos valiéndonos de la raíz misma del ser o sea de nuestra propia simiente.
+Nosotros los Gnósticos nos separamos dé esa forma de estudio, porque con ella el hombre es un juguete según las predicciones, un indefenso ante los signos que marcan las distintas cuadraturas y paso de los astros, nosotros conocemos una astrología que nos enseña a manipular con las estrellas y así podemos evitar los acontecimientos que pudieran predecirnos los especializados de la Astrología Numérica. Para ello se requiere cambiar los cuerpos lunares con los cuales nacemos, por cuerpos solares o lumínicos valiéndonos de la raíz misma del ser o sea de nuestra propia simiente.
 
-El enemigo que nos impide escalar el conocimiento divino es nuestro Yo Satánico o Jefe de legiones que gobierna nuestro cuerpo físico. La manera más perfecta para deshacerse del Guardián del Umbral como lo llaman los de la manó izquierda es por medio del proceso de la Iniciación qué para nosotros los gnósticos comienza con la entrada a los santuarios o Lumisiales, valiéndonos de las en-señanzas que dirige y promueve el Avatara de Acuario "Samael Aun Weor".
+El enemigo que nos impide escalar el conocimiento divino es nuestro Yo Satánico o Jefe de legiones que gobierna nuestro cuerpo físico. La manera más perfecta para deshacerse del Guardián del Umbral como lo llaman los de la manó izquierda es por medio del proceso de la Iniciación qué para nosotros los gnósticos comienza con la entrada a los santuarios o Lumisiales, valiéndonos de las enseñanzas que dirige y promueve el Avatara de Acuario "Samael Aun Weor".
 
-En la época en que el Iniciado Jesús dio sus enseñanzas a los devotos del sendero dijo: "Yo soy el camino, yo soy la verdad, yo soy la vida”. Hubo por esos tiempos un gran mago llamado Simón el Ma-go, lleno de poderes y grandes riquezas, quien manifestaba a sus discípulos: "Si Jesús llegó a su padre por sus propios méritos, yo Simón, también llegaré a mi padre por mis propios méritos y lo que hizo fue seguir por el camino izquierdo, alejándose de su bienamado, este peligro siempre está latente cuando los devotos del sendero creen que ellos por sí solos pueden trascender la senda.
+En la época en que el Iniciado Jesús dio sus enseñanzas a los devotos del sendero dijo: "Yo soy el camino, yo soy la verdad, yo soy la vida”. Hubo por esos tiempos un gran mago llamado Simón el Mago, lleno de poderes y grandes riquezas, quien manifestaba a sus discípulos: "Si Jesús llegó a su padre por sus propios méritos, yo Simón, también llegaré a mi padre por mis propios méritos y lo que hizo fue seguir por el camino izquierdo, alejándose de su bienamado, este peligro siempre está latente cuando los devotos del sendero creen que ellos por sí solos pueden trascender la senda.
 
-Para los que por primera vez llega a sus manos esta sabiduría, les informamos que se requieren seis meses de estudios prelimina-res, estudiando las obras de Samael Aun Weor y poniendo en prácti-cas sus conocimientos, luego si da pruebas de que busca realizarse a fondo, y quiere una vida superior, entonces, se le da entrada a los Lumisiales mediante un proceso de adiestramiento especial.
+Para los que por primera vez llega a sus manos esta sabiduría, les informamos que se requieren seis meses de estudios preliminares, estudiando las obras de Samael Aun Weor y poniendo en prácticas sus conocimientos, luego si da pruebas de que busca realizarse a fondo, y quiere una vida superior, entonces, se le da entrada a los Lumisiales mediante un proceso de adiestramiento especial.
 
-Cuando el devoto de la senda está preparado para el curso pro-batorio, la primera prueba que le toca pasar es la de Guardián del Umbral o enfrentamiento con su propio Satán el que ha sido nuestro guía y Maestro durante muchísimos siglos. Me recuerdo que allá por el año de 1949, un discípulo del entonces Hierofante de Misterios Menores Aun Weor, y después de más de cuatro meses de castidad absoluta fue sometido a la prueba del Guardián un día 27 de julio. Se encontraba aquel principiante en un lugar solitario, él estaba en lo interno, más no lo sabía, cuando Invocó al Guardián del Umbral, éste no se hizo esperar, contaba aquel principiante que primeramente sintió un frío de muerte, el tiempo que estaba claro fue poniéndose cada vez más oscuro, aumentando también aquel frío y un olor nau-seabundo que lo hacía estremecer de pavor, sintió deseos de salir huyendo, pero la fuerza Cristica que ya había acumulado en su or-ganismo por medio de la trasmutación alquímica, Arcano A. Z. F., le dio valor para permanecer en aquel lugar indeseable. De pronto vio que venía hacia él una bestia con figura de simio, totalmente peluda, de cuernos en la frente que le brillaban y trinaban cuando se movían, de nariz y boca como de mula, y le dijo: De manera que me quieres abandonar? ¿Así me pagas lo tanto que te he favorecido? ¿Me cambias por ese hombre que no conoces? Y él le contestó lleno de pavor que sí lo abandonaba, la bestia se le abalanzó en actitud de ataque, el principiante lo conjuró, pero de nada le valió aquella débil conjuración de un hombre débil y atemorizado, pero se acordó que era un Chela del Cristo y lo conjuró en nombre del Cristo y así retro-cedió un poco, cada vez que se le abalanzaba, pedía protección al Cristo y a sus amados Maestros y le decía: tú no puedes ya contra mí, yo te venceré y la bestia se retiró profiriendo amenazas de toda clase. La intranquilidad de aquel discípulo fue inmensa, debido a que el Hierofante había salido con dirección a otra ciudad y esto requería por lo menos tres días de ausencia, pero al regreso le preguntó y éste le respondió: Os felicito, saliste bien de la primera prueba con el Guardián del Umbral, este ser es tu propio Satán, a él has servido y alimentado durante muchos siglos, y ¿cómo lo alimento?, Preguntó el temeroso estudiante y el Maestro le respondió, él se alimenta de tus bajas pasiones, se nutre de nuestros bajos deseos, pasiones morbosas, fornicación, adulterio, lupanares y vida sucia, todo ello constituye los mercaderes del templo de que nos hablaba el Cristo, comercian con nuestro propio templo, ahora te toca con el látigo de la voluntad sacar fuera de ti a todos esos mercaderes que te tuvieron esclavizado a Satán, ahora te toca vencerlos a cada uno de ellos si de verdad quieres librarte del mal y tomar el camino blanco.
+Cuando el devoto de la senda está preparado para el curso probatorio, la primera prueba que le toca pasar es la de Guardián del Umbral o enfrentamiento con su propio Satán el que ha sido nuestro guía y Maestro durante muchísimos siglos. Me recuerdo que allá por el año de 1949, un discípulo del entonces Hierofante de Misterios Menores Aun Weor, y después de más de cuatro meses de castidad absoluta fue sometido a la prueba del Guardián un día 27 de julio. Se encontraba aquel principiante en un lugar solitario, él estaba en lo interno, más no lo sabía, cuando Invocó al Guardián del Umbral, éste no se hizo esperar, contaba aquel principiante que primeramente sintió un frío de muerte, el tiempo que estaba claro fue poniéndose cada vez más oscuro, aumentando también aquel frío y un olor nauseabundo que lo hacía estremecer de pavor, sintió deseos de salir huyendo, pero la fuerza Cristica que ya había acumulado en su organismo por medio de la trasmutación alquímica, Arcano A. Z. F., le dio valor para permanecer en aquel lugar indeseable. De pronto vio que venía hacia él una bestia con figura de simio, totalmente peluda, de cuernos en la frente que le brillaban y trinaban cuando se movían, de nariz y boca como de mula, y le dijo: De manera que me quieres abandonar? ¿Así me pagas lo tanto que te he favorecido? ¿Me cambias por ese hombre que no conoces? Y él le contestó lleno de pavor que sí lo abandonaba, la bestia se le abalanzó en actitud de ataque, el principiante lo conjuró, pero de nada le valió aquella débil conjuración de un hombre débil y atemorizado, pero se acordó que era un Chela del Cristo y lo conjuró en nombre del Cristo y así retrocedió un poco, cada vez que se le abalanzaba, pedía protección al Cristo y a sus amados Maestros y le decía: tú no puedes ya contra mí, yo te venceré y la bestia se retiró profiriendo amenazas de toda clase. La intranquilidad de aquel discípulo fue inmensa, debido a que el Hierofante había salido con dirección a otra ciudad y esto requería por lo menos tres días de ausencia, pero al regreso le preguntó y éste le respondió: Os felicito, saliste bien de la primera prueba con el Guardián del Umbral, este ser es tu propio Satán, a él has servido y alimentado durante muchos siglos, y ¿cómo lo alimento?, Preguntó el temeroso estudiante y el Maestro le respondió, él se alimenta de tus bajas pasiones, se nutre de nuestros bajos deseos, pasiones morbosas, fornicación, adulterio, lupanares y vida sucia, todo ello constituye los mercaderes del templo de que nos hablaba el Cristo, comercian con nuestro propio templo, ahora te toca con el látigo de la voluntad sacar fuera de ti a todos esos mercaderes que te tuvieron esclavizado a Satán, ahora te toca vencerlos a cada uno de ellos si de verdad quieres librarte del mal y tomar el camino blanco.
 
-Por medio de esta obra podremos visitar a todos los genios este-lares, asistiendo al templo corazón de las estrellas, pidiendo y traba-jando con los ángeles estelares, para que no seamos juguetes de las circunstancias, pero primeramente tenemos que expulsar los merca-deres de nuestro propio templo, tenemos que aprender a manipular en nuestro propio Altar. Para ello el devoto concurre asiduamente a los rituales de los Lumisiales; allí aprende a amar y servir a Dios so-bre todas las cosas y al prójimo, se familiariza con esos rituales y más tarde comprende que toda la información del rito del culto tiene intima relación con el altar vivo y descubre maravillas inconfesables. El JACHIN y BOAZ de los altares se requieren para el manejo de su altar y hasta llega el momento en que aprende a dar los siete pasos que se requieren para trabajar conscientes en el altar del Dios vivo y en presencia de la bendita diosa.
+Por medio de esta obra podremos visitar a todos los genios estelares, asistiendo al templo corazón de las estrellas, pidiendo y trabajando con los ángeles estelares, para que no seamos juguetes de las circunstancias, pero primeramente tenemos que expulsar los mercaderes de nuestro propio templo, tenemos que aprender a manipular en nuestro propio Altar. Para ello el devoto concurre asiduamente a los rituales de los Lumisiales; allí aprende a amar y servir a Dios sobre todas las cosas y al prójimo, se familiariza con esos rituales y más tarde comprende que toda la información del rito del culto tiene intima relación con el altar vivo y descubre maravillas inconfesables. El JACHIN y BOAZ de los altares se requieren para el manejo de su altar y hasta llega el momento en que aprende a dar los siete pasos que se requieren para trabajar conscientes en el altar del Dios vivo y en presencia de la bendita diosa.
 
 Con la doctrina de la resurrección aprendemos a matar el cabro que llevamos dentro y así formaremos con el tiempo el rebaño del Cordero Pascual. Así nos liberamos del Señor del Tiempo para vivir una existencia infinita llena de felicidad eterna.
 
 #### S.S.S.
 
 # CAPITULO 1
+
+![Imagen 3](Tratado Esoterico de Astrologia Hermetica/Tratado Esoterico de Astrologia Hermetica - 003 - CAPITULO 1.jpeg)
 
 Aries
 
@@ -48,73 +54,73 @@ Existen cuatro estados de CONCIENCIA posibles para el hombre: el SUEÑO, la CONC
 
 Imaginad por un momento, querido lector, una casa con cuatro pisos. El pobre ANIMAL INTELECTUAL equivocadamente llamado HOMBRE vive normalmente en los dos pisos de abajo, pero jamás en la vida usa los dos pisos superiores.
 
-El ANIMAL INTELECTUAL divide su vida dolorosa y miserable entre el sueño común y corriente y el mal llamado estado de VIGI-LIA, que es por desgracia otra forma del sueño.
+El ANIMAL INTELECTUAL divide su vida dolorosa y miserable entre el sueño común y corriente y el mal llamado estado de VIGILIA, que es por desgracia otra forma del sueño.
 
 Mientras el cuerpo físico duerme en la cama, el EGO envuelto en sus CUERPOS LUNARES anda con la conciencia dormida como un sonámbulo moviéndose libremente por la región molecular.
 
-El EGO en la región molecular proyecta SUEÑOS y vive en ellos, no existe lógica alguna en sus SUEÑOS, continuidad, causas, efec-tos todas las funciones PSÍQUICAS trabajan sin dirección alguna y aparecen y desaparecen imágenes subjetivas, escenas incoheren-tes, vagas, imprecisas, etc.
+El EGO en la región molecular proyecta SUEÑOS y vive en ellos, no existe lógica alguna en sus SUEÑOS, continuidad, causas, efectos todas las funciones PSÍQUICAS trabajan sin dirección alguna y aparecen y desaparecen imágenes subjetivas, escenas incoherentes, vagas, imprecisas, etc.
 
 Cuando el EGO envuelto en sus CUERPOS LUNARES regresa al CUERPO FÍSICO, viene entonces el segundo estado de conciencia llamado estado de VIGILIA, que en el fondo no es otra cosa sino otra forma de del sueño.
 
-Al regresar el EGO a su CUERPO FÍSICO, los sueños continúan en el interior, el llamado ESTADO DE VIGILIA es realmente el SO-ÑAR DESPIERTO.
+Al regresar el EGO a su CUERPO FÍSICO, los sueños continúan en el interior, el llamado ESTADO DE VIGILIA es realmente el SOÑAR DESPIERTO.
 
 Al salir el Sol, las estrellas se ocultan, pero no dejan de existir; así son los sueños en el estado de vigilia ellos continúan secretamente, no dejan de existir.
 
 Esto significa que el ANIMAL INTELECTUAL equivocadamente llamado HOMBRE, sólo vive en el mundo de los sueños; con justa razón dijo el Poeta que la vida es sueño.
 
-El ANIMAL RACIONAL maneja carros soñando, trabaja en la fábrica, en la oficina, en el campo, etc., soñando, se enamora en sueños, se casa en sueños; rara, muy rara vez en la vida, está des-pierto, vive en un mundo de sueños y cree firmemente que está des-pierto.
+El ANIMAL RACIONAL maneja carros soñando, trabaja en la fábrica, en la oficina, en el campo, etc., soñando, se enamora en sueños, se casa en sueños; rara, muy rara vez en la vida, está despierto, vive en un mundo de sueños y cree firmemente que está despierto.
 
-Los Cuatro Evangelios exigen el DESPERTAR, pero desgracia-damente no dicen como DESPERTAR.
+Los Cuatro Evangelios exigen el DESPERTAR, pero desgraciadamente no dicen como DESPERTAR.
 
-Ante todo, es necesario comprender que se está dormido; sólo cuando alguien se da cuenta cabal de que está dormido, entra real-mente en el camino del DESPERTAR.
+Ante todo, es necesario comprender que se está dormido; sólo cuando alguien se da cuenta cabal de que está dormido, entra realmente en el camino del DESPERTAR.
 
 Quien llega a DESPERTAR, se hace entonces AUTO-CONSCIENTE, adquiere CONCIENCIA de Sí MISMO.
 
 El error más grave de muchos SEUDO ESOTERISTAS y SEUDO OCULTISTAS ignorantes, es el de presumir de AUTO-CONSCIENTES y creer además que todo el mundo está despierto, que todas las gentes poseen AUTO-CONCIENCIA.
 
-Si todas las gentes tuvieran la CONCIENCIA DESPIERTA la Tie-rra sería un paraíso, no habría guerras, no existiría lo mío ni lo tuyo, todo sería de todos, viviríamos en una EDAD DE ORO.
+Si todas las gentes tuvieran la CONCIENCIA DESPIERTA la Tierra sería un paraíso, no habría guerras, no existiría lo mío ni lo tuyo, todo sería de todos, viviríamos en una EDAD DE ORO.
 
 Cuando uno DESPIERTA CONCIENCIA, cuando se hace AUTO-CONSCIENTE, cuando adquiere CONCIENCIA DE Si MISMO, es entonces cuando realmente viene a conocer la VERDAD sobre sí mismo.
 
-Antes de alcanzar el tercer estado de CONCIENCIA (la AUTO-CONCIENCIA), uno realmente no se conoce a SI MISMO, aun cuan-do crea que él mismo se conoce.
+Antes de alcanzar el tercer estado de CONCIENCIA (la AUTO-CONCIENCIA), uno realmente no se conoce a SI MISMO, aun cuando crea que él mismo se conoce.
 
 Es indispensable adquirir el tercer estado de conciencia, subir al tercer piso de la casa, antes de tener derecho a pasar al cuarto piso.
 
-El CUARTO ESTADO DE CONCIENCIA, el CUARTO PISO de la casa, es realmente FORMIDABLE. Sólo quien llega a la CONCIEN-CIA OBJETIVA, al CUARTO ESTADO, puede estudiar las cosas en si mismas, el mundo tal cual es.
+El CUARTO ESTADO DE CONCIENCIA, el CUARTO PISO de la casa, es realmente FORMIDABLE. Sólo quien llega a la CONCIENCIA OBJETIVA, al CUARTO ESTADO, puede estudiar las cosas en si mismas, el mundo tal cual es.
 
-Quien llego al cuarto piso de la casa, es fuera de toda duda un ILUMINADO, conoce por experiencia directa los MISTERIOS DE LA VIDA Y DE LA MUERTE, posee la SABIDURÍA, su sentido ESPA-CIAL está plenamente desarrollado.
+Quien llego al cuarto piso de la casa, es fuera de toda duda un ILUMINADO, conoce por experiencia directa los MISTERIOS DE LA VIDA Y DE LA MUERTE, posee la SABIDURÍA, su sentido ESPACIAL está plenamente desarrollado.
 
-Durante el SUEÑO PROFUNDO podemos tener destellos del ESTADO DE VIGILIA. Durante el ESTADO DE VIGILIA podemos tener destellos de AUTO-CONCIENCIA. Durante el ESTADO DE AUTO-CONCIENCIA podemos tener destellos de CONCIENCIA OB-JETIVA.
+Durante el SUEÑO PROFUNDO podemos tener destellos del ESTADO DE VIGILIA. Durante el ESTADO DE VIGILIA podemos tener destellos de AUTO-CONCIENCIA. Durante el ESTADO DE AUTO-CONCIENCIA podemos tener destellos de CONCIENCIA OBJETIVA.
 
-Si queremos llegar al DESPERTAR DE LA CONCIENCIA, a la AUTO-CONCIENCIA, tenemos que trabajar con la CONCIENCIA aquí y ahora. Es precisamente aquí en este mundo físico donde de-bemos trabajar para DESPERTAR CONCIENCIA, quien despierta aquí despierta en todas partes, en todas las dimensiones del Univer-so.
+Si queremos llegar al DESPERTAR DE LA CONCIENCIA, a la AUTO-CONCIENCIA, tenemos que trabajar con la CONCIENCIA aquí y ahora. Es precisamente aquí en este mundo físico donde debemos trabajar para DESPERTAR CONCIENCIA, quien despierta aquí despierta en todas partes, en todas las dimensiones del Universo.
 
-El ORGANISMO HUMANO es un ZODÍACO VIVIENTE y en cada una de sus doce constelaciones, duerme la conciencia profundamen-te.
+El ORGANISMO HUMANO es un ZODÍACO VIVIENTE y en cada una de sus doce constelaciones, duerme la conciencia profundamente.
 
-Es urgente despertar la conciencia en cada una de las doce par-tes del organismo humano y para eso son los ejercicios zodiacales.
+Es urgente despertar la conciencia en cada una de las doce partes del organismo humano y para eso son los ejercicios zodiacales.
 
-Aries, gobierna la cabeza; Taurus, la garganta; Géminis, los bra-zos, piernas y pulmones; Cáncer; la glándula timo; Leo el corazón; Virgo, el vientre, los intestinos; Libra, los riñones; Escorpio, los órga-nos sexuales; Sagitario, las arterias femorales; Capricornio, las rodi-llas; Acuario, las pantorrillas; Piscis, los pies.
+Aries, gobierna la cabeza; Taurus, la garganta; Géminis, los brazos, piernas y pulmones; Cáncer; la glándula timo; Leo el corazón; Virgo, el vientre, los intestinos; Libra, los riñones; Escorpio, los órganos sexuales; Sagitario, las arterias femorales; Capricornio, las rodillas; Acuario, las pantorrillas; Piscis, los pies.
 
-Es realmente lamentable que este zodíaco viviente del MICRO-COSMOS hombre, duerma tan profundamente. Se hace indis-pensable lograr a base de tremendos SÚPER-ESFUERZOS, el DES-PERTAR DE LA CONCIENCIA en cada uno de nuestros doce SIG-NOS ZODIACALES.
+Es realmente lamentable que este zodíaco viviente del MICRO-COSMOS hombre, duerma tan profundamente. Se hace indispensable lograr a base de tremendos SÚPER-ESFUERZOS, el DESPERTAR DE LA CONCIENCIA en cada uno de nuestros doce SIGNOS ZODIACALES.
 
-Luz y Conciencia son dos fenómenos de una misma cosa; a me-nor grado de Conciencia, menor grado de luz; a mayor grado de Conciencia, mayor grado de luz.
+Luz y Conciencia son dos fenómenos de una misma cosa; a menor grado de Conciencia, menor grado de luz; a mayor grado de Conciencia, mayor grado de luz.
 
 Necesitamos DESPERTAR CONCIENCIA para hacer brillar y centellear cada una de las doce partes de nuestro propio zodíaco MICRO-CÓSMICO. Todo nuestro zodíaco debe convertirse en luz y esplendor.
 
-El trabajo con nuestro propio Zodiaco comienza precisamente con ARIES. Siéntese el DISCÍPULO en un cómodo sillón con la men-te quieta y en silencio, vacía de toda clase de pensamientos.
+El trabajo con nuestro propio Zodiaco comienza precisamente con ARIES. Siéntese el DISCÍPULO en un cómodo sillón con la mente quieta y en silencio, vacía de toda clase de pensamientos.
 
-Cierre el devoto sus ojos para que nada del mundo lo distraiga, imagine que la luz purísima de ARIES inunda su cerebro, permanez-ca en ese estado de meditación todo el tiempo que quiera luego can-tará el poderoso Mantram AUM abriendo bien la boca con la A, re-dondeándola con la U y cerrándola con la santa M.
+Cierre el devoto sus ojos para que nada del mundo lo distraiga, imagine que la luz purísima de ARIES inunda su cerebro, permanezca en ese estado de meditación todo el tiempo que quiera luego cantará el poderoso Mantram AUM abriendo bien la boca con la A, re-dondeándola con la U y cerrándola con la santa M.
 
-El poderoso Mantram AUM es en sí mismo una creación TERRI-BLEMENTE DIVINA, porque atrae las fuerzas del PADRE, muy amado, del HIJO muy adorado y del ESPÍRITU SANTO muy sabio.
+El poderoso Mantram AUM es en sí mismo una creación TERRIBLEMENTE DIVINA, porque atrae las fuerzas del PADRE, muy amado, del HIJO muy adorado y del ESPÍRITU SANTO muy sabio.
 
-La vocal A atrae las fuerzas del PADRE, la vocal U atrae las fuer-zas del HIJO, la vocal M atrae las fuerzas del ESPÍRITU SANTO. AUM es un poderoso MANTRAM LOGOICO.
+La vocal A atrae las fuerzas del PADRE, la vocal U atrae las fuerzas del HIJO, la vocal M atrae las fuerzas del ESPÍRITU SANTO. AUM es un poderoso MANTRAM LOGOICO.
 
-El devoto debe cantar este poderoso MANTRAM cuatro veces durante esta práctica de ARIES y luego poniéndose de pie con di-rección al oriente extenderá su brazo derecho hacia adelante mo-viendo la cabeza siete veces hacia adelante, siete hacia atrás, siete dando vueltas por el lado derecho, siete dando vueltas por el lado izquierdo con la intención de que la luz de ARIES trabaje dentro del cerebro despertando las glándulas pineal y pituitaria que nos permi-ten la percepción de las DIMENSIONES SUPERIORES DEL ESPA-CIO.
+El devoto debe cantar este poderoso MANTRAM cuatro veces durante esta práctica de ARIES y luego poniéndose de pie con dirección al oriente extenderá su brazo derecho hacia adelante moviendo la cabeza siete veces hacia adelante, siete hacia atrás, siete dando vueltas por el lado derecho, siete dando vueltas por el lado izquierdo con la intención de que la luz de ARIES trabaje dentro del cerebro despertando las glándulas pineal y pituitaria que nos permiten la percepción de las DIMENSIONES SUPERIORES DEL ESPACIO.
 
-Es urgente que la LUZ DE ARIES se desarrolle dentro de nuestro cerebro despertando CONCIENCIA, desarrollando los poderes se-cretos contenidos en las GLÁNDULAS PITUITARIA y PINEAL
+Es urgente que la LUZ DE ARIES se desarrolle dentro de nuestro cerebro despertando CONCIENCIA, desarrollando los poderes secretos contenidos en las GLÁNDULAS PITUITARIA y PINEAL
 
 ARIES es el símbolo de RA, RAMA, el cordero. El poderoso MANTRAM RA, cantándolo como es debido, hace vibrar los fuegos espinales y los siete centros magnéticos de la espina dorsal.
 
-ARIES es un signo zodiacal de fuego, posee una energía formi-dable y el MICRO-COSMOS HOMBRE la capta de acuerdo con su propia forma de pensar, sentir y obrar.
+ARIES es un signo zodiacal de fuego, posee una energía formidable y el MICRO-COSMOS HOMBRE la capta de acuerdo con su propia forma de pensar, sentir y obrar.
 
 HITLER, que fue nativo de ARIES, utilizó este tipo de energía en forma destructiva, sin embargo, debemos reconocer que en principio, antes de cometer la locura de lanzar a la humanidad a la segunda guerra mundial, utilizó la energía de ARIES en forma constructiva, elevando el nivel de vida del PUEBLO ALEMÁN.
 
@@ -124,17 +130,19 @@ Los nativos de ARIES tienen una marcada tendencia a la riña son muy pendenciero
 
 Existe en los nativos de ARIES el grave defecto de querer utilizar siempre la fuerza de la voluntad en forma egoísta, estilo HITLER, ANTISOCIAL y destructiva.
 
-A los nativos de ARIES les agrada mucho la vida independiente, pero muchos ARIANOS prefieren la milicia y en ésta no existe inde-pendencia.
+A los nativos de ARIES les agrada mucho la vida independiente, pero muchos ARIANOS prefieren la milicia y en ésta no existe independencia.
 
 En el carácter de los ARIANOS prevalecen el orgullo, la confianza en sí mismos, la ambición y un valor verdaderamente loco.
 
-El metal de ARIES es el HIERRO, piedra, el RUBÍ, color, el RO-JO, elemento, el FUEGO.
+El metal de ARIES es el HIERRO, piedra, el RUBÍ, color, el ROJO, elemento, el FUEGO.
 
 A los nativos de ARIES les conviene el matrimonio con gentes de LIBRA, porque el fuego y el aire se comprenden muy bien.
 
-Si los nativos de ARIES quieren ser felices en el matrimonio, de-ben acabar con el defecto de la ira.
+Si los nativos de ARIES quieren ser felices en el matrimonio, deben acabar con el defecto de la ira.
 
 # CAPITULO 2
+
+![Imagen 4](Tratado Esoterico de Astrologia Hermetica/Tratado Esoterico de Astrologia Hermetica - 004 - CAPITULO 2.jpeg)
 
 Taurus
 
@@ -146,51 +154,51 @@ Siendo Taurus el SIGNO ZODIACAL que gobierna la LARINGE CREADORA, ese ÚTERO mar
 
 Existen siete órdenes de mundos, siete cosmos creados con el poder del Verbo, con la música, con el sonido.
 
-El primer COSMOS se encuentra sumergido entre la LUZ IN-CREADA del ABSOLUTO.
+El primer COSMOS se encuentra sumergido entre la LUZ INCREADA del ABSOLUTO.
 
-El segundo orden de mundos está constituido por todos los mun-dos del espacio infinito.
+El segundo orden de mundos está constituido por todos los mundos del espacio infinito.
 
 El tercer orden de mundos es la suma total de todos los soles del espacio estrellado.
 
 El cuarto orden de mundos es el Sol que nos alumbra con todas sus leyes y DIMENSIONES.
 
-El quinto orden de mundos está compuesto por todos los plane-tas del sistema solar.
+El quinto orden de mundos está compuesto por todos los planetas del sistema solar.
 
 El sexto orden de mundos es la Tierra en sí misma, con sus siete dimensiones y regiones pobladas por infinitos seres.
 
-El séptimo orden de mundos está formado por esas siete esferas concéntricas o MUNDOS INFIERNOS del REINO MINERAL SU-MERGIDO bajo la corteza de la Tierra.
+El séptimo orden de mundos está formado por esas siete esferas concéntricas o MUNDOS INFIERNOS del REINO MINERAL SUMERGIDO bajo la corteza de la Tierra.
 
 La música, el VERBO, colocado por el LOGOS en siete octavas musicales, sostiene al Universo firme en su marcha.
 
-Primer orden de mundos, nota DO. Segundo orden de mundos, nota SI. Tercer orden de mundos, nota LA. Cuarto orden de mundos, nota SOL. Quinto orden de mundos, nota FA. Sexto orden de mun-dos, nota MI. Séptimo orden de mundos, nota RE. Después todo vuelve al ABSOLUTO con la nota DO. Sin la música sin el VERBO, sin la GRAN PALABRA, sería impo-sible la existencia maravillosa de los SIETE COSMOS.
+Primer orden de mundos, nota DO. Segundo orden de mundos, nota SI. Tercer orden de mundos, nota LA. Cuarto orden de mundos, nota SOL. Quinto orden de mundos, nota FA. Sexto orden de mundos, nota MI. Séptimo orden de mundos, nota RE. Después todo vuelve al ABSOLUTO con la nota DO. Sin la música sin el VERBO, sin la GRAN PALABRA, sería imposible la existencia maravillosa de los SIETE COSMOS.
 
 DO-RE-MI-FA-SOL-LA-SI. SI-LA-SOL-FA-MI-RE-DO. Las siete notas de la GRAN ESCALA DEL VERBO CREADOR, resuenan en todo lo creado, porque en el principio era el VERBO.
 
-El primer orden de mundos está sabiamente gobernado por la ÚNICA LEY, por la GRAN LEY. El segundo orden de mundos está gobernado por TRES LEYES. El tercer orden de mundos está go-bernado por seis leyes. El cuarto orden de mundos está gobernado por doce leyes. El quinto orden de mundos está gobernado por vein-ticuatro leyes. El sexto orden de mundos está gobernado por cuaren-ta y ocho leyes. El séptimo orden de mundos está gobernado por noventa y seis leyes.
+El primer orden de mundos está sabiamente gobernado por la ÚNICA LEY, por la GRAN LEY. El segundo orden de mundos está gobernado por TRES LEYES. El tercer orden de mundos está gobernado por seis leyes. El cuarto orden de mundos está gobernado por doce leyes. El quinto orden de mundos está gobernado por veinticuatro leyes. El sexto orden de mundos está gobernado por cuarenta y ocho leyes. El séptimo orden de mundos está gobernado por noventa y seis leyes.
 
 Cuando se habla de la PALABRA, se habla también del sonido de la música, de los RITMOS, del FUEGO con sus tres compás del MAHAVAN y del CHOTAVAN que sostienen al UNIVERSO firme en su marcha.
 
-Los SEUDO-OCULTISTAS y SEUDO-ESOTERISTAS, sólo men-cionan al MICROCOSMOS, y al MACROCOSMOS, sólo citan dos órdenes de mundos, cuando en realidad son SIETE COSMOS, siete ordenes de mundos sostenidos por el VERBO, por la música, por el FIAT LUMINOSO y espermático del primer instante.
+Los SEUDO-OCULTISTAS y SEUDO-ESOTERISTAS, sólo mencionan al MICROCOSMOS, y al MACROCOSMOS, sólo citan dos órdenes de mundos, cuando en realidad son SIETE COSMOS, siete ordenes de mundos sostenidos por el VERBO, por la música, por el FIAT LUMINOSO y espermático del primer instante.
 
-Cada uno de los SIETE COSMOS es fuera de toda duda un or-ganismo viviente que respira, siente y vive.
+Cada uno de los SIETE COSMOS es fuera de toda duda un organismo viviente que respira, siente y vive.
 
-Desde el punto de vista ESOTÉRICO, podemos asegurar que to-do progreso hacia arriba, es el resultado de un avance hacia abajo. No se puede subir sin bajar. Primero hay que bajar y luego subir.
+Desde el punto de vista ESOTÉRICO, podemos asegurar que todo progreso hacia arriba, es el resultado de un avance hacia abajo. No se puede subir sin bajar. Primero hay que bajar y luego subir.
 
-Si queremos conocer un COSMOS, debemos primero conocer los dos adjuntos, que está encima y el que está debajo, porque ambos determinan todas las circunstancias y fenómenos vitales del COS-MOS que queremos estudiar, conocer.
+Si queremos conocer un COSMOS, debemos primero conocer los dos adjuntos, que está encima y el que está debajo, porque ambos determinan todas las circunstancias y fenómenos vitales del COSMOS que queremos estudiar, conocer.
 
-Ejemplo: En esta época en que los científicos luchan por la con-quista del espacio, se hacen tremendos avances desafortunadamen-te pequeño, en el mundo atómico.
+Ejemplo: En esta época en que los científicos luchan por la conquista del espacio, se hacen tremendos avances desafortunadamente pequeño, en el mundo atómico.
 
-La creación de los SIETE COSMOS sólo fue posible mediante el verbo, mediante la palabra, mediante la música. Nuestros estudiantes GNÓSTICOS no deben olvidar jamás lo que son las tres fuerzas llamadas PADRE-HIJO-ESPÍRITU SANTO. Es-tas tres fuerzas constituyen la SAGRADA TRIAMAZIKAMNO.
+La creación de los SIETE COSMOS sólo fue posible mediante el verbo, mediante la palabra, mediante la música. Nuestros estudiantes GNÓSTICOS no deben olvidar jamás lo que son las tres fuerzas llamadas PADRE-HIJO-ESPÍRITU SANTO. Estas tres fuerzas constituyen la SAGRADA TRIAMAZIKAMNO.
 
-Esta es la SAGRADA AFIRMACIÓN, la SAGRADA NEGACIÓN, la SAGRADA RECONCILIACIÓN; el SANTO DIOS, el SANTO FIR-ME, el SANTO INMORTAL.
+Esta es la SAGRADA AFIRMACIÓN, la SAGRADA NEGACIÓN, la SAGRADA RECONCILIACIÓN; el SANTO DIOS, el SANTO FIRME, el SANTO INMORTAL.
 
 En la electricidad, estos son los tres polos POSITIVO-NEGATIVO-NEUTRO. Sin el concurso de estos tres polos, resulta imposible toda la creación.
 
-En Ciencia ESOTÉRICA GNÓSTICA, las TRES FUERZAS inde-pendientes tienen los siguientes nombres: SURP-OTHEOS; SURP-SKI-ROS; SURP-ATHANATOS. FUERZA IMPULSORA, AFIRMATI-VA, POSITIVA. FUERZA NEGATIVA, FUERZA DE NEGACIÓN, FUERZA DE RESISTENCIA. FUERZA RECONCILIADORA, FUER-ZA LIBERADORA, FUERZA NEUTRALIZADORA.
+En Ciencia ESOTÉRICA GNÓSTICA, las TRES FUERZAS independientes tienen los siguientes nombres: SURP-OTHEOS; SURPSKI-ROS; SURP-ATHANATOS. FUERZA IMPULSORA, AFIRMATIVA, POSITIVA. FUERZA NEGATIVA, FUERZA DE NEGACIÓN, FUERZA DE RESISTENCIA. FUERZA RECONCILIADORA, FUERZA LIBERADORA, FUERZA NEUTRALIZADORA.
 
-Estas tres fuerzas en el RAYO DE LA CREACIÓN parecen tres voluntades, tres conciencias, tres unidades. Cada una de estas tres fuerzas contiene en SÍ MISMA todas las posibilidades de las tres. Empero en su punto de conjunción, cada una de ellas manifiesta so-lamente su principio: el positivo, el negativo o el neutro.
+Estas tres fuerzas en el RAYO DE LA CREACIÓN parecen tres voluntades, tres conciencias, tres unidades. Cada una de estas tres fuerzas contiene en SÍ MISMA todas las posibilidades de las tres. Empero en su punto de conjunción, cada una de ellas manifiesta solamente su principio: el positivo, el negativo o el neutro.
 
-Es interesantísimo ver las tres fuerzas en acción: ellas se sepa-ran, se alejan y luego se REENCUENTRAN para formar nuevas tri-nidades que originan mundos, nuevas creaciones.
+Es interesantísimo ver las tres fuerzas en acción: ellas se separan, se alejan y luego se REENCUENTRAN para formar nuevas trinidades que originan mundos, nuevas creaciones.
 
 En el ABSOLUTO, las tres fuerzas son el LOGOS ÚNICO, el EJÉRCITO DE LA VOZ dentro de la GRAN UNIDAD de la vida libre en su movimiento.
 
@@ -198,13 +206,13 @@ En el ABSOLUTO, las tres fuerzas son el LOGOS ÚNICO, el EJÉRCITO DE LA VOZ den
 
 CÓSMICA COMÚN se inició con el connubio sexual de la palabra porque en el principio era el verbo, y el verbo estaba con DIOS y el verbo era Dios. Por él todas las cosas fueron hechas y sin él nada de lo que es hecho, hubiera sido hecho.
 
-De acuerdo con la SAGRADA LEY DE HEPTAPARAPARS-HINOKH (LA LEY DEL SIETE), se establecieron siete templos en el CAOS para la construcción de este sistema solar.
+De acuerdo con la SAGRADA LEY DE HEPTAPARAPARSHINOKH (LA LEY DEL SIETE), se establecieron siete templos en el CAOS para la construcción de este sistema solar.
 
 De acuerdo con la LEY SAGRADA DE TRIAMAZIKAMNO (LA LEY DEL TRES), los ELOHIM se dividieron en tres grupos dentro de todo templo para cantar de acuerdo con la LITURGIA DEL FUEGO. El trabajo de hacer fecunda a la PRAKRITI, es decir el CAOS, a la MADRE CÓSMICA, el GRAN VIENTRE, es obra siempre del muy sagrado TEOMERSMALOGOS, la TERCERA FUERZA.
 
-Dentro de cada templo se organizaron los tres grupos así; Prime-ro, un SACERDOTE. Segundo, una SACERDOTISA. Tercero: un grupo neutro de ELOHIM.
+Dentro de cada templo se organizaron los tres grupos así; Primero, un SACERDOTE. Segundo, una SACERDOTISA. Tercero: un grupo neutro de ELOHIM.
 
-Si tenemos en cuenta que los ELOHIM son ANDRÓGINOS, en-tonces es claro que tuvieron que polarizarse a voluntad en forma MASCULINA, FEMENINA y NEUTRA, de acuerdo con la SAGRADA TRIAMAZIKAMNO CÓSMICA COMÚN.
+Si tenemos en cuenta que los ELOHIM son ANDRÓGINOS, entonces es claro que tuvieron que polarizarse a voluntad en forma MASCULINA, FEMENINA y NEUTRA, de acuerdo con la SAGRADA TRIAMAZIKAMNO CÓSMICA COMÚN.
 
 El SACERDOTE y la SACERDOTISA ante el altar y en la planta baja del templo, el coro ANDRÓGINO de los ELOHIM.
 
@@ -212,83 +220,85 @@ Los RITUALES DEL FUEGO fueron CANTADOS y el connubio sexual de la palabra hizo f
 
 Los ÁNGELES crean con el poder de la palabra. La Laringe es el útero donde se gesta la palabra.
 
-Nosotros debemos DESPERTAR CONCIENCIA en la PALABRA, en la LARINGE CREADORA, para que un día pueda también pro-nunciar el FIAT LUMINOSO Y ESPERMÁTICO del primer instante.
+Nosotros debemos DESPERTAR CONCIENCIA en la PALABRA, en la LARINGE CREADORA, para que un día pueda también pronunciar el FIAT LUMINOSO Y ESPERMÁTICO del primer instante.
 
-La CONCIENCIA duerme en nuestra laringe, somos inconscien-tes con la palabra, necesitamos hacernos plenamente CONSCIEN-TES de la PALABRA.
+La CONCIENCIA duerme en nuestra laringe, somos inconscientes con la palabra, necesitamos hacernos plenamente CONSCIENTES de la PALABRA.
 
-Dicen que el silencio es oro. Nosotros decimos que existen silen-cios criminosos. Es tan malo hablar cuando se debe callar, como callar cuando se debe hablar.
+Dicen que el silencio es oro. Nosotros decimos que existen silencios criminosos. Es tan malo hablar cuando se debe callar, como callar cuando se debe hablar.
 
-Hay veces que hablar es un delito, hay veces que callar es tam-bién otro delito.
+Hay veces que hablar es un delito, hay veces que callar es también otro delito.
 
-Semejantes a una bella flor, llena de colorido, pero falta de aro-ma, son las palabras hermosas, pero estériles de quien no obra de acuerdo con lo que dice.
+Semejantes a una bella flor, llena de colorido, pero falta de aroma, son las palabras hermosas, pero estériles de quien no obra de acuerdo con lo que dice.
 
-Pero semejantes a una bella flor, llena de colorido y llena de aro-ma, son las palabras hermosas y fecundas de quien obra de acuerdo con lo que dice.
+Pero semejantes a una bella flor, llena de colorido y llena de aroma, son las palabras hermosas y fecundas de quien obra de acuerdo con lo que dice.
 
-Es urgente terminar con la mecanicidad de la palabra, es necesa-rio hablar con precisión, en forma CONSCIENTE y oportuna. Necesi-tamos hacer CONCIENCIA del verbo.
+Es urgente terminar con la mecanicidad de la palabra, es necesario hablar con precisión, en forma CONSCIENTE y oportuna. Necesitamos hacer CONCIENCIA del verbo.
 
-Hay responsabilidad en las palabras y juzgar con el verbo es un sacrilegio. Nadie tiene derecho a juzgar a nadie; es absurdo calum-niar al prójimo; es estúpido murmurar de la vida ajena.
+Hay responsabilidad en las palabras y juzgar con el verbo es un sacrilegio. Nadie tiene derecho a juzgar a nadie; es absurdo calumniar al prójimo; es estúpido murmurar de la vida ajena.
 
 Las palabras criminosas caen sobre nosotros tarde o temprano, como un rayo de venganza. Las palabras calumniosas, infames, siempre retornan a quien la pronunció convertidas en piedras que hieren.
 
-En otros tiempos, cuando todavía los seres humanos no estaban tan mecanizados con esta falsa civilización, los vaqueros llevaban el ganado al establo cantando en forma deliciosa y sencillamente natu-ral.
+En otros tiempos, cuando todavía los seres humanos no estaban tan mecanizados con esta falsa civilización, los vaqueros llevaban el ganado al establo cantando en forma deliciosa y sencillamente natural.
 
-El TORO, la VACA, el ternerillo, se conmueven con la música, co-rresponden al signo zodiacal de TAURUS, la constelación del verbo de la música.
+El TORO, la VACA, el ternerillo, se conmueven con la música, corresponden al signo zodiacal de TAURUS, la constelación del verbo de la música.
 
 En la GRAN ALEGORÍA PURANICA, la tierra perseguida por PRITHU huye transformándose en VACA y refugiándose en BRA-HAMA. Pero este BRAHAMA es la primera Persona de la TRIMURTI Indostán VACH, la VACA es la segunda y VIRAH el VARÓN DIVINO, el ternerillo, el KABIR, el LOGOS, es la tercera persona.
 
 BRAHAMA es el PADRE. La VACA es la MADRE DIVINA, el CAOS; el TERNERILLO es el KABIR el LOGOS.
 
-PADRE, MADRE, HIJO, esa es la TRIMURTI PURANICA. El PA-DRE es SABIDURÍA. LA MADRE es AMOR, el HIJO es el LOGOS, el VERBO.
+PADRE, MADRE, HIJO, esa es la TRIMURTI PURANICA. El PADRE es SABIDURÍA. LA MADRE es AMOR, el HIJO es el LOGOS, el VERBO.
 
-La VACA ASTRAL de cinco patas que físicamente cree ver el Co-ronel Olcott, frente al maravilloso hipogeo de Karli; vaca extraña y misteriosa que ve cierto joven minero en los Andes, como exótica guardiana de aquellos tesoros que buscaban los mineros de su ran-chería, representa a la MADRE DIVINA, REA, CIBELES, desarrolla-da totalmente en el HOMBRE VERDADERO, en el MAESTRO AU-TO-REALIZADO.
+La VACA ASTRAL de cinco patas que físicamente cree ver el Coronel Olcott, frente al maravilloso hipogeo de Karli; vaca extraña y misteriosa que ve cierto joven minero en los Andes, como exótica guardiana de aquellos tesoros que buscaban los mineros de su ranchería, representa a la MADRE DIVINA, REA, CIBELES, desarrollada totalmente en el HOMBRE VERDADERO, en el MAESTRO AUTO-REALIZADO.
 
 GAUTAMA el BUDDHA o GOTAMA, significa literalmente el conductor de la VACA. Todo BOYERO, todo conductor de la VACA, puede usar el fuego JAINO de la VACA para entrar en las tierras, palacios, templos y ciudades de JINAS. Con el poder de la MADRE DIVINA podemos visitar el AGHARTI, las ciudades JINAS del mundo subterráneo.
 
-TAURUS nos invita a la REFLEXIÓN. Recordemos que MERCU-RIO se robó las VACAS DEL SOL.
+TAURUS nos invita a la REFLEXIÓN. Recordemos que MERCURIO se robó las VACAS DEL SOL.
 
 TAURUS gobierna la LARINGE CREADORA Es urgente que el KUNDALINI florezca en nuestros labios fecundos hecho VERBO, sólo así podemos usar el fuego JAINO para entrar en el REINO de los JINAS.
 
 En esta época de TAURUS debemos llevar LUZ a nuestra laringe creadora con el propósito de prepararla para el advenimiento del FUEGO.
 
-Siéntese el discípulo en un cómodo sillón; cierre los ojos físicos para que nada de este mundo vano y necio lo distraiga, vacíe la mente, arroje de su mente toda clase de pensamientos, deseos, pre-ocupaciones, etc. Imagine ahora que la LUZ acumulada durante ARIES en su cáliz, en su cabeza, pasa con TAURUS a la laringe creadora.
+Siéntese el discípulo en un cómodo sillón; cierre los ojos físicos para que nada de este mundo vano y necio lo distraiga, vacíe la mente, arroje de su mente toda clase de pensamientos, deseos, preocupaciones, etc. Imagine ahora que la LUZ acumulada durante ARIES en su cáliz, en su cabeza, pasa con TAURUS a la laringe creadora.
 
-Cante el devoto el MANTRAM AUM. Abra bien la boca con la A, imagine que la LUZ desciende de la cabeza a la laringe; vocalice la U, imaginando vivamente que la luz inunda la garganta; se debe re-dondear bien la boca para cantar la U.
+Cante el devoto el MANTRAM AUM. Abra bien la boca con la A, imagine que la LUZ desciende de la cabeza a la laringe; vocalice la U, imaginando vivamente que la luz inunda la garganta; se debe redondear bien la boca para cantar la U.
 
-La última letra es la M, cerrando los labios, expeliendo o arrojan-do el aliento con fuerza como eliminando las escorias de la garganta. Este trabajo se hace cantando cuatro veces el poderoso Mantram AUM.
+La última letra es la M, cerrando los labios, expeliendo o arrojando el aliento con fuerza como eliminando las escorias de la garganta. Este trabajo se hace cantando cuatro veces el poderoso Mantram AUM.
 
 En la GLÁNDULA TIROIDES que secreta el yodo biológico, se encuentra el centro magnético del OÍDO MÁGICO. Con las prácticas de TAURUS, se desarrolla el OÍDO MÁGICO, el poder de escuchar las sinfonías cósmicas, la música de las esferas, los RITMOS DEL FUEGO que sostienen a los siete cosmos de acuerdo con la ley de las octavas.
 
 La GLÁNDULA TIROIDES está situada en el cuello, en la laringe creadora.
 
-La GLÁNDULA TIROIDES está gobernada por Venus y las PA-RATIROIDES están gobernad por MARTE.
+La GLÁNDULA TIROIDES está gobernada por Venus y las PARATIROIDES están gobernad por MARTE.
 
 TAURUS es casa de VENUS. La Piedra de TAURUS es el AGA-TA, el metal de este signo es el COBRE.
 
-En la práctica hemos podido evidenciar que los TAURINOS no deben casarse con personas de ACUARIO, porque fracasan inevita-blemente, debido a la incompatibilidad de caracteres.
+En la práctica hemos podido evidenciar que los TAURINOS no deben casarse con personas de ACUARIO, porque fracasan inevitablemente, debido a la incompatibilidad de caracteres.
 
 El signo de TAURUS es fijo, de tierra, tiende a la estabilidad y como el signo de ACUARIO es aéreo, móvil revolucionario, es claro que resultan incompatibles.
 
 Los TAURINOS son como el buey, mansos y trabajadores, pero cuando se enfurecen son terribles como el TORO.
 
-Los TAURINOS pasan en su vida por GRANDES DECEPCIO-NES AMOROSAS, son reservados, conservadores, siguen paso a paso, como el buey, por el camino trazado.
+Los TAURINOS pasan en su vida por GRANDES DECEPCIONES AMOROSAS, son reservados, conservadores, siguen paso a paso, como el buey, por el camino trazado.
 
-Los TAURINOS son muy sensibles, la ira en los TAURINOS es de lento crecimiento y suele culminar en fuertes estallidos volcáni-cos.
+Los TAURINOS son muy sensibles, la ira en los TAURINOS es de lento crecimiento y suele culminar en fuertes estallidos volcánicos.
 
-El tipo mediocre de TAURUS suele ser muy egoísta, glotón, pen-denciero, pasional, iracundo, orgulloso.
+El tipo mediocre de TAURUS suele ser muy egoísta, glotón, pendenciero, pasional, iracundo, orgulloso.
 
 El tipo superior de TAURUS está lleno de AMOR, ama la música clásica, la Sabiduría, trabaja con alegría por la humanidad, es muy inteligente, comprensivo, fiel, sincero en la amistad, buen Padre, buena Madre, buen amigo, buen hermano, buen ciudadano, etc.
 
 La GRANDEZA MÍSTICA del MITRAICOTORO no comprendida por la gente superficial de esta época TENEBROSA del siglo veinte, degeneró más tarde en el culto al BECERRO DE ORO.
 
-LA VACA SAGRADA simboliza a ISIS, la MADRE DIVINA y su BECERRO o TERNERILLO representa a MERCURIO el MENSAJE-RO de los DIOSES, el KABIR, el LOGOS.
+LA VACA SAGRADA simboliza a ISIS, la MADRE DIVINA y su BECERRO o TERNERILLO representa a MERCURIO el MENSAJERO de los DIOSES, el KABIR, el LOGOS.
 
-En el signo del TORO se incluyen esotéricamente las PLÉYA-DES, las CABRILLAS o VACAS CELESTES, estas últimas parecen siete, pero en realidad son más de dos mil, con sus nebulosas Ma-yas, su estrella principal ALCYONE, y sus compañeras ATLAS, TAI-GETE, etc.
+En el signo del TORO se incluyen esotéricamente las PLÉYADES, las CABRILLAS o VACAS CELESTES, estas últimas parecen siete, pero en realidad son más de dos mil, con sus nebulosas Mayas, su estrella principal ALCYONE, y sus compañeras ATLAS, TAIGETE, etc.
 
-En torno del ojo rojizo del TORO o ALDEBARÁN, el único que con ANTARES, corazón del ESCORPIÓN, puede competir en colo-ración con MARTE, se agrupan en forma extraordinaria y maravillosa las telescópicas HYADAS, otra VACADA CELESTE. Tras el TORO viene el gigantesco ORION. Por encima y hacia el Norte de la CONSTELACIÓN DEL TORO, existe este grupo celeste, simbólico del REY CEFEO, CÉFIRO O ZÉFIRO, de la Reina Casio-pea; del Libertador Perseo con la cabeza de la Medusa entre sus manos y la Andrómeda, la liberada; mientras que delante ha salido la ballena rodeada de PISCIS y ACUARIO.
+En torno del ojo rojizo del TORO o ALDEBARÁN, el único que con ANTARES, corazón del ESCORPIÓN, puede competir en coloración con MARTE, se agrupan en forma extraordinaria y maravillosa las telescópicas HYADAS, otra VACADA CELESTE. Tras el TORO viene el gigantesco ORION. Por encima y hacia el Norte de la CONSTELACIÓN DEL TORO, existe este grupo celeste, simbólico del REY CEFEO, CÉFIRO O ZÉFIRO, de la Reina Casiopea; del Libertador Perseo con la cabeza de la Medusa entre sus manos y la Andrómeda, la liberada; mientras que delante ha salido la ballena rodeada de PISCIS y ACUARIO.
 
-El panorama de TAURUS y sus regiones siderales vecinas es re-almente asombroso.
+El panorama de TAURUS y sus regiones siderales vecinas es realmente asombroso.
 
 # CAPITULO 3
+
+![Imagen 5](Tratado Esoterico de Astrologia Hermetica/Tratado Esoterico de Astrologia Hermetica - 005 - CAPITULO 3.jpeg)
 
 Géminis
 
@@ -296,113 +306,113 @@ Géminis
 
 ## GÉMINIS
 
-La IDENTIFICACIÓN y la FASCINACIÓN conducen al SUEÑO de la CONCIENCIA. Ejemplo: Vais muy tranquilos por la calle; os en-contráis de pronto con una manifestación pública; vociferan las multi-tudes, hablan los Líderes del pueblo, ondean al aire las banderas, las gentes parecen como locas, todos hablan, todos gritan.
+La IDENTIFICACIÓN y la FASCINACIÓN conducen al SUEÑO de la CONCIENCIA. Ejemplo: Vais muy tranquilos por la calle; os encontráis de pronto con una manifestación pública; vociferan las multitudes, hablan los Líderes del pueblo, ondean al aire las banderas, las gentes parecen como locas, todos hablan, todos gritan.
 
-Aquella MANIFESTACIÓN PÚBLICA está muy interesante; ya vosotros os olvidasteis de todo lo que teníais que hacer, os identific-áis con las multitudes, las palabras de los oradores os convencen.
+Aquella MANIFESTACIÓN PÚBLICA está muy interesante; ya vosotros os olvidasteis de todo lo que teníais que hacer, os identificáis con las multitudes, las palabras de los oradores os convencen.
 
-Tan interesante está la MANIFESTACIÓN PÚBLICA habéis olvi-dado de Sí MISMOS, os habéis IDENTIFICADO tanto con aquella MANIFESTACIÓN CALLEJERA, que ya no pensáis en otra cosa, estáis fascinados, ahora caéis en el sueño de la conciencia; mezcla-dos con las multitudes que gritan, vosotros también gritáis y hasta lanzáis piedras e insultos; estáis soñando a lo lindo, ya ni sabéis quien sois, se os ha olvidado todo.
+Tan interesante está la MANIFESTACIÓN PÚBLICA habéis olvidado de Sí MISMOS, os habéis IDENTIFICADO tanto con aquella MANIFESTACIÓN CALLEJERA, que ya no pensáis en otra cosa, estáis fascinados, ahora caéis en el sueño de la conciencia; mezclados con las multitudes que gritan, vosotros también gritáis y hasta lanzáis piedras e insultos; estáis soñando a lo lindo, ya ni sabéis quien sois, se os ha olvidado todo.
 
-Vamos ahora a ponernos otro ejemplo más sencillo: Estáis en la sala de tu casa sentados ante la pantalla de televisión, aparecen es-cenas de vaqueros, hay balaceras, dramas de enamorados, etc., etc.
+Vamos ahora a ponernos otro ejemplo más sencillo: Estáis en la sala de tu casa sentados ante la pantalla de televisión, aparecen escenas de vaqueros, hay balaceras, dramas de enamorados, etc., etc.
 
-La película resulta muy interesante, ha llamado totalmente vues-tra atención, ya os habéis olvidado tanto de Sí MISMOS, que hasta gritáis entusiasmados, estáis IDENTIFICADOS con los vaqueros, con los balazos, con la pareja de enamorados.
+La película resulta muy interesante, ha llamado totalmente vuestra atención, ya os habéis olvidado tanto de Sí MISMOS, que hasta gritáis entusiasmados, estáis IDENTIFICADOS con los vaqueros, con los balazos, con la pareja de enamorados.
 
 La Fascinación es ahora terrible, ya ni remotamente os acordáis de sí mismos, habéis entrado en un sueño muy profundo, en esos momentos sólo queréis ver el triunfo del héroe de la película, en esos momentos sólo queréis la suerte que él pueda correr.
 
-Son millares y millones las circunstancias que producen IDENTI-FICACIÓN, FASCINACIÓN, SUEÑO.
+Son millares y millones las circunstancias que producen IDENTIFICACIÓN, FASCINACIÓN, SUEÑO.
 
 Las gentes se IDENTIFICAN con las PERSONAS, las IDEAS y a todo género de IDENTIFICACIÓN le sigue la FASCINACIÓN y el SUEÑO.
 
-Las gentes viven con la CONCIENCIA DORMIDA, trabajan so-ñando, manejan carros soñando y también matan a los peatones que van soñando por las calles, absortos en sus propios pensamientos.
+Las gentes viven con la CONCIENCIA DORMIDA, trabajan soñando, manejan carros soñando y también matan a los peatones que van soñando por las calles, absortos en sus propios pensamientos.
 
-Durante las horas de reposo del cuerpo físico, el EGO(YO) se sa-le del CUERPO FÍSICO y se lleva sus sueños a donde quiera que va. Al volver al cuerpo físico, al entrar nuevamente al estado de Vigi-lia, continúa con sus mismos sueños y así pasa toda su vida soñan-do.
+Durante las horas de reposo del cuerpo físico, el EGO(YO) se sale del CUERPO FÍSICO y se lleva sus sueños a donde quiera que va. Al volver al cuerpo físico, al entrar nuevamente al estado de Vigilia, continúa con sus mismos sueños y así pasa toda su vida soñando.
 
-Las personas que mueren dejan de existir, pero el EGO, el YO, continúa en las regiones SUPRASENSIBLES más allá de la muerte. A la hora de la muerte el EGO se lleva sus sueños, su mundanalidad y vive en el mundo de los muertos con sus sueños, continúa soñan-do, con la CONCIENCIA dormida, ambula como un sonámbulo, dor-mido, inconsciente.
+Las personas que mueren dejan de existir, pero el EGO, el YO, continúa en las regiones SUPRASENSIBLES más allá de la muerte. A la hora de la muerte el EGO se lleva sus sueños, su mundanalidad y vive en el mundo de los muertos con sus sueños, continúa soñando, con la CONCIENCIA dormida, ambula como un sonámbulo, dormido, inconsciente.
 
 Quien quiera DESPERTAR CONCIENCIA debe trabajarla aquí y ahora. Tenemos la CONCIENCIA ENCARNADA y por ello debemos TRABAJARLA aquí y ahora. Quien DESPIERTA CONCIENCIA aquí en este mundo despierta en todos los Mundos.
 
-Quien DESPIERTA CONCIENCIA en este MUNDO TRIDIMEN-SIONAL DESPIERTA en las DIMENSIONES cuarta, quinta, sexta y séptima.
+Quien DESPIERTA CONCIENCIA en este MUNDO TRIDIMENSIONAL DESPIERTA en las DIMENSIONES cuarta, quinta, sexta y séptima.
 
-Quien quiera vivir CONSCIENTE en los MUNDOS SUPERIO-RES, debe DESPERTAR aquí y ahora.
+Quien quiera vivir CONSCIENTE en los MUNDOS SUPERIORES, debe DESPERTAR aquí y ahora.
 
 Los cuatro evangelios insisten en la necesidad de DESPERTAR, pero las gentes no entienden.
 
-Las gentes duermen profundamente, pero creen que están des-piertas, cuando alguien acepta que está dormido, es señal clara de que ya comienza a despertar.
+Las gentes duermen profundamente, pero creen que están despiertas, cuando alguien acepta que está dormido, es señal clara de que ya comienza a despertar.
 
 Es muy difícil hacerle comprender a otras personas que tienen la CONCIENCIA dormida, las gentes no aceptan jamás la tremenda verdad de que están dormidas.
 
-Quien quiera DESPERTAR CONCIENCIA debe practicar de MOMENTO en MOMENTO la ÍNTIMA RECORDACIÓN DE Sí MIS-MO.
+Quien quiera DESPERTAR CONCIENCIA debe practicar de MOMENTO en MOMENTO la ÍNTIMA RECORDACIÓN DE Sí MISMO.
 
 Esto de estarse RECORDANDO a sí mismo de MOMENTO, en MOMENTO, es de hecho un trabajo intensivo.
 
-Basta un momento, un instante de olvido para comenzar a soñar a lo lindo. Necesitamos con URGENCIA estar vigilando todos nuestros pen-samientos, sentimientos, deseos, emociones, hábitos, instintos, im-pulsos sexuales, etc.
+Basta un momento, un instante de olvido para comenzar a soñar a lo lindo. Necesitamos con URGENCIA estar vigilando todos nuestros pensamientos, sentimientos, deseos, emociones, hábitos, instintos, impulsos sexuales, etc.
 
-Todo pensamiento, toda emoción, todo movimiento, todo acto ins-tintivo todo impulso sexual, deben ser auto-observados inmediata-mente conforme van surgiendo en nuestra PSIQUIS; cualquier des-cuido en la atención, es suficiente como para caer en el sueño de la CONCIENCIA.
+Todo pensamiento, toda emoción, todo movimiento, todo acto instintivo todo impulso sexual, deben ser auto-observados inmediatamente conforme van surgiendo en nuestra PSIQUIS; cualquier descuido en la atención, es suficiente como para caer en el sueño de la CONCIENCIA.
 
-Muchas veces vais por la calle absortos en vuestros propios pen-samientos, identificados con esos pensamientos, fascinados, soñan-do a lo lindo; de pronto pasa un amigo junto a vosotros, os saluda, no le contestáis el saludo porque no lo veis, estáis soñando; el amigo se enoja, supone que vosotros sois gentes sin educación o que po-siblemente estáis enojados, el amigo también va soñando, si estuvie-ra despierto no se haría a si mismo semejantes conjeturas, se daría cuenta de inmediato que vosotros vais dormidos.
+Muchas veces vais por la calle absortos en vuestros propios pensamientos, identificados con esos pensamientos, fascinados, soñando a lo lindo; de pronto pasa un amigo junto a vosotros, os saluda, no le contestáis el saludo porque no lo veis, estáis soñando; el amigo se enoja, supone que vosotros sois gentes sin educación o que posiblemente estáis enojados, el amigo también va soñando, si estuviera despierto no se haría a si mismo semejantes conjeturas, se daría cuenta de inmediato que vosotros vais dormidos.
 
 Son muchas las veces en que os equivocáis de puerta y golpeáis donde no debéis golpear, porque estáis dormidos.
 
-Vais en un vehículo de transporte de la ciudad, tenéis que bajaros en determinada calle, pero vais identificado, fascinado, soñando a lo lindo con un negocio en vuestra mente, o con un recuerdo, o con un afecto, de pronto os habéis dado cuenta de que os habéis pasado de calle, hacéis detener el vehículo y luego a regresar a pie unas cuan-tas calles.
+Vais en un vehículo de transporte de la ciudad, tenéis que bajaros en determinada calle, pero vais identificado, fascinado, soñando a lo lindo con un negocio en vuestra mente, o con un recuerdo, o con un afecto, de pronto os habéis dado cuenta de que os habéis pasado de calle, hacéis detener el vehículo y luego a regresar a pie unas cuantas calles.
 
-Es muy difícil mantenerse despierto de momento en momento pe-ro es INDISPENSABLE.
+Es muy difícil mantenerse despierto de momento en momento pero es INDISPENSABLE.
 
 Cuando aprendemos a vivir despiertos de momento en momento, entonces dejamos de soñar aquí y fuera del cuerpo físico.
 
 Es necesario saber que las gentes al dormirse se salen de sus cuerpos, pero se llevan sus sueños, viven en los mundos internos soñando y al regresar al cuerpo físico, continúan con sus sueños, continúan soñando.
 
-Cuando uno aprende a vivir DESPIERTO de momento a momen-to, deja de soñar aquí y en los mundos internos.
+Cuando uno aprende a vivir DESPIERTO de momento a momento, deja de soñar aquí y en los mundos internos.
 
 Es necesario saber que el EGO (YO) envuelto en sus CUERPOS LUNARES, se SALE del CUERPO FÍSICO cuando el cuerpo se duerme, desgraciadamente el EGO vive dormido en los MUNDOS INTERNOS.
 
-Dentro de los CUERPOS LUNARES existe además del EGO, lo que se llama ESENCIA, ALMA, FRACCIÓN DE ALMA, BUDHATA, CONCIENCIA. Es a esa CONCIENCIA a la que debemos DESPER-TAR aquí y ahora.
+Dentro de los CUERPOS LUNARES existe además del EGO, lo que se llama ESENCIA, ALMA, FRACCIÓN DE ALMA, BUDHATA, CONCIENCIA. Es a esa CONCIENCIA a la que debemos DESPERTAR aquí y ahora.
 
 Aquí en este mundo tenemos la CONCIENCIA, aquí debemos DESPERTARLA, si es que de verdad queremos dejar de soñar y vivir conscientes en los mundos superiores.
 
-La PERSONA con conciencia despierta mientras su cuerpo repo-sa en su cama, vive, trabaja, actúa consciente en los MUNDOS SU-PERIORES.
+La PERSONA con conciencia despierta mientras su cuerpo reposa en su cama, vive, trabaja, actúa consciente en los MUNDOS SUPERIORES.
 
-La persona CONSCIENTE no tiene problemas de DESDOBLA-MIENTO, el problema de aprender a DESDOBLARSE a voluntad es tan sólo para los DORMIDOS.
+La persona CONSCIENTE no tiene problemas de DESDOBLAMIENTO, el problema de aprender a DESDOBLARSE a voluntad es tan sólo para los DORMIDOS.
 
-La persona DESPIERTA ni siquiera se preocupa por aprender a desdoblarse, vive consciente en los MUNDOS SUPERIORES, mien-tras su cuerpo físico duerme en la cama.
+La persona DESPIERTA ni siquiera se preocupa por aprender a desdoblarse, vive consciente en los MUNDOS SUPERIORES, mientras su cuerpo físico duerme en la cama.
 
-La persona despierta ya NO SUEÑA, durante el reposo del cuer-po vive en esas regiones donde la gente anda soñando, pero con la CONCIENCIA DESPIERTA.
+La persona despierta ya NO SUEÑA, durante el reposo del cuerpo vive en esas regiones donde la gente anda soñando, pero con la CONCIENCIA DESPIERTA.
 
-La PERSONA DESPIERTA está en contacto con la LOGIA BLANCA, visita los TEMPLOS de la GRAN FRATERNIDAD UNI-VERSAL BLANCA, se entrevista con su GURÚ-DEVA, mientras cuerpo duerme.
+La PERSONA DESPIERTA está en contacto con la LOGIA BLANCA, visita los TEMPLOS de la GRAN FRATERNIDAD UNIVERSAL BLANCA, se entrevista con su GURÚ-DEVA, mientras cuerpo duerme.
 
-La INTIMA RECORDACIÓN DE SI MISMO de momento en mo-mento, desarrolla el sentido ESPACIAL y entonces hasta podemos ver los sueños de las gentes que andan por las calles.
+La INTIMA RECORDACIÓN DE SI MISMO de momento en momento, desarrolla el sentido ESPACIAL y entonces hasta podemos ver los sueños de las gentes que andan por las calles.
 
 El SENTIDO ESPACIAL incluye en Sí MISMO, vista, oído, olfato, gusto, tacto, etc. El SENTIDO ESPACIAL es el FUNCIONALISMO de la CONCIENCIA DESPIERTA.
 
-Los CHACRAS, de los cuales habla la literatura ocultista, con re-lación al sentido espacial, son lo que la llama de un cerillo, con rela-ción al Sol.
+Los CHACRAS, de los cuales habla la literatura ocultista, con relación al sentido espacial, son lo que la llama de un cerillo, con relación al Sol.
 
-Si bien la ÍNTIMA RECORDACIÓN de sí mismo de momento en momento, es fundamental para DESPERTAR CONCIENCIA, no lo es menos aprender a manejar la ATENCIÓN. Los estudiantes GNÓSTICOS deben aprender a dividir la ATEN-CIÓN en tres partes: SUJETO, OBJETO, LUGAR.
+Si bien la ÍNTIMA RECORDACIÓN de sí mismo de momento en momento, es fundamental para DESPERTAR CONCIENCIA, no lo es menos aprender a manejar la ATENCIÓN. Los estudiantes GNÓSTICOS deben aprender a dividir la ATENCIÓN en tres partes: SUJETO, OBJETO, LUGAR.
 
-SUJETO. No caer en el olvido de SÍ MISMO ante ninguna repre-sentación.
+SUJETO. No caer en el olvido de SÍ MISMO ante ninguna representación.
 
-OBJETO. Observar en detalle toda cosa, toda representación, to-do hecho, todo suceso por insignificante que éste parezca, sin el AUTO-OLVIDO de Sí MISMO.
+OBJETO. Observar en detalle toda cosa, toda representación, todo hecho, todo suceso por insignificante que éste parezca, sin el AUTO-OLVIDO de Sí MISMO.
 
 LUGAR, Observación rigurosa del lugar donde nos hallemos, preguntándonos a Sí MISMOS: ¿Qué lugar es éste?¿Por qué estoy aquí?
 
-Dentro de este factor LUGAR, debemos incluir la cuestión DI-MENSIONAL, pues podría darse el caso de encontrarnos realmente en la cuarta o en la quinta DIMENSIÓN de la naturaleza durante el momento de OBSERVACIÓN; recordemos que la naturaleza tiene siete DIMENSIONES.
+Dentro de este factor LUGAR, debemos incluir la cuestión DIMENSIONAL, pues podría darse el caso de encontrarnos realmente en la cuarta o en la quinta DIMENSIÓN de la naturaleza durante el momento de OBSERVACIÓN; recordemos que la naturaleza tiene siete DIMENSIONES.
 
-Dentro del MUNDO TRIDIMENSIONAL reina la ley de la grave-dad. Dentro de las DIMENSIONES SUPERIORES de la naturaleza, existe la Ley de la LEVITACIÓN.
+Dentro del MUNDO TRIDIMENSIONAL reina la ley de la gravedad. Dentro de las DIMENSIONES SUPERIORES de la naturaleza, existe la Ley de la LEVITACIÓN.
 
-Al observar un lugar, no debemos olvidar jamás la cuestión de las siete DIMENSIONES de la naturaleza; conviene entonces pregun-tarnos a Sí MISMOS:¿ En qué DIMENSIÓN estoy?, y luego es nece-sario, a modo de verificación, dar un saltito lo más largo posible con la intención de flotar en el ambiente circundante. Es lógico que si flotamos es porque nos encontramos fuera del CUERPO FÍSICO. No debemos olvidar jamás que cuando el cuerpo físico duerme, el EGO con los CUERPOS LUNARES y la ESENCIA adentro, ambula in-consciente como un sonámbulo en el MUNDO MOLECULAR.
+Al observar un lugar, no debemos olvidar jamás la cuestión de las siete DIMENSIONES de la naturaleza; conviene entonces preguntarnos a Sí MISMOS:¿ En qué DIMENSIÓN estoy?, y luego es necesario, a modo de verificación, dar un saltito lo más largo posible con la intención de flotar en el ambiente circundante. Es lógico que si flotamos es porque nos encontramos fuera del CUERPO FÍSICO. No debemos olvidar jamás que cuando el cuerpo físico duerme, el EGO con los CUERPOS LUNARES y la ESENCIA adentro, ambula inconsciente como un sonámbulo en el MUNDO MOLECULAR.
 
-La DIVISIÓN DE LA ATENCIÓN entre SUJETO, OBJETO, LU-GAR, conduce al DESPERTAR de la CONCIENCIA.
+La DIVISIÓN DE LA ATENCIÓN entre SUJETO, OBJETO, LUGAR, conduce al DESPERTAR de la CONCIENCIA.
 
-Muchos estudiantes GNÓSTICOS después de acostumbrarse a este ejercicio, a esta DIVISIÓN DE LA ATENCIÓN en tres partes, a estas preguntas, a este saltito, etc., durante el estado de vigilia, de momento en momento, resultaron practicando el mismo ejercicio du-rante el sueño del cuerpo físico, cuando realmente estaban en los mundos superiores y al dar el famoso saltito experimental, flotaron deliciosamente en el ambiente circundante; entonces despertaron CONCIENCIA, entonces recordaron que el cuerpo físico había que-dado dormido entre la cama y llenos de gozo pudieron dedicarse al estudio de los MISTERIOS de la vida y de la MUERTE, en las DI-MENSIONES SUPERIORES.
+Muchos estudiantes GNÓSTICOS después de acostumbrarse a este ejercicio, a esta DIVISIÓN DE LA ATENCIÓN en tres partes, a estas preguntas, a este saltito, etc., durante el estado de vigilia, de momento en momento, resultaron practicando el mismo ejercicio durante el sueño del cuerpo físico, cuando realmente estaban en los mundos superiores y al dar el famoso saltito experimental, flotaron deliciosamente en el ambiente circundante; entonces despertaron CONCIENCIA, entonces recordaron que el cuerpo físico había quedado dormido entre la cama y llenos de gozo pudieron dedicarse al estudio de los MISTERIOS de la vida y de la MUERTE, en las DIMENSIONES SUPERIORES.
 
-Es apenas LÓGICO decir que un ejercicio que se práctica de momento en momento diariamente, que se convierte en un hábito, en una costumbre, se grava tanto en las distintas zonas de la MEN-TE, que después se repite automáticamente durante el sueño, cuan-do realmente estamos fuera del cuerpo físico y el resultado es el DESPERTAR de la CONCIENCIA.
+Es apenas LÓGICO decir que un ejercicio que se práctica de momento en momento diariamente, que se convierte en un hábito, en una costumbre, se grava tanto en las distintas zonas de la MENTE, que después se repite automáticamente durante el sueño, cuando realmente estamos fuera del cuerpo físico y el resultado es el DESPERTAR de la CONCIENCIA.
 
-GÉMINIS es un signo de aire, gobernado por el PLANETA MER-CURIO. GÉMINIS gobierna los pulmones, brazos y piernas.
+GÉMINIS es un signo de aire, gobernado por el PLANETA MERCURIO. GÉMINIS gobierna los pulmones, brazos y piernas.
 
-PRÁCTICA. Durante el SIGNO ZODIACAL DE GÉMINIS, los es-tudiantes Gnósticos deben acostarse de espaldas y relajar el cuerpo. Luego hay que inhalar el aire cinco veces y exhalarlo otras cinco; al inhalar hay que imaginar que la luz antes acumulada en la laringe, actúa ahora en los bronquios y pulmones. Al inhalar se abrirán pier-nas y brazos a derecha e izquierda, al exhalar se cerrarán piernas y brazos.
+PRÁCTICA. Durante el SIGNO ZODIACAL DE GÉMINIS, los estudiantes Gnósticos deben acostarse de espaldas y relajar el cuerpo. Luego hay que inhalar el aire cinco veces y exhalarlo otras cinco; al inhalar hay que imaginar que la luz antes acumulada en la laringe, actúa ahora en los bronquios y pulmones. Al inhalar se abrirán piernas y brazos a derecha e izquierda, al exhalar se cerrarán piernas y brazos.
 
 El metal de GÉMINIS es el MERCURIO, piedra el BERILO ORO, color AMARILLO.
 
-Los nativos de GÉMINIS aman mucho los viajes, cometen el error de despreciar la sabia voz del corazón, quieren resolverlo todo con la mente, se enojan fácilmente, son muy dinámicos, versátiles, volu-bles, irritables, inteligentes, sus vidas están llenas de éxitos y de fra-casos, poseen un valor loco.
+Los nativos de GÉMINIS aman mucho los viajes, cometen el error de despreciar la sabia voz del corazón, quieren resolverlo todo con la mente, se enojan fácilmente, son muy dinámicos, versátiles, volubles, irritables, inteligentes, sus vidas están llenas de éxitos y de fracasos, poseen un valor loco.
 
-Los nativos de Géminis son problemáticos por su raro DUALIS-MO, por esa DOBLE PERSONALIDAD que los caracteriza y que está simbolizada entre los Griegos por esos MISTERIOSOS HER-MANOS llamados CASTOR y PÓLUX.
+Los nativos de Géminis son problemáticos por su raro DUALISMO, por esa DOBLE PERSONALIDAD que los caracteriza y que está simbolizada entre los Griegos por esos MISTERIOSOS HERMANOS llamados CASTOR y PÓLUX.
 
 El nativo de GÉMINIS jamás se sabe como va a proceder en tal o cual caso, debido precisamente a su DOBLE PERSONALIDAD.
 
@@ -412,9 +422,9 @@ El tipo inferior de GÉMINIS es muy peligroso y por ello no es aconsejable su am
 
 El defecto más grave de los nativos de GÉMINIS, es la tendencia a juzgar falsamente a todas las personas.
 
-Los gemelos CASTOR y PÓLUX nos invitan a la reflexión. Es sa-bido, en efecto, que en la naturaleza la materia manifestada y la oculta energía simbolizada en el calor, la luz, la electricidad, las fuer-zas químicas y otras superiores que todavía son para nosotros des-conocidas, se procesan siempre en forma inversa y la aparición de la una presupone siempre la ENTROPÍA o DESAPARICIÓN de la otra, ni más ni menos que los MISTERIOSOS HERMANOS CASTOR y PÓLUX, símbolo de tal fenómeno entre los Griegos. Ellos vivían y morían alternativamente como alternativamente nacen y mueren, aparecen y desaparecen, doquiera la materia y la energía.
+Los gemelos CASTOR y PÓLUX nos invitan a la reflexión. Es sabido, en efecto, que en la naturaleza la materia manifestada y la oculta energía simbolizada en el calor, la luz, la electricidad, las fuerzas químicas y otras superiores que todavía son para nosotros desconocidas, se procesan siempre en forma inversa y la aparición de la una presupone siempre la ENTROPÍA o DESAPARICIÓN de la otra, ni más ni menos que los MISTERIOSOS HERMANOS CASTOR y PÓLUX, símbolo de tal fenómeno entre los Griegos. Ellos vivían y morían alternativamente como alternativamente nacen y mueren, aparecen y desaparecen, doquiera la materia y la energía.
 
-El proceso de GÉMINIS es vital en la COSMOGÉNESIS. La Tie-rra original fue un sol que se condensó gradualmente a expensas de un anillo nebuloso, hasta el estado lamentable de plata obscurecido, cuando se determinó por irradiación o enfriamiento la primera pelícu-la sólida de nuestro globo mediante el fenómeno químico de disipa-ción o ENTROPÍA de la energía que constituye los estados groseros de la materia a los que denominamos sólidos y líquidos.
+El proceso de GÉMINIS es vital en la COSMOGÉNESIS. La Tierra original fue un sol que se condensó gradualmente a expensas de un anillo nebuloso, hasta el estado lamentable de plata obscurecido, cuando se determinó por irradiación o enfriamiento la primera película sólida de nuestro globo mediante el fenómeno químico de disipación o ENTROPÍA de la energía que constituye los estados groseros de la materia a los que denominamos sólidos y líquidos.
 
 Todos estos cambios en la naturaleza se realizan de acuerdo con los íntimos procesos de CASTOR y PÓLUX.
 
@@ -428,13 +438,13 @@ En el ANIMAL INTELECTUAL común y corriente, el SER, el ÍNTIMO, no NACE ni muer
 
 Es urgente saber que el BUDHATA, la ESENCIA, está depositada dentro de los CUERPOS LUNARES con los cuales se viste el EGO.
 
-Hablando en forma un poco más clara, diremos que la ESENCIA está desgraciadamente embotellada entre el EGO LUNAR. Los per-didos descienden.
+Hablando en forma un poco más clara, diremos que la ESENCIA está desgraciadamente embotellada entre el EGO LUNAR. Los perdidos descienden.
 
-El descenso a los MUNDOS-INFIERNOS, sólo tiene por objeto destruir los CUERPOS LUNARES y EL EGO, mediante la INVOLU-CIÓN SUMERGIDA. Sólo destruyendo la botella, se escapa la ESENCIA.
+El descenso a los MUNDOS-INFIERNOS, sólo tiene por objeto destruir los CUERPOS LUNARES y EL EGO, mediante la INVOLUCIÓN SUMERGIDA. Sólo destruyendo la botella, se escapa la ESENCIA.
 
 Todos esos incesantes cambios de MATERIA en ENERGÍA y energía en materia, nos invita siempre a reflexionar en GÉMINIS.
 
-Géminis está íntimamente relacionado con los bronquios, pulmo-nes y la respiración. El MICROCOSMOS-HOMBRE está hecho a imagen y semejanza del MACRO-COSMOS.
+Géminis está íntimamente relacionado con los bronquios, pulmones y la respiración. El MICROCOSMOS-HOMBRE está hecho a imagen y semejanza del MACRO-COSMOS.
 
 LA TIERRA también respira. La tierra inhala el SULPHUR vital del SOL y luego lo exhala ya convertido en SULFHUR terrestre; esto es, análogo al hombre que inhala oxígeno puro y lo exhala convertido en anhídrido carbónico.
 
@@ -442,15 +452,17 @@ Esta oleada vital, alternativamente ascendente y descendente, verdadero sístole
 
 # CAPÍTULO 4
 
+![Imagen 6](Tratado Esoterico de Astrologia Hermetica/Tratado Esoterico de Astrologia Hermetica - 006 - CAPÍTULO 4.png)
+
 Cáncer
 
 **(22 de Junio a 23 de Julio) CÁNCER**
 
 "Al dejar el cuerpo, tomando el sendero del fuego, de la luz del día, de la quincena luminosa de la Luna y del solsticio septentrional, los conocedores de BRAHAMA, van a BRAHAMA". (Versículo 24, Capítulo 8-Bhagavad-Gita).
 
-"El YOGUI que, al morir va por el sendero del humo, de la quin-cena obscura de la Luna y del solsticio meridional llega a la esfera Lunar, y luego renace". (Versículo 25, Capitulo 8-Bhagavad-Gita).
+"El YOGUI que, al morir va por el sendero del humo, de la quincena obscura de la Luna y del solsticio meridional llega a la esfera Lunar, y luego renace". (Versículo 25, Capitulo 8-Bhagavad-Gita).
 
-"Estos dos senderos, el luminoso y el oscuro, son considerados permanentes. Por el primero, se emancipa, y, por el segundo se re-nace". (Versículo 26, Capítulo 8-Bhagavad-Gita).
+"Estos dos senderos, el luminoso y el oscuro, son considerados permanentes. Por el primero, se emancipa, y, por el segundo se renace". (Versículo 26, Capítulo 8-Bhagavad-Gita).
 
 "El SER no nace, ni muere, ni se reencarna; no tiene origen; es eterno, inmutable, el primero de todos, y no muere cuando matan el cuerpo". (Versículo 20, Capítulo 8-Bhagavad-Gita).
 
@@ -462,27 +474,27 @@ El EGO nace, el EGO muere. Distíngase entre el EGO y el SER. El SER no NACE ni 
 
 "El cuerpo, el EGO, los órganos, las funciones y las Deidades (PLANETAS) que presiden los órganos, son esas las cinco causas". (Versículo 14, Capítulo 18-Bhagavad-Gita).
 
-"Cualquier acto debido o indebido, sea físico, verbal o mental, tie-ne esas cinco causas". (Versículo 15, Capítulo 18, Bhagavad-Gita).
+"Cualquier acto debido o indebido, sea físico, verbal o mental, tiene esas cinco causas". (Versículo 15, Capítulo 18, Bhagavad-Gita).
 
-"Siendo así el caso, aquel por la defectuosa comprensión consi-dera el ATMAN (EL SER), a lo ABSOLUTO, como actor, ese necio no ve la REALIDAD". (Versículo 16-Capítulo 81-Bhagavad Gita).
+"Siendo así el caso, aquel por la defectuosa comprensión considera el ATMAN (EL SER), a lo ABSOLUTO, como actor, ese necio no ve la REALIDAD". (Versículo 16-Capítulo 81-Bhagavad Gita).
 
 El BHAGAVAD GITA hace, pues, una diferencia entre el EGO (YO), y el SER (el ATMAN).
 
-El ANIMAL INTELECTUAL equivocadamente llamado HOM-BRE.es un compuesto de CUERPO, EGO (YO), ÓRGANOS y fun-ciones. Una máquina movida por las DEIDADES o mejor dijéramos, los PLANETAS.
+El ANIMAL INTELECTUAL equivocadamente llamado HOMBRE.es un compuesto de CUERPO, EGO (YO), ÓRGANOS y funciones. Una máquina movida por las DEIDADES o mejor dijéramos, los PLANETAS.
 
-Muchas veces basta cualquier catástrofe cósmica, para que la ondas que llegan a la tierra, lancen esas máquinas humanas dormi-das, a los campos de batalla. Millones de máquinas dormidas, contra millones de máquinas dormidas.
+Muchas veces basta cualquier catástrofe cósmica, para que la ondas que llegan a la tierra, lancen esas máquinas humanas dormidas, a los campos de batalla. Millones de máquinas dormidas, contra millones de máquinas dormidas.
 
 La LUNA trae los EGOS a la matriz y la Luna se los lleva. Max Heindel dice que la CONCEPCIÓN se realiza siempre estando la LUNA en CÁNCER. Sin la Luna la concepción es imposible.
 
-Los primeros siete años de vida están gobernados por la LUNA. Los segundos siete años de vida son MERCURIANOS en un cien por ciento, entonces el niño va a la Escuela, está intranquilo, en in-cesante movimiento.
+Los primeros siete años de vida están gobernados por la LUNA. Los segundos siete años de vida son MERCURIANOS en un cien por ciento, entonces el niño va a la Escuela, está intranquilo, en incesante movimiento.
 
-El tercer septenio de vida, la tierna adolescencia comprendida en-tre los catorce y los veintiún años de vida, están gobernados por Ve-nus, la Estrella del amor; esa es la edad de la punzada, la edad del amor, la edad en que vemos la vida de color rosa.
+El tercer septenio de vida, la tierna adolescencia comprendida entre los catorce y los veintiún años de vida, están gobernados por Venus, la Estrella del amor; esa es la edad de la punzada, la edad del amor, la edad en que vemos la vida de color rosa.
 
 De los 21 (VEINTIUNO) hasta los 42 (CUARENTA Y DOS) años de vida tenemos que ocupar nuestro puestecito bajo el Sol y definir nuestra vida. Esta época está gobernada por el Sol.
 
-El SEPTENIO comprendido entre los cuarenta y dos y los cuaren-ta y nueve años de edad, es MARCIANO en un ciento por ciento y la vida se vuelve entonces un verdadero campo de batalla, porque MARTE es guerra.
+El SEPTENIO comprendido entre los cuarenta y dos y los cuarenta y nueve años de edad, es MARCIANO en un ciento por ciento y la vida se vuelve entonces un verdadero campo de batalla, porque MARTE es guerra.
 
-El período comprendido entre los cuarenta y nueve y los cincuen-ta y seis años de edad, es JUPITERIANO; quienes tienen a JÚPI-TER bien situado en su horóscopo, es claro que durante esta época de su vida son respetados por todo el mundo y si no poseen las IN-NECESARIAS RIQUEZAS MUNDANALES, tienen por lo menos lo necesario para poder vivir muy bien.
+El período comprendido entre los cuarenta y nueve y los cincuenta y seis años de edad, es JUPITERIANO; quienes tienen a JÚPITER bien situado en su horóscopo, es claro que durante esta época de su vida son respetados por todo el mundo y si no poseen las INNECESARIAS RIQUEZAS MUNDANALES, tienen por lo menos lo necesario para poder vivir muy bien.
 
 Otra es la suerte de quienes tienen a JÚPITER mal situado en su horóscopo; esas personas sufren entonces lo indecible, carecen de pan, abrigo, refugio, son mal tratados por otros, etc., etc., etc. El periodo de vida comprendido entre los cincuenta y seis y los sesenta y tres años, está gobernado por el anciano de los cielos, el viejo Saturno.
 
@@ -490,25 +502,25 @@ Realmente la ancianidad comienza a los cincuenta y seis años. Pasado el periodo
 
 Si observamos cuidadosamente la vida de los ancianos de edad muy avanzada, podemos verificar que ciertamente vuelven a la edad de los niños, algunos viejitos y viejitas vuelven a jugar con carritos y muñecas. Los ancianos mayores de sesenta y tres años y los niños menores de siete años están gobernados por la LUNA.
 
-"Entre miles de hombres, tal vez uno intenta llegar a la PERFEC-CIÓN; entre los que intentan posiblemente uno logra la perfección, y entre los perfectos quizás uno ME conoce perfectamente". (Versículo 3, Capitulo Vll Bhagavad-Gita.)
+"Entre miles de hombres, tal vez uno intenta llegar a la PERFECCIÓN; entre los que intentan posiblemente uno logra la perfección, y entre los perfectos quizás uno ME conoce perfectamente". (Versículo 3, Capitulo Vll Bhagavad-Gita.)
 
-El EGO es LUNAR y al dejar el cuerpo físico se va por el sendero del humo, de la quincena obscura de la LUNA y del SOLSTICIO me-ridional y pronto retorna a una nueva matriz. La LUNA lo lleva y la LUNA lo trae, esa es la LEY.
+El EGO es LUNAR y al dejar el cuerpo físico se va por el sendero del humo, de la quincena obscura de la LUNA y del SOLSTICIO meridional y pronto retorna a una nueva matriz. La LUNA lo lleva y la LUNA lo trae, esa es la LEY.
 
-El EGO está vestido con CUERPOS LUNARES. Los vehículos in-ternos estudiados por la TEOSOFÍA, son de naturaleza LUNAR.
+El EGO está vestido con CUERPOS LUNARES. Los vehículos internos estudiados por la TEOSOFÍA, son de naturaleza LUNAR.
 
-Las escrituras sagradas de los JAINOS dicen: "EL UNIVERSO ESTÁ POBLADO DE DIVERSAS CRIATURAS EXISTENTES EN EL SAMSARA, NACIDAS DE FAMILIAS Y CASTAS DISTINTAS POR HABER COMETIDO VARIAS ACCIONES Y SEGÚN SEAN ESTAS ASÍ VAN UNAS VECES AL MUNDO DE LOS DIOSES, OTRAS VE-CES AL INFIERNO Y ALGUNAS VECES SE CONVIERTEN EN ASURAS (PERSONAS DIABÓLICAS). ASÍ ES QUE NO REPUG-NAN EL SAMSARA LOS SERES VIVIENTES QUE SIN CESAR NA-CEN Y RENACEN POR CULPA DE SUS MALAS ACCIONES".
+Las escrituras sagradas de los JAINOS dicen: "EL UNIVERSO ESTÁ POBLADO DE DIVERSAS CRIATURAS EXISTENTES EN EL SAMSARA, NACIDAS DE FAMILIAS Y CASTAS DISTINTAS POR HABER COMETIDO VARIAS ACCIONES Y SEGÚN SEAN ESTAS ASÍ VAN UNAS VECES AL MUNDO DE LOS DIOSES, OTRAS VECES AL INFIERNO Y ALGUNAS VECES SE CONVIERTEN EN ASURAS (PERSONAS DIABÓLICAS). ASÍ ES QUE NO REPUGNAN EL SAMSARA LOS SERES VIVIENTES QUE SIN CESAR NACEN Y RENACEN POR CULPA DE SUS MALAS ACCIONES".
 
-La LUNA se lleva a todos los EGOS, pero no a todos los trae nuevamente. Por estos tiempos la mayor parte entran en los MUN-DOS-INFIERNOS, en las regiones SUBLUNARES, en el REINO MI-NERAL SUMERGIDO, en las tinieblas exteriores donde sólo se oye el llanto y crujir de dientes.
+La LUNA se lleva a todos los EGOS, pero no a todos los trae nuevamente. Por estos tiempos la mayor parte entran en los MUNDOS-INFIERNOS, en las regiones SUBLUNARES, en el REINO MINERAL SUMERGIDO, en las tinieblas exteriores donde sólo se oye el llanto y crujir de dientes.
 
-Son muchos los que retornan en forma mediata o inmediata lle-vados y traídos por la LUNA, sin haber gozado de las delicias de los mundos superiores.
+Son muchos los que retornan en forma mediata o inmediata llevados y traídos por la LUNA, sin haber gozado de las delicias de los mundos superiores.
 
-Los PERFECTOS, los elegidos, aquellos que DISOLVIERON el EGO; FABRICARON sus CUERPOS SOLARES y se SACRIFICA-RON por la HUMANIDAD, son BIENAVENTURADOS, al dejar el cuerpo físico con la muerte, toman el sendero del fuego, de la luz, del día, de la quincena luminosa de la LUNA y del solsticio septen-trional, ellos han ENCARNADO al SER, ellos conocen a BRAHAMA (EL PADRE QUE ESTA EN SECRETO) y es claro que van a BRA-HAMA (EL PADRE).
+Los PERFECTOS, los elegidos, aquellos que DISOLVIERON el EGO; FABRICARON sus CUERPOS SOLARES y se SACRIFICARON por la HUMANIDAD, son BIENAVENTURADOS, al dejar el cuerpo físico con la muerte, toman el sendero del fuego, de la luz, del día, de la quincena luminosa de la LUNA y del solsticio septentrional, ellos han ENCARNADO al SER, ellos conocen a BRAHAMA (EL PADRE QUE ESTA EN SECRETO) y es claro que van a BRA-HAMA (EL PADRE).
 
-El JAINISMO dice que durante este GRAN DÍA de BRAHAMA ba-jan a este mundo veinticuatro PROFETAS MAYORES que han al-canzado la PERFECCIÓN TOTAL.
+El JAINISMO dice que durante este GRAN DÍA de BRAHAMA bajan a este mundo veinticuatro PROFETAS MAYORES que han alcanzado la PERFECCIÓN TOTAL.
 
-Las escrituras GNÓSTICAS dicen que hay DOCE SALVADO-RES, es decir: Doce AVATARAS; más si pensamos en un JUAN BAUTISTA como precursor y en un JESÚS como AVATARA, para PISCIS la era que acaba de pasar, entonces podemos comprender que para cada una de las doce eras zodiacales existe siempre un precursor y un AVATARA, total veinticuatro GRANDES PROFETAS.
+Las escrituras GNÓSTICAS dicen que hay DOCE SALVADORES, es decir: Doce AVATARAS; más si pensamos en un JUAN BAUTISTA como precursor y en un JESÚS como AVATARA, para PISCIS la era que acaba de pasar, entonces podemos comprender que para cada una de las doce eras zodiacales existe siempre un precursor y un AVATARA, total veinticuatro GRANDES PROFETAS.
 
-MAHAVIRA fue el PRECURSOR DE BUDDHA y JUAN BAUTIS-TA el de JESÚS.
+MAHAVIRA fue el PRECURSOR DE BUDDHA y JUAN BAUTISTA el de JESÚS.
 
 El SAGRADO RASKOARNO (MUERTE), está lleno de profunda belleza interior. Sólo conoce la VERDAD sobre la MUERTE, el que ha EXPERIMENTADO en forma directa, su honda SIGNIFICACIÓN.
 
@@ -518,49 +530,49 @@ La desintegración de todos los elementos que constituyen el cuerpo físico, ori
 
 Semejantes a las ondas de la TELEVISIÓN que portan imágenes, son las ondas vibratorias de los fallecidos. Lo que es la pantalla a las ONDAS de las estaciones emisoras, es el embrión a las ondas de la muerte.
 
-Las ONDAS VIBRATORIAS DE LA MUERTE portan la IMAGEN del fallecido. Esta imagen queda depositada en el huevo fecundado. Bajo la INFLUENCIA LUNAR el ZOOSPERMO penetra a través de la cubierta del huevo, que instantáneamente vuelve a cerrarse aprisionándolo. Ahí genera un interesantísimo campo de atracción, atrayendo y siendo atraído hacía el núcleo femenino que silente es-pera en el centro del huevo.
+Las ONDAS VIBRATORIAS DE LA MUERTE portan la IMAGEN del fallecido. Esta imagen queda depositada en el huevo fecundado. Bajo la INFLUENCIA LUNAR el ZOOSPERMO penetra a través de la cubierta del huevo, que instantáneamente vuelve a cerrarse aprisionándolo. Ahí genera un interesantísimo campo de atracción, atrayendo y siendo atraído hacía el núcleo femenino que silente espera en el centro del huevo.
 
 Cuando estos dos NÚCLEOS CAPITALES se funden en una sola UNIDAD, los CROMOSOMAS inician entonces su famosa danza, enredándose y volviéndose a enredar en un instante. Así es como el DISEÑO de alguien que agonizó y murió, viene a cristalizar en el embrión.
 
-Cada CÉLULA ordinaria del organismo humano, contiene cuaren-ta y ocho leyes del mundo en que vivimos.
+Cada CÉLULA ordinaria del organismo humano, contiene cuarenta y ocho leyes del mundo en que vivimos.
 
-Las células reproductivas del organismo sólo contienen un sólo CROMOSOMA de cada par, más en su unión producen la combina-ción nueva de cuarenta y ocho, que hacen que cada embrión sea único y diferente.
+Las células reproductivas del organismo sólo contienen un sólo CROMOSOMA de cada par, más en su unión producen la combinación nueva de cuarenta y ocho, que hacen que cada embrión sea único y diferente.
 
 Toda forma humana, todo organismo, es una máquina preciosa. Cada CROMOSOMA lleva en sí mismo el sello de alguna función, cualidad o característica especial, un par determina el sexo, pues la dualidad de este par es lo que hace HEMBRAS.
 
-El impar del CROMOSOMA origina machos. Recordemos la le-yenda Bíblica de EVA hecha de una costilla de ADÁN y teniendo, por lo tanto, una costilla más que él.
+El impar del CROMOSOMA origina machos. Recordemos la leyenda Bíblica de EVA hecha de una costilla de ADÁN y teniendo, por lo tanto, una costilla más que él.
 
-Los CROMOSOMAS en Si MISMOS están compuestos por GE-NES y cada uno de éstos, por unas pocas moléculas. Realmente los GENES constituyen la frontera entre este mundo y el otro, entre la tercera y la cuarta dimensión.
+Los CROMOSOMAS en Si MISMOS están compuestos por GENES y cada uno de éstos, por unas pocas moléculas. Realmente los GENES constituyen la frontera entre este mundo y el otro, entre la tercera y la cuarta dimensión.
 
-Las ondas de los moribundos, las ondas de la muerte, actúan so-bre los GENES ordenándoles dentro del HUEVO FECUNDADO. Así se rehace el cuerpo físico perdido, así el diseño de los fallecidos se hace visible en el embrión.
+Las ondas de los moribundos, las ondas de la muerte, actúan sobre los GENES ordenándoles dentro del HUEVO FECUNDADO. Así se rehace el cuerpo físico perdido, así el diseño de los fallecidos se hace visible en el embrión.
 
-Durante la época de CÁNCER, nuestros Discípulos GNÓSTICOS deben PRACTICAR antes de dormirse entre su cama, un EJERCI-CIO RETROSPECTIVO sobre su propia vida, como quien está vien-do una película desde el final hasta el principio, o como quien lee un libro desde el fin hasta el principio desde la última página hasta la primera. El objeto de este EJERCICIO RETROSPECTIVO sobre nuestra propia vida, es AUTO-CONOCERNOS, AUTO-DESCUBRIRNOS.
+Durante la época de CÁNCER, nuestros Discípulos GNÓSTICOS deben PRACTICAR antes de dormirse entre su cama, un EJERCICIO RETROSPECTIVO sobre su propia vida, como quien está viendo una película desde el final hasta el principio, o como quien lee un libro desde el fin hasta el principio desde la última página hasta la primera. El objeto de este EJERCICIO RETROSPECTIVO sobre nuestra propia vida, es AUTO-CONOCERNOS, AUTO-DESCUBRIRNOS.
 
-RECONOCER nuestras buenas y malas acciones, estudiar nues-tro propio EGO LUNAR, hacer CONSCIENTE el SUB-CONSCIEN-TE.
+RECONOCER nuestras buenas y malas acciones, estudiar nuestro propio EGO LUNAR, hacer CONSCIENTE el SUB-CONSCIEN-TE.
 
-Es necesario llegar en forma RETROSPECTIVA hasta el NACI-MIENTO y recordarlo, un esfuerzo superior permitirá al estudiante conectar al NACIMIENTO con la MUERTE de su pasado cuerpo físi-co. El SUEÑO combinado con la MEDITACIÓN, con el EJERCICIO RETROSPECTIVO, nos permitirá recordar nuestra vida actual y la pasada y pasadas existencias.
+Es necesario llegar en forma RETROSPECTIVA hasta el NACIMIENTO y recordarlo, un esfuerzo superior permitirá al estudiante conectar al NACIMIENTO con la MUERTE de su pasado cuerpo físico. El SUEÑO combinado con la MEDITACIÓN, con el EJERCICIO RETROSPECTIVO, nos permitirá recordar nuestra vida actual y la pasada y pasadas existencias.
 
-El EJERCICIO RETROSPECTIVO nos permite hacernos cons-cientes de nuestro propio EGO LUNAR, de nuestros propios errores. Recordemos que el EGO es un MANOJO de RECUERDOS, deseos, pasiones, iras, codicia, lujurias, orgullo, pereza, gula, amor propio, resentimientos, venganzas, etc.
+El EJERCICIO RETROSPECTIVO nos permite hacernos conscientes de nuestro propio EGO LUNAR, de nuestros propios errores. Recordemos que el EGO es un MANOJO de RECUERDOS, deseos, pasiones, iras, codicia, lujurias, orgullo, pereza, gula, amor propio, resentimientos, venganzas, etc.
 
 Si queremos disolver el EGO, debemos primero estudiarlo. El EGO es la raíz de la ignorancia y del dolor.
 
-Sólo el SER, ATMAN, es PERFECTO, pero ÉL no NACE ni mue-re ni se REENCARNA; así lo dijo KRISHNA en el BHAGAVAD GITA.
+Sólo el SER, ATMAN, es PERFECTO, pero ÉL no NACE ni muere ni se REENCARNA; así lo dijo KRISHNA en el BHAGAVAD GITA.
 
-Si el estudiante se duerme durante el EJERCICIO RETROSPEC-TIVO, tanto mejor porque en los MUNDOS INTERNOS podrá AUTO-CONOCERSE, recordar toda su vida y todas sus pasadas vidas.
+Si el estudiante se duerme durante el EJERCICIO RETROSPECTIVO, tanto mejor porque en los MUNDOS INTERNOS podrá AUTO-CONOCERSE, recordar toda su vida y todas sus pasadas vidas.
 
 Así como el MÉDICO CIRUJANO necesita estudiar un tumor canceroso antes de extirparlo, así el GNÓSTICO necesita estudiar su propio EGO antes de EXTIRPARLO.
 
 Durante CÁNCER, las fuerzas acumuladas en BRONQUIOS y PULMONES por GÉMINIS, debe pasar ahora en CÁNCER a la GLÁNDULA TIMO.
 
-Las FUERZAS CÓSMICAS que ascienden por nuestro organismo se encuentran en la GLÁNDULA TIMO con las fuerzas que descien-den y se forman los dos triángulos enlazados, el sello SALOMÓN.
+Las FUERZAS CÓSMICAS que ascienden por nuestro organismo se encuentran en la GLÁNDULA TIMO con las fuerzas que descienden y se forman los dos triángulos enlazados, el sello SALOMÓN.
 
-El DISCÍPULO debe meditar diariamente en este SELLO SA-LOMÓN formándose en la GLÁNDULA TIMO.
+El DISCÍPULO debe meditar diariamente en este SELLO SALOMÓN formándose en la GLÁNDULA TIMO.
 
-Se nos ha dicho que la GLÁNDULA TIMO regula el crecimiento de los niños. Resulta interesante que las GLÁNDULAS MAMARIAS de la MADRE, están íntimamente relacionadas con la GLÁNDULA TIMO. Es por ello que la LECHE materna no puede ser jamás susti-tuida por ningún otro alimento para el niño.
+Se nos ha dicho que la GLÁNDULA TIMO regula el crecimiento de los niños. Resulta interesante que las GLÁNDULAS MAMARIAS de la MADRE, están íntimamente relacionadas con la GLÁNDULA TIMO. Es por ello que la LECHE materna no puede ser jamás sustituida por ningún otro alimento para el niño.
 
 Los nativos de CÁNCER tienen un carácter tan variable como las fases de la LUNA.
 
-Los nativos de CÁNCER son pacíficos por naturaleza, mas cuan-do se encolerizan son terribles.
+Los nativos de CÁNCER son pacíficos por naturaleza, mas cuando se encolerizan son terribles.
 
 Los nativos de CÁNCER tienen disposición para artes manuales, artes prácticas.
 
@@ -576,9 +588,11 @@ LOS NATIVOS DE CÁNCER son muy aficionados a las novelas, películas, etc.
 
 El metal DE CÁNCER es la PLATA. Piedra, la PERLA; color, el BLANCO.
 
-CÁNCER el signo del CANGREJO o del ESCARABAJO SA-GRADO, es la casa de la LUNA.
+CÁNCER el signo del CANGREJO o del ESCARABAJO SAGRADO, es la casa de la LUNA.
 
 # CAPITULO 5
+
+![Imagen 7](Tratado Esoterico de Astrologia Hermetica/Tratado Esoterico de Astrologia Hermetica - 007 - CAPITULO 5.png)
 
 Leo
 
@@ -588,23 +602,23 @@ Leo
 
 ANNIE BESANT cuenta un caso del MAESTRO NANAK que bien vale la pena transcribir.
 
-"Era viernes aquel día, y al llegar la hora de la oración, encaminá-ronse amo y criado a la mezquita. Cuando el KARI (SACERDOTE MUSULMÁN) empezó las oraciones, el NABAB y su séquito se pros-ternaron, según prescribe el RITO MAHOMETANO, NANAK perma-neció de pie, inmóvil y silencioso. Terminada la plegaria, el NABAB encaróse con el joven y le pregunto indignado: ¿Por qué no has cumplido las ceremonias de la Ley?. Eres embustero y farsante. No debías haber venido aquí para quedarte como un poste".
+"Era viernes aquel día, y al llegar la hora de la oración, encamináronse amo y criado a la mezquita. Cuando el KARI (SACERDOTE MUSULMÁN) empezó las oraciones, el NABAB y su séquito se prosternaron, según prescribe el RITO MAHOMETANO, NANAK permaneció de pie, inmóvil y silencioso. Terminada la plegaria, el NABAB encaróse con el joven y le pregunto indignado: ¿Por qué no has cumplido las ceremonias de la Ley?. Eres embustero y farsante. No debías haber venido aquí para quedarte como un poste".
 
 #### NANAK REPLICÓ:
 
-"Os prosternasteis rostro en suelo mientras que vuestra mente vagaba por las nubes, porque estabais pensando en traer caballos de CANDAR no en recitar la plegaria. En cuanto al Sacerdote, prac-ticaba automáticamente las ceremonias de la prosternación, al paso que ponía su pensamiento en salvar la borrica que parió días pasa-dos. ¿Cómo iba yo a orar con gentes que se arrodillan por rutina y repiten las palabras como una cotorra?"
+"Os prosternasteis rostro en suelo mientras que vuestra mente vagaba por las nubes, porque estabais pensando en traer caballos de CANDAR no en recitar la plegaria. En cuanto al Sacerdote, practicaba automáticamente las ceremonias de la prosternación, al paso que ponía su pensamiento en salvar la borrica que parió días pasados. ¿Cómo iba yo a orar con gentes que se arrodillan por rutina y repiten las palabras como una cotorra?"
 
-"Confesó el NABAB que en efecto había estado pensando duran-te toda la ceremonia en la proyectada compra de caballos. Por lo que toca al KARI, manifestó abiertamente su disgusto y apremió con muchas preguntas al joven".
+"Confesó el NABAB que en efecto había estado pensando durante toda la ceremonia en la proyectada compra de caballos. Por lo que toca al KARI, manifestó abiertamente su disgusto y apremió con muchas preguntas al joven".
 
-Realmente es necesario aprender a ORAR científicamente; quien aprenda a combinar inteligentemente la ORACIÓN con la MEDITA-CIÓN, obtendrá resultados OBJETIVOS maravillosos.
+Realmente es necesario aprender a ORAR científicamente; quien aprenda a combinar inteligentemente la ORACIÓN con la MEDITACIÓN, obtendrá resultados OBJETIVOS maravillosos.
 
 Pero es urgente comprender que hay diferentes ORACIONES y que sus resultados son diferentes.
 
 Existen ORACIONES acompañadas de peticiones, mas no todas las oraciones van acompañadas de peticiones.
 
-Hay ORACIONES muy antiguas que son verdaderas RECAPITU-LACIONES de acontecimientos CÓSMICOS y podemos experimen-tar todo su contenido si meditamos en cada palabra, en cada frase, con verdadera devoción consciente. EL PADRE NUESTRO es una fórmula MÁGICA de inmenso po-der SACERDOTAL, pero es urgente comprender a fondo y en forma total el significado profundo de cada palabra, de cada frase, de cada súplica.
+Hay ORACIONES muy antiguas que son verdaderas RECAPITULACIONES de acontecimientos CÓSMICOS y podemos experimentar todo su contenido si meditamos en cada palabra, en cada frase, con verdadera devoción consciente. EL PADRE NUESTRO es una fórmula MÁGICA de inmenso poder SACERDOTAL, pero es urgente comprender a fondo y en forma total el significado profundo de cada palabra, de cada frase, de cada súplica.
 
-El PADRE NUESTRO es una oración de petición, una oración pa-ra hablar con el PADRE que está en secreto. El PADRE NUESTRO combinado con la MEDITACIÓN de fondo, produce resultados OB-JETIVOS MARAVILLOSOS.
+El PADRE NUESTRO es una oración de petición, una oración para hablar con el PADRE que está en secreto. El PADRE NUESTRO combinado con la MEDITACIÓN de fondo, produce resultados OBJETIVOS MARAVILLOSOS.
 
 Los RITUALES GNÓSTICOS, las CEREMONIAS RELIGIOSAS, son verdaderos tratados de SABIDURÍA OCULTA, para quien sabe meditar, para quienes los comprenden con el corazón.
 
@@ -614,11 +628,11 @@ Es URGENTE aprender a pensar con el corazón, depositar la mente en el TEMPLO CO
 
 NANAK, el Maestro fundador de la RELIGIÓN SIKH en la tierra sagrada de los VEDAS, enseñó el camino del CORAZÓN.
 
-NANAK enseñó la fraternidad entre todas las RELIGIONES, Es-cuelas, sectas, etc.
+NANAK enseñó la fraternidad entre todas las RELIGIONES, Escuelas, sectas, etc.
 
 Cuando atacamos a todas las Religiones o en particular a alguna religión, cometemos el delito de violar la LEY del CORAZÓN.
 
-En el TEMPLO-CORAZÓN hay puesto para todas las RELIGIO-NES, SECTAS, ORDENES, etc., etc., etc.
+En el TEMPLO-CORAZÓN hay puesto para todas las RELIGIONES, SECTAS, ORDENES, etc., etc., etc.
 
 Todas las RELIGIONES son perlas preciosas engarzadas en el hilo de oro de la DIVINIDAD.
 
@@ -626,35 +640,35 @@ Nuestro MOVIMIENTO GNÓSTICO está constituido por gentes de todas las Religione
 
 En el TEMPLO-CORAZÓN hay puesto para todas las Religiones, para todos los cultos. Jesús dijo: "En que os améis unos a otros, probaréis que sois mis Discípulos".
 
-Las Escrituras SIKIAS, como las de toda RELIGIÓN, son real-mente inefables. Entre los SIKIOS es OMKARA el PRIMARIO SER DIVINAL que creo el cielo, la tierra, las aguas, todo lo existente.
+Las Escrituras SIKIAS, como las de toda RELIGIÓN, son realmente inefables. Entre los SIKIOS es OMKARA el PRIMARIO SER DIVINAL que creo el cielo, la tierra, las aguas, todo lo existente.
 
-OMKARA es el ESPÍRITU PRIMARIO, INMANIFESTADO, IMPE-RECEDERO, sin principio de días, sin fin de días, cuya Luz ilumina las CATORCE MORADAS, conocedor instantáneo; regulador interno de todo corazón».
+OMKARA es el ESPÍRITU PRIMARIO, INMANIFESTADO, IMPERECEDERO, sin principio de días, sin fin de días, cuya Luz ilumina las CATORCE MORADAS, conocedor instantáneo; regulador interno de todo corazón».
 
-"El espacio es tu potestad. El SOL y la LUNA tus lámparas. El ejército de estrellas tus perlas. ¡OH Padre! La odorífica brisa de los Himalayas es tu incienso. El viento te orea. El reino vegetal te tributa flores, ¡OH luz!. Para ti los himnos de alabanza, ¡OH destructor del miedo!. El ANATAL SHABDHA (SONIDO VIRGEN) resuena como tus tambores. No tienes ojos y a millares los tienes. No tienes pies y a millares los tienes. No tienes nariz y a millares las tienes. Esta tu maravillosa obra nos enajena. Tu luz, ¡OH gloria! está en todas las cosas. De todos los seres irradia la Luz de tu Luz. De las enseñan-zas del Maestro irradia esta luz. Es un ARATI".
+"El espacio es tu potestad. El SOL y la LUNA tus lámparas. El ejército de estrellas tus perlas. ¡OH Padre! La odorífica brisa de los Himalayas es tu incienso. El viento te orea. El reino vegetal te tributa flores, ¡OH luz!. Para ti los himnos de alabanza, ¡OH destructor del miedo!. El ANATAL SHABDHA (SONIDO VIRGEN) resuena como tus tambores. No tienes ojos y a millares los tienes. No tienes pies y a millares los tienes. No tienes nariz y a millares las tienes. Esta tu maravillosa obra nos enajena. Tu luz, ¡OH gloria! está en todas las cosas. De todos los seres irradia la Luz de tu Luz. De las enseñanzas del Maestro irradia esta luz. Es un ARATI".
 
-El GRAN MAESTRO NANAK, de acuerdo con los UPANIS-HADAS, comprende que BRAHAMA (EL PADRE), es UNO y que los DIOSES INEFABLES son tan sólo sus mil manifestaciones parciales, reflejos de la ABSOLUTA BELLEZA.
+El GRAN MAESTRO NANAK, de acuerdo con los UPANISHADAS, comprende que BRAHAMA (EL PADRE), es UNO y que los DIOSES INEFABLES son tan sólo sus mil manifestaciones parciales, reflejos de la ABSOLUTA BELLEZA.
 
-El GURÚ-DEVÁ es aquel que ya es uno con el PADRE (BRA-HAMA). Dichoso aquél que tiene un GURÚ-DEVA por guía y orien-tador. Bienaventurado quien ha encontrado al MAESTRO de PER-FECCIÓN.
+El GURÚ-DEVÁ es aquel que ya es uno con el PADRE (BRA-HAMA). Dichoso aquél que tiene un GURÚ-DEVA por guía y orientador. Bienaventurado quien ha encontrado al MAESTRO de PERFECCIÓN.
 
-El camino es angosto, estrecho y espantosamente difícil. Se ne-cesita el GURÚ-DEVA, el orientador, el guía.
+El camino es angosto, estrecho y espantosamente difícil. Se necesita el GURÚ-DEVA, el orientador, el guía.
 
 En el TEMPLO-CORAZÓN encontraremos a HARI EL SER. En el TEMPLO-CORAZÓN encontraremos al GURÚ-DEVA.
 
 Ahora transcribiremos algunas estrofas CIKIES sobre la Devoción al GURÚ-DEVA.
 
-"¡OH NANAK! Reconócele por el verdadero GURÚ, el bien ama-do que te une al todo..."
+"¡OH NANAK! Reconócele por el verdadero GURÚ, el bien amado que te une al todo..."
 
 "Cien veces al día quisiera sacrificarme por mi GURÚ que me ha convertido en DIOS en poco tiempo".
 
 "Aunque lucieran cien Lunas y mil Soles, reinarían sin el GURÚ profundas tinieblas". "Bendito sea mi Venerable GURÚ que conoce a HARI (EL SER) y nos ha enseñado a tratar por igual a los amigos y a los enemigos".
 
-"!OH Señor!. Favorécenos con la compañía de GURÚ-DEVA, pa-ra que juntos con EL podamos nosotros, extraviados pecadores, hacer la travesía a nado".
+"!OH Señor!. Favorécenos con la compañía de GURÚ-DEVA, para que juntos con EL podamos nosotros, extraviados pecadores, hacer la travesía a nado".
 
 "GURÚ-DEVA, el verdadero GURÚ, es PARABRAHMAN el Señor Supremo. NANAK se prosterna ante el GURÚ DEVA HARI".
 
 En el INDOSTAN un SAMYASIN del pensamiento es quien sirve al verdadero GURÚ-DEVA, quien ya lo encontró en el corazón, quien trabaja en la DISOLUCIÓN DEL EGO LUNAR.
 
-Quien quiera acabar con el EGO, con el YO, debe aniquilar la IRA, la CODICIA, la LUJURIA, la ENVIDIA, el ORGULLO, la PERE-ZA, la GULA. Sólo acabando con todos estos defectos en todos los NIVELES de la MENTE, muere el YO en forma RADICAL, total y de-finitiva.
+Quien quiera acabar con el EGO, con el YO, debe aniquilar la IRA, la CODICIA, la LUJURIA, la ENVIDIA, el ORGULLO, la PEREZA, la GULA. Sólo acabando con todos estos defectos en todos los NIVELES de la MENTE, muere el YO en forma RADICAL, total y definitiva.
 
 La MEDITACIÓN en el nombre de HARI (EL SER), nos permite experimentar lo REAL, lo verdadero.
 
@@ -666,43 +680,43 @@ Un solo PADRE NUESTRO bien orado se hace en una hora de tiempo o en algo más de
 
 Después de la oración hay que saber aguardar la respuesta del PADRE y esto significa saber meditar, tener la mente quieta y en silencio, vacía de todo pensamiento, aguardando la respuesta del PADRE.
 
-Cuando la MENTE está quieta por dentro y por fuera, cuando la MENTE está en SILENCIO por dentro y por fuera cuando la mente se ha libertado del DUALISMO, entonces viene a nosotros lo NUE-VO.
+Cuando la MENTE está quieta por dentro y por fuera, cuando la MENTE está en SILENCIO por dentro y por fuera cuando la mente se ha libertado del DUALISMO, entonces viene a nosotros lo NUEVO.
 
-Es necesario VACIAR la mente de toda clase de pensamientos, deseos, pasiones, apetencias, temores, etc., para que venga a noso-tros la experiencia de lo REAL.
+Es necesario VACIAR la mente de toda clase de pensamientos, deseos, pasiones, apetencias, temores, etc., para que venga a nosotros la experiencia de lo REAL.
 
-La irrupción del VACÍO, la EXPERIENCIA en el VACÍO ILUMI-NADOR, sólo son posibles cuando la ESENCIA, el ALMA, el BUD-HATA, se libera de la botella intelectual.
+La irrupción del VACÍO, la EXPERIENCIA en el VACÍO ILUMINADOR, sólo son posibles cuando la ESENCIA, el ALMA, el BUDHATA, se libera de la botella intelectual.
 
 La ESENCIA está embotellada entre el tremendo batallar de los opuestos frío y calor, gusto y disgusto, sí y no, bien y mal, agradable y desagradable.
 
-Cuando la MENTE está quieta, cuando la MENTE está en silen-cio, entonces la ESENCIA queda libre y viene la EXPERIENCIA de lo REAL en el VACÍO ILUMINADOR.
+Cuando la MENTE está quieta, cuando la MENTE está en silencio, entonces la ESENCIA queda libre y viene la EXPERIENCIA de lo REAL en el VACÍO ILUMINADOR.
 
 ORAD, pues, buen DISCÍPULO y luego con la mente muy quieta y en silencio, VACÍA de toda clase de pensamientos, aguardad la respuesta del PADRE: "Pedid y se os dará, golpead y se os abrirá".
 
 ORAR es conversar con DIOS y ciertamente hay que aprender a conversar con el PADRE, con BRAHAMA.
 
-El TEMPLO CORAZÓN es casa de ORACIÓN. En el templo co-razón se encuentran las fuerzas que vienen de arriba con las fuerzas que vienen de abajo, formando el sello de SALOMÓN.
+El TEMPLO CORAZÓN es casa de ORACIÓN. En el templo corazón se encuentran las fuerzas que vienen de arriba con las fuerzas que vienen de abajo, formando el sello de SALOMÓN.
 
 Es necesario orar y MEDITAR profundamente. Es urgente saber relajar el cuerpo físico para que la MEDITACIÓN sea correcta.
 
 Antes de empezar las Prácticas de ORACIÓN y MEDITACIÓN combinadas, relajad bien el cuerpo.
 
-Acuéstese el Discípulo GNÓSTICO en posición DECÚBITO DORSAL, es decir, tendido de espaldas en el suelo o en una cama, piernas y brazos abiertos a derecha e izquierda, en forma de ES-TRELLA de cinco puntas.
+Acuéstese el Discípulo GNÓSTICO en posición DECÚBITO DORSAL, es decir, tendido de espaldas en el suelo o en una cama, piernas y brazos abiertos a derecha e izquierda, en forma de ESTRELLA de cinco puntas.
 
-Esta posición de ESTRELLA PENTAGONAL es formidable por su honda significación, pero las personas que por alguna circunstancia no pueden meditar en esta posición, entonces que mediten colocan-do su cuerpo en POSICIÓN DE HOMBRE MUERTO: talones juntos, puntas de los pies abriéndose en forma de abanico brazos contra los costados sin doblarse, colocados a lo largo del tronco.
+Esta posición de ESTRELLA PENTAGONAL es formidable por su honda significación, pero las personas que por alguna circunstancia no pueden meditar en esta posición, entonces que mediten colocando su cuerpo en POSICIÓN DE HOMBRE MUERTO: talones juntos, puntas de los pies abriéndose en forma de abanico brazos contra los costados sin doblarse, colocados a lo largo del tronco.
 
-Los ojos deben estar cerrados para que las cosas del mundo físi-co no os distraigan. El sueño debidamente combinado con la MEDI-TACIÓN resulta muy indispensable para el buen éxito de la MEDI-TACIÓN.
+Los ojos deben estar cerrados para que las cosas del mundo físico no os distraigan. El sueño debidamente combinado con la MEDITACIÓN resulta muy indispensable para el buen éxito de la MEDITACIÓN.
 
-Es necesario tratar de relajar totalmente todos los músculos del cuerpo y luego concentrar la ATENCIÓN en la punta de la nariz has-ta sentir plenamente el pulso del corazón en ese órgano del olfato, luego seguiremos con la oreja derecha hasta sentir el pulso del co-razón en ésta, después continuaremos con la mano derecha, pie de-recho, pie izquierdo, mano izquierda, oreja izquierda y nuevamente, sintiendo plenamente el pulso del corazón por separado en cada uno de estos órganos donde hemos fijado la ATENCIÓN.
+Es necesario tratar de relajar totalmente todos los músculos del cuerpo y luego concentrar la ATENCIÓN en la punta de la nariz hasta sentir plenamente el pulso del corazón en ese órgano del olfato, luego seguiremos con la oreja derecha hasta sentir el pulso del corazón en ésta, después continuaremos con la mano derecha, pie derecho, pie izquierdo, mano izquierda, oreja izquierda y nuevamente, sintiendo plenamente el pulso del corazón por separado en cada uno de estos órganos donde hemos fijado la ATENCIÓN.
 
-El control sobre el cuerpo físico comienza con el control sobre el pulso. El pulso del corazón tranquilo se siente de una vez todo en su totalidad dentro del organismo, pero los GNÓSTICOS pueden sentir-lo a voluntad en cualquier parte del cuerpo, ya sea la punta de la na-riz, una oreja, un brazo, un pie, etc.
+El control sobre el cuerpo físico comienza con el control sobre el pulso. El pulso del corazón tranquilo se siente de una vez todo en su totalidad dentro del organismo, pero los GNÓSTICOS pueden sentirlo a voluntad en cualquier parte del cuerpo, ya sea la punta de la nariz, una oreja, un brazo, un pie, etc.
 
-Está demostrado por la práctica que adquiriendo la posibilidad de regular, apresurar o disminuir el pulso, pueden apresurarse o dismi-nuirse los latidos del corazón.
+Está demostrado por la práctica que adquiriendo la posibilidad de regular, apresurar o disminuir el pulso, pueden apresurarse o disminuirse los latidos del corazón.
 
 El control sobre las palpitaciones del corazón no puede jamás venir de los músculos del corazón, sino que depende totalmente del control del pulso. Este es fuera de toda duda, el SEGUNDO LATIDO o GRAN CORAZÓN.
 
-El control del pulso o control del segundo corazón, se logra total-mente mediante la ABSOLUTA RELAJACIÓN de todos los múscu-los.
+El control del pulso o control del segundo corazón, se logra totalmente mediante la ABSOLUTA RELAJACIÓN de todos los músculos.
 
-Mediante la ATENCIÓN podemos acelerar o disminuir las PUL-SACIONES del SEGUNDO CORAZÓN y los latidos del primer co-razón.
+Mediante la ATENCIÓN podemos acelerar o disminuir las PULSACIONES del SEGUNDO CORAZÓN y los latidos del primer corazón.
 
 El SHAMADHÍ, el ÉXTASIS, el SATORI, se suceden siempre con pulsaciones muy lentas, y en el MAHA-SHAMADHÍ las pulsaciones terminan.
 
@@ -710,11 +724,11 @@ Durante el SHAMADHÍ la ESENCIA, el BUDHATA, se escapa de la PERSONALIDAD, enton
 
 Sólo en ausencia del YO podemos platicar con el PADRE, el BRA-HAMA.
 
-ORAD y MEDITAD, para que podáis escuchar la VOZ del SI-LENCIO.
+ORAD y MEDITAD, para que podáis escuchar la VOZ del SILENCIO.
 
-LEO es el trono del SOL, el corazón del ZODÍACO. LEO gobierna el corazón humano. El SOL del organismo es el CORAZÓN. En el corazón las fuerzas de arriba se mezclan con las de abajo, para que las de abajo se libe-ren.
+LEO es el trono del SOL, el corazón del ZODÍACO. LEO gobierna el corazón humano. El SOL del organismo es el CORAZÓN. En el corazón las fuerzas de arriba se mezclan con las de abajo, para que las de abajo se liberen.
 
-El metal de LEO es el ORO puro. La piedra de LEO es el DIA-MANTE; el color de LEO es el DORADO.
+El metal de LEO es el ORO puro. La piedra de LEO es el DIAMANTE; el color de LEO es el DORADO.
 
 En la práctica hemos podido verificar que los nativos de LEO son como el LEÓN, valientes, iracundos, nobles, dignos, constantes.
 
@@ -726,39 +740,41 @@ El tipo mediocre de LEO es muy sentimental e iracundo. El tipo mediocre de LEO s
 
 En todo nativo de LEO existe siempre la MÍSTICA ya elevada en estado incipiente; todo depende del tipo de persona.
 
-Los nativos de LEO están siempre predispuestos a sufrir acciden-tes de los brazos y de las manos.
+Los nativos de LEO están siempre predispuestos a sufrir accidentes de los brazos y de las manos.
 
 # CAPÍTULO 6
+
+![Imagen 8](Tratado Esoterico de Astrologia Hermetica/Tratado Esoterico de Astrologia Hermetica - 008 - CAPÍTULO 6.jpeg)
 
 Virgo
 
 **(22 de Agosto a 23 de Setiembre) VIRGO**
 
-La PRAKRITI es la MADRE DIVINA, la SUSTANCIA PRIMOR-DIAL de la naturaleza.
+La PRAKRITI es la MADRE DIVINA, la SUSTANCIA PRIMORDIAL de la naturaleza.
 
 En el Universo existen varias sustancias, distintos elementos y sub-elementos, pero todo eso son diferentes modificaciones de una SUSTANCIA ÚNICA.
 
-La MATERIA PRIMORDIAL es el AKASA PURO contenido en to-do el espacio, la GRAN MADRE, la PRAKRITI.
+La MATERIA PRIMORDIAL es el AKASA PURO contenido en todo el espacio, la GRAN MADRE, la PRAKRITI.
 
 MAHANVANTARA y PRALAYA son dos términos SÁNSCRITOS muy importantes con los cuales los estudiantes GNÓSTICOS deben familiarizarse.
 
-MAHANVANTARA es el GRAN DÍA CÓSMICO. PRALAYA es la GRAN NOCHE CÓSMICA. Durante el GRAN DÍA existe el universo. Cuando llega la GRAN NOCHE, el universo deja de existir, se di-suelve entre el seno de la PRAKRITI.
+MAHANVANTARA es el GRAN DÍA CÓSMICO. PRALAYA es la GRAN NOCHE CÓSMICA. Durante el GRAN DÍA existe el universo. Cuando llega la GRAN NOCHE, el universo deja de existir, se disuelve entre el seno de la PRAKRITI.
 
-El inconmensurable espacio infinito está lleno de SISTEMAS SO-LARES que tienen sus MAHANVANTARAS y sus PRALAYAS.
+El inconmensurable espacio infinito está lleno de SISTEMAS SOLARES que tienen sus MAHANVANTARAS y sus PRALAYAS.
 
 Mientras algunos están en MAHANVANTARA, otros están en PRALAYA.
 
 Millones y billones de UNIVERSOS nacen y mueren entre el seno de la PRAKRITl.
 
-Todo COSMOS nace de la PRAKRITl y se disuelve en la PRA-KRITl. Todo mundo es una bola de fuego que se enciende y se apa-ga entre el seno de la PRAKRITl.
+Todo COSMOS nace de la PRAKRITl y se disuelve en la PRA-KRITl. Todo mundo es una bola de fuego que se enciende y se apaga entre el seno de la PRAKRITl.
 
 Todo nace de la PRAKRITl, todo vuelve a la PRAKRITl. Ella es la GRAN MADRE.
 
 El BHAGAVAD GITA dice: "La GRAN PRAKRITl es MÍ matriz, allí coloco el germen y de ella, ¡oh Bharata!, nacen todos los seres".
 
-"¡Oh Kountreya!, la PRAKRITl es la verdadera matriz de cualquier cosa que nace de distintas matrices, y yo soy el germinador PA-TERNO".
+"¡Oh Kountreya!, la PRAKRITl es la verdadera matriz de cualquier cosa que nace de distintas matrices, y yo soy el germinador PATERNO".
 
-"SATTVA, RAJO y TAMO, estas tres GUNAS (aspectos o cuali-dades), nacidos de la PRAKRITl, ¡Oh tú de poderosos brazos!, atan fuertemente el cuerpo al ser encarnado".
+"SATTVA, RAJO y TAMO, estas tres GUNAS (aspectos o cualidades), nacidos de la PRAKRITl, ¡Oh tú de poderosos brazos!, atan fuertemente el cuerpo al ser encarnado".
 
 "De ellos, el SATTVA que es puro, luminoso y bueno, ata al ser encarnado!, ¡Oh impecable!, mediante el apego a la felicidad y al conocimiento".
 
@@ -766,17 +782,17 @@ El BHAGAVAD GITA dice: "La GRAN PRAKRITl es MÍ matriz, allí coloco el germen y
 
 ¡OH Bharata!, sabe que TAMO nace de la ignorancia y alucina a todos los seres; él ata al ser encarnado mediante la inadvertencia, la pereza y el sueño». (CONCIENCIA DORMIDA, SUEÑO DE LA CONCIENCIA.).
 
-Durante el GRAN PRALAYA estas TRES GUNAS están en per-fecto equilibrio en la GRAN BALANZA de la JUSTICIA; cuando se produce el desequilibrio de las tres GUNAS, se inicia la aurora del MAHANVANTARA y nace el UNIVERSO de entre el seno de la PRAKRITI.
+Durante el GRAN PRALAYA estas TRES GUNAS están en perfecto equilibrio en la GRAN BALANZA de la JUSTICIA; cuando se produce el desequilibrio de las tres GUNAS, se inicia la aurora del MAHANVANTARA y nace el UNIVERSO de entre el seno de la PRAKRITI.
 
-Durante el GRAN PRALAYA, la PRAKRITI es UNITOTAL, INTE-GRA. En la MANIFESTACIÓN, en el MAHANVANTARA, la PRA-KRITI se diferencia en TRES ASPECTOS CÓSMICOS.
+Durante el GRAN PRALAYA, la PRAKRITI es UNITOTAL, INTEGRA. En la MANIFESTACIÓN, en el MAHANVANTARA, la PRAKRITI se diferencia en TRES ASPECTOS CÓSMICOS.
 
-Los tres aspectos de la PRAKRITI durante la MANIFESTACIÓN, son: primero, el del ESPACIO INFINITO; segundo, el de la NATU-RALEZA; tercero, el del HOMBRE.
+Los tres aspectos de la PRAKRITI durante la MANIFESTACIÓN, son: primero, el del ESPACIO INFINITO; segundo, el de la NATURALEZA; tercero, el del HOMBRE.
 
 La MADRE DIVINA, en el espacio infinito; la MADRE DIVINA en la NATURALEZA; la MADRE DIVINA en el hombre. Estas son las TRES MADRES; las TRES MARÍAS DEL CRISTIANISMO.
 
-Los estudiantes GNÓSTICOS deben comprender muy bien estos tres aspectos de la PRAKRITI, pues esto es fundamental en el traba-jo ESOTÉRICO. Además, es URGENTE saber que la PRAKRITI tie-ne su particularidad en cada hombre.
+Los estudiantes GNÓSTICOS deben comprender muy bien estos tres aspectos de la PRAKRITI, pues esto es fundamental en el trabajo ESOTÉRICO. Además, es URGENTE saber que la PRAKRITI tiene su particularidad en cada hombre.
 
-Los estudiantes GNÓSTICOS no deben extrañarse si les afirma-mos que la PRAKRITI particular de cada hombre tiene hasta su nombre individual. Esto significa que tenemos también cada uno de nosotros una MADRE DIVINA. Comprender esto, es FUNDAMEN-TAL para el TRABAJO ESOTÉRICO.
+Los estudiantes GNÓSTICOS no deben extrañarse si les afirmamos que la PRAKRITI particular de cada hombre tiene hasta su nombre individual. Esto significa que tenemos también cada uno de nosotros una MADRE DIVINA. Comprender esto, es FUNDAMENTAL para el TRABAJO ESOTÉRICO.
 
 NACIMIENTO SEGUNDO es otra cosa. El TERCER LOGOS, el FUEGO SAGRADO, debe primero hacer fecundo el vientre sagrado de la MADRE DIVINA, luego viene el NACIMIENTO SEGUNDO.
 
@@ -790,29 +806,29 @@ Todo MAESTRO es hijo de una virgen inmaculada. Si estudiamos Religiones comparad
 
 Las Escrituras Religiosas dicen que BUDDHA, JÚPITER, ZEUS, APOLO, QUETZALCOATL, FUJI, LAO TSE, etc., etc., fueron hijos de VÍRGENES INMACULADAS, vírgenes antes del parto, en el parto y después del parto.
 
-En la tierra sagrada de los VEDAS, DEVAKI, la VIRGEN INDOS-TAN concibió a KRISHNA y en BELEM la VIRGEN MARÍA concibe a JESÚS.
+En la tierra sagrada de los VEDAS, DEVAKI, la VIRGEN INDOSTAN concibió a KRISHNA y en BELEM la VIRGEN MARÍA concibe a JESÚS.
 
-En la CHINA AMARILLA, a orillas del río FUJI, la VIRGEN HO-AE, pisa la planta del GRANDE HOMBRE, la cubre un maravilloso resplandor y sus entrañas conciben por obra y gracia del ESPÍRITU SANTO al CRISTO CHINO FUJI.
+En la CHINA AMARILLA, a orillas del río FUJI, la VIRGEN HOAE, pisa la planta del GRANDE HOMBRE, la cubre un maravilloso resplandor y sus entrañas conciben por obra y gracia del ESPÍRITU SANTO al CRISTO CHINO FUJI.
 
-Es condición básica para el NACIMIENTO SEGUNDO que prime-ro intervenga el TERCER LOGOS, el ESPÍRITU SANTO, fecundan-do el VIENTRE VIRGINAL de la MADRE DIVINA.
+Es condición básica para el NACIMIENTO SEGUNDO que primero intervenga el TERCER LOGOS, el ESPÍRITU SANTO, fecundando el VIENTRE VIRGINAL de la MADRE DIVINA.
 
 El FUEGO SEXUAL del TERCER LOGOS en el INDOSTÁN es conocido con el nombre de KUNDALINI y se le simboliza con una culebra de fuego ardiente.
 
 La MADRE DIVINA es ISIS, TONANTZÍN, KALI o PARVATI, la esposa de SHIVA, el TERCER LOGOS y su símbolo más poderoso es la VACA SAGRADA.
 
-La culebra debe subir por el canal medular de la VACA SAGRA-DA, la culebra debe hacer fecundo el vientre de la MADRE DIVINA, sólo así viene la inmaculada concepción y el NACIMIENTO SE-GUNDO.
+La culebra debe subir por el canal medular de la VACA SAGRADA, la culebra debe hacer fecundo el vientre de la MADRE DIVINA, sólo así viene la inmaculada concepción y el NACIMIENTO SEGUNDO.
 
 El KUNDALINI, en sí mismo, es un fuego SOLAR que se halla encerrado dentro de un centro MAGNÉTICO situado en el hueso del coxis, base de la espina dorsal.
 
-Cuando el fuego sagrado despierta, sube por canal medular a lo largo de la espina dorsal, abriendo los siete centros de la espina dor-sal y fecundando a la PRAKRITI.
+Cuando el fuego sagrado despierta, sube por canal medular a lo largo de la espina dorsal, abriendo los siete centros de la espina dorsal y fecundando a la PRAKRITI.
 
-El FUEGO del KUNDALINI tiene siete grados de poder y es ne-cesario subir esa septenaria escala del FUEGO para lograr el naci-miento segundo.
+El FUEGO del KUNDALINI tiene siete grados de poder y es necesario subir esa septenaria escala del FUEGO para lograr el nacimiento segundo.
 
 Cuando la PRAKRITI se hace fecunda con el fuego flamígero dispone de poderes formidables para ayudarnos.
 
-NACER de nuevo equivale a ENTRAR al REINO. Es muy raro encontrar a un dos veces nacido. Raro es aquel que NACE por SE-GUNDA VEZ.
+NACER de nuevo equivale a ENTRAR al REINO. Es muy raro encontrar a un dos veces nacido. Raro es aquel que NACE por SEGUNDA VEZ.
 
-Quien quiera NACER de nuevo, quien quiera lograr la LIBERA-CIÓN FINAL, debe eliminar de su naturaleza las TRES GUNAS de la PRAKRITI.
+Quien quiera NACER de nuevo, quien quiera lograr la LIBERACIÓN FINAL, debe eliminar de su naturaleza las TRES GUNAS de la PRAKRITI.
 
 Quien no elimina la GUNA SATTVA, se pierde entre el laberinto de las TEORÍAS y abandona el TRABAJO ESOTÉRICO.
 
@@ -824,43 +840,43 @@ RAYAS es la RAÍZ de toda concupiscencia. Esta última, en sí misma, es el orig
 
 Quien quiera eliminar el DESEO, debe primero eliminar la GUNA RAYAS.
 
-Quien no elimine a TAMO, tendrá siempre la CONCIENCIA dor-mida, será perezoso, abandonará el TRABAJO ESOTÉRICO, por causa de la flojera, inercia, pereza, falta de voluntad, tibieza, falta de entusiasmo espiritual, será víctima de las tontas ilusiones de este mundo y sucumbirá en la ignorancia.
+Quien no elimine a TAMO, tendrá siempre la CONCIENCIA dormida, será perezoso, abandonará el TRABAJO ESOTÉRICO, por causa de la flojera, inercia, pereza, falta de voluntad, tibieza, falta de entusiasmo espiritual, será víctima de las tontas ilusiones de este mundo y sucumbirá en la ignorancia.
 
-Está dicho que después de la muerte, la gente de temperamento SATTVICO se va de vacaciones a los paraísos o REINOS molecula-res y electrónicos donde se goza de dicha infinita antes de RETOR-NAR a una nueva matriz.
+Está dicho que después de la muerte, la gente de temperamento SATTVICO se va de vacaciones a los paraísos o REINOS moleculares y electrónicos donde se goza de dicha infinita antes de RETORNAR a una nueva matriz.
 
-Los INICIADOS saben muy bien, por experiencia directa, que la gente de temperamento RAYASICO se REINCORPORA o RETOR-NA a este mundo en forma INMEDIATA o permanece en el umbral aguardando la oportunidad para ingresar en una nueva matriz, pero sin tener la dicha de unas vacaciones en los distintos REINOS de la felicidad.
+Los INICIADOS saben muy bien, por experiencia directa, que la gente de temperamento RAYASICO se REINCORPORA o RETORNA a este mundo en forma INMEDIATA o permanece en el umbral aguardando la oportunidad para ingresar en una nueva matriz, pero sin tener la dicha de unas vacaciones en los distintos REINOS de la felicidad.
 
 Todo ILUMINADO sabe con entera SEGURIDAD que después de la muerte las personas de temperamento TAMOSICO ingresan en los MUNDOS-INFIERNOS situados por el DANTE en su DIVINA COMEDIA, bajo la corteza de la tierra dentro de las entrañas del mundo subterráneo.
 
-Es URGENTE eliminar de nuestra naturaleza interior las tres GUNAS, si es que de verdad queremos realizar con éxito el TRABA-JO ESOTÉRICO.
+Es URGENTE eliminar de nuestra naturaleza interior las tres GUNAS, si es que de verdad queremos realizar con éxito el TRABAJO ESOTÉRICO.
 
-El BHAGAVAD GITA dice: "Cuando el sabio ve que sólo las GU-NAS son las que actúan, y conoce a AQUÉL que está más allá de las GUNAS, entonces llega a mi SER".
+El BHAGAVAD GITA dice: "Cuando el sabio ve que sólo las GUNAS son las que actúan, y conoce a AQUÉL que está más allá de las GUNAS, entonces llega a mi SER".
 
-Muchos quisieran una técnica para eliminar las tres GUNAS no-sotros afirmamos que sólo DISOLVIENDO el EGO LUNAR se pue-den eliminar con éxito las tres GUNAS.
+Muchos quisieran una técnica para eliminar las tres GUNAS nosotros afirmamos que sólo DISOLVIENDO el EGO LUNAR se pueden eliminar con éxito las tres GUNAS.
 
-Aquél que se queda indiferente y no es perturbado por las GU-NAS, que ha realizado que sólo las GUNAS funcionan, y permanece firme sin vacilar, es porque ya DISOLVIÓ el EGO LUNAR.
+Aquél que se queda indiferente y no es perturbado por las GUNAS, que ha realizado que sólo las GUNAS funcionan, y permanece firme sin vacilar, es porque ya DISOLVIÓ el EGO LUNAR.
 
 Aquél que se siente igual en el placer o en el dolor, que mora en su propio SER; que da igual valor a un trozo de arcilla a una piedrita o a una pepita de oro; que se mantiene ecuánime ante lo agradable y lo desagradable, ante la censura o la alabanza, en el honor o en el deshonor, ante el amigo o el enemigo y que ha renunciado a toda nueva empresa EGOÍSTA y terrenal, es porque ya eliminó las TRES GUNAS y DISOLVIÓ el EGO LUNAR.
 
 Aquél que ya no tiene concupiscencia, que extinguió el fuego de la LUJURIA en todos los cuarenta y nueve departamentos SUB-CONSCIENTES de la mente, eliminó las TRES GUNAS y disolvió el EGO LUNAR.
 
-"La tierra, el agua, el fuego, el aire, el espacio, la mente, el inte-lecto y el EGO, son las ocho categorías en que está dividida mi PRAKRITI". Así está escrito, estas son las palabras del Bendito.
+"La tierra, el agua, el fuego, el aire, el espacio, la mente, el intelecto y el EGO, son las ocho categorías en que está dividida mi PRAKRITI". Así está escrito, estas son las palabras del Bendito.
 
 "Cuando amanece el GRAN DÍA CÓSMICO, todos los seres se manifiestan procediendo de la INMANIFESTADA PRAKRITI; y en el ocaso, desaparecen en la misma INMANIFESTADA".
 
-Detrás de la INMANIFESTADA PRAKRITI está el INMANIFES-TADO ABSOLUTO. Es necesario ingresar primero a la INMANIFES-TADA antes de sumergirnos entre el SENO del INMANIFESTADO ABSOLUTO.
+Detrás de la INMANIFESTADA PRAKRITI está el INMANIFESTADO ABSOLUTO. Es necesario ingresar primero a la INMANIFESTADA antes de sumergirnos entre el SENO del INMANIFESTADO ABSOLUTO.
 
 La Bendita DIOSA MADRE DEL MUNDO es eso que se llama AMOR. Ella es ISIS, a quien ningún mortal ha levantado el velo; en la flama de la SERPIENTE la adoramos.
 
-Todas las GRANDES RELIGIONES rindieron culto a la MADRE CÓSMICA; ella es ADONÍA, INSOBERTA, REA, CIBELES, TO-NANTZIN, etc., etc., etc.
+Todas las GRANDES RELIGIONES rindieron culto a la MADRE CÓSMICA; ella es ADONÍA, INSOBERTA, REA, CIBELES, TONANTZIN, etc., etc., etc.
 
 El DEVOTO de la VIRGEN MADRE puede pedir; las sagradas escrituras dicen: Pedid y se os dará, golpead y se os abrirá.
 
-En el GRAN VIENTRE de la MADRE DIVINA se gestan los mun-dos. VIRGO gobierna el VIENTRE. Virgo está muy íntimamente rela-cionado con los intestinos y en forma muy especial con el Páncreas y los ISLOTES de LARGEHANS que segregan la INSULINA tan im-portante para la digestión de los azúcares.
+En el GRAN VIENTRE de la MADRE DIVINA se gestan los mundos. VIRGO gobierna el VIENTRE. Virgo está muy íntimamente relacionado con los intestinos y en forma muy especial con el Páncreas y los ISLOTES de LARGEHANS que segregan la INSULINA tan importante para la digestión de los azúcares.
 
 Las fuerzas que suben de la tierra, al llegar al vientre, se cargan con las hormonas adrenales que las preparan y purifican para su ascenso al corazón.
 
-Durante este signo de VIRGO (LA VIRGEN CELESTIAL), noso-tros, acostados de espaldas con el cuerpo relajado, debemos darle al vientre pequeños saltitos, con el propósito de que las fuerzas que suben de la tierra, se carguen en el vientre con las hormonas adre-nales.
+Durante este signo de VIRGO (LA VIRGEN CELESTIAL), nosotros, acostados de espaldas con el cuerpo relajado, debemos darle al vientre pequeños saltitos, con el propósito de que las fuerzas que suben de la tierra, se carguen en el vientre con las hormonas adrenales.
 
 El estudiante GNÓSTICO debe comprender la importancia de esa caldera llamada estómago y acabar para siempre con el vicio de la glotonería.
 
@@ -874,21 +890,21 @@ Sacrificar el GANADO, las vacas, los toros, es un crimen horrible propio de esta
 
 En el mundo ha existido siempre dos Razas en eterno conflicto la SOLAR y la LUNAR.
 
-ABRAHAM, IA-SAC, IA-CAB, IO-SEP, fueron siempre adoradores de la VACA SAGRADA, IO, o de la DIOSA EGIPCIA IS-IS; mientras que ya Moisés, o mejor dijéramos el REFORMADOR ESDRAS que alteró las enseñanzas de Moisés, exigen el SACRIFICIO de la VACA y la ternera y que su sangre caiga sobre la cabeza de todos, espe-cialmente de sus hijos.
+ABRAHAM, IA-SAC, IA-CAB, IO-SEP, fueron siempre adoradores de la VACA SAGRADA, IO, o de la DIOSA EGIPCIA IS-IS; mientras que ya Moisés, o mejor dijéramos el REFORMADOR ESDRAS que alteró las enseñanzas de Moisés, exigen el SACRIFICIO de la VACA y la ternera y que su sangre caiga sobre la cabeza de todos, especialmente de sus hijos.
 
 La VACA SAGRADA es el símbolo de la MADRE DIVINA, ISIS, a quien ningún mortal ha levantado el velo.
 
 Los DOS VECES NACIDOS forman la RAZA SOLAR, el PUEBLO SOLAR. La GENTE de la RAZA SOLAR jamás asesinaría a una VACA SAGRADA. Los dos VECES NACIDOS son hijos de la VACA SAGRADA.
 
-El ÉXODO, capítulo XXIX, es pura y legítima MAGIA NEGRA. En dicho capítulo injustamente atribuido a MOISÉS, se describe minu-ciosamente la ceremonia ritual del sacrificio del ganado.
+El ÉXODO, capítulo XXIX, es pura y legítima MAGIA NEGRA. En dicho capítulo injustamente atribuido a MOISÉS, se describe minuciosamente la ceremonia ritual del sacrificio del ganado.
 
 La RAZA LUNAR odia mortalmente a la VACA SAGRADA. La RAZA solar adora la VACA SAGRADA.
 
-H.P.B., vio realmente una VACA de CINCO PATAS. La quinta pa-ta salía de su giba, con ella se rascaba, espantaba las moscas, etc.
+H.P.B., vio realmente una VACA de CINCO PATAS. La quinta pata salía de su giba, con ella se rascaba, espantaba las moscas, etc.
 
 Tal vaca era conducida por un joven de la Secta SADHU, en las tierras del INDOSTÁN.
 
-La VACA SAGRADA DE CINCO PATAS es la GUARDIANA de las tierras y templos de JINAS; la PRAKRITI, la MADRE DIVINA, de-sarrollo en el HOMBRE SOLAR, el poder que nos permite entrar en las TIERRAS DE JINAS, en sus palacios, en sus templos, en los JARDINES DE LOS DIOSES.
+La VACA SAGRADA DE CINCO PATAS es la GUARDIANA de las tierras y templos de JINAS; la PRAKRITI, la MADRE DIVINA, desarrollo en el HOMBRE SOLAR, el poder que nos permite entrar en las TIERRAS DE JINAS, en sus palacios, en sus templos, en los JARDINES DE LOS DIOSES.
 
 Lo único que nos separa de la tierra de los encantos y maravillas JINAS, es una GRAN PIEDRA que debemos saber correr. La KÁBALA es la CIENCIA de la VACA; leyendo las tres sílabas de KÁBALA a la inversa, tenemos LA-VA-CA.
 
@@ -896,11 +912,11 @@ La PIEDRA de KABA en la MECA leída a la inversa VACA o la PIEDRA de la VACA.
 
 El GRAN SANTUARIO DE KABA es realmente el SANTUARIO DE LA VACA. La PRAKRITI en el hombre se hace fecunda con el fuego sagrado y se convierte en la VACA SAGRADA de las cinco patas.
 
-La SURA 68 del KORAN es maravillosa; en ella se habla de los miembros de la VACA, como de algo extraordinario, capaces de re-sucitar hasta los muertos, o sea a los hombres LUNARES (ANIMA-LES INTELECTUALES), para conducirlos a la LUZ PRIMITIVA de la RELIGIÓN SOLAR.
+La SURA 68 del KORAN es maravillosa; en ella se habla de los miembros de la VACA, como de algo extraordinario, capaces de resucitar hasta los muertos, o sea a los hombres LUNARES (ANIMALES INTELECTUALES), para conducirlos a la LUZ PRIMITIVA de la RELIGIÓN SOLAR.
 
-Nosotros, los GNÓSTICOS, adoramos la VACA SAGRADA, ren-dimos culto a la MADRE DIVINA.
+Nosotros, los GNÓSTICOS, adoramos la VACA SAGRADA, rendimos culto a la MADRE DIVINA.
 
-Con la ayuda de la VACA SAGRADA DE CINCO PATAS, pode-mos entrar con cuerpo físico en estado de JINAS dentro de los TEMPLOS de los DIOSES.
+Con la ayuda de la VACA SAGRADA DE CINCO PATAS, podemos entrar con cuerpo físico en estado de JINAS dentro de los TEMPLOS de los DIOSES.
 
 Si el estudiante medita profundamente en la VACA DE CINCO PATAS, en la MADRE DIVINA y le ruega que le ponga su cuerpo físico en estado JINAS, puede triunfar.
 
@@ -908,17 +924,17 @@ Lo importante es levantarse luego de la cama sin perder el sueño, como un soná
 
 Meter el CUERPO FÍSICO dentro de la CUARTA DIMENSIÓN es algo extraordinario, algo maravilloso, y esto sólo es posible con la ayuda de la VACA SAGRADA de las cinco patas.
 
-Necesitamos desarrollar a la VACA SAGRADA totalmente dentro de nosotros mismos, para realizar maravillas y prodigios de la cien-cia JINAS.
+Necesitamos desarrollar a la VACA SAGRADA totalmente dentro de nosotros mismos, para realizar maravillas y prodigios de la ciencia JINAS.
 
-La MADRE DIVINA está muy cerca de su hijo, está dentro del IN-TIMO mismo de cada uno de nosotros y a ella, precisamente a ella, debemos pedirle ayuda en los momentos difíciles de la existencia.
+La MADRE DIVINA está muy cerca de su hijo, está dentro del INTIMO mismo de cada uno de nosotros y a ella, precisamente a ella, debemos pedirle ayuda en los momentos difíciles de la existencia.
 
-Existen tres clases de alimentos: SATTVICOS, RAYASICOS y TAMOSICOS. Los alimentos SATTVICOS están constituidos por flo-res, granos, frutas y eso que se llama AMOR. Los alimentos RAYASICOS son fuertes, pasionales, picantes en exceso, demasiado salados, exageradamente dulces, etc.
+Existen tres clases de alimentos: SATTVICOS, RAYASICOS y TAMOSICOS. Los alimentos SATTVICOS están constituidos por flores, granos, frutas y eso que se llama AMOR. Los alimentos RAYASICOS son fuertes, pasionales, picantes en exceso, demasiado salados, exageradamente dulces, etc.
 
 Los alimentos TAMOSICOS en realidad están constituidos por sangre y carne roja, no tienen AMOR, se compran y se venden o se ofrecen con vanidad, soberbia y orgullo.
 
 Comed lo necesario para vivir, ni demasiado poco, ni en exceso, bebed agua pura, bendecid los alimentos.
 
-VIRGO es signo zodiacal de la VIRGEN MADRE del MUNDO, es casa de MERCURIO, sus minerales son el JASPE y la ESMERAL-DA.
+VIRGO es signo zodiacal de la VIRGEN MADRE del MUNDO, es casa de MERCURIO, sus minerales son el JASPE y la ESMERALDA.
 
 En la práctica hemos podido verificar que los nativos de VIRGO son desgraciadamente muy razonativos en exceso, más allá de lo normal y escépticos por naturaleza.
 
@@ -928,65 +944,67 @@ Los nativos de VIRGO sirven para la ciencia, la Psiquiatría, la medicina, el na
 
 Los nativos de VIRGO no pueden entenderse con la gente de PISCIS y por ello les aconsejamos evitar matrimonios con personas Piscianas.
 
-Lo más lamentable de las gentes de VIRGO es esa inercia y es-cepticismo que les caracteriza. Sin embargo, resulta interesante sa-ber que esa tensa inercia tiende a pasar de lo material a lo espiritual, hasta donde es accesible por medio de la experiencia.
+Lo más lamentable de las gentes de VIRGO es esa inercia y escepticismo que les caracteriza. Sin embargo, resulta interesante saber que esa tensa inercia tiende a pasar de lo material a lo espiritual, hasta donde es accesible por medio de la experiencia.
 
 El talento CRÍTICO-ANALÍTICO de VIRGO es formidable y entre los GRANDES GENIOS de este signo, está GOETHE, quien logró trascender lo material, la inercia y entrar en la alta espiritualidad científica.
 
-Empero, todos los nativos de VIRGO, NO son GOETHE. Por lo común abundan entre los mediocres de este signo, los MATERIA-LISTAS ATEOS, enemigos de todo lo que huela a ESPIRITUALI-DAD.
+Empero, todos los nativos de VIRGO, NO son GOETHE. Por lo común abundan entre los mediocres de este signo, los MATERIALISTAS ATEOS, enemigos de todo lo que huela a ESPIRITUALIDAD.
 
-El EGOÍSMO de la gente MEDIOCRE de VIRGO, es algo dema-siado grotesco y asqueante, pero los GOETHE de VIRGO son genia-les, altamente altruistas y profundamente desinteresados.
+El EGOÍSMO de la gente MEDIOCRE de VIRGO, es algo demasiado grotesco y asqueante, pero los GOETHE de VIRGO son geniales, altamente altruistas y profundamente desinteresados.
 
-Los nativos de VIRGO sufren en el amor y pasan por grandes de-cepciones, debido a que VENUS, el astro del amor, en VIRGO está en destierro.
+Los nativos de VIRGO sufren en el amor y pasan por grandes decepciones, debido a que VENUS, el astro del amor, en VIRGO está en destierro.
 
 # CAPÍTULO 7
+
+![Imagen 9](Tratado Esoterico de Astrologia Hermetica/Tratado Esoterico de Astrologia Hermetica - 009 - CAPÍTULO 7.jpeg)
 
 Libra
 
 **(23 de Setiembre a 23 de Octubre) LIBRA**
 
-La mente decrépita occidental, al crear el DOGMA INTRANSI-GENTE de la EVOLUCIÓN, se olvidó totalmente de los procesos destructivos de la Naturaleza. Es curioso que la mente degenerada no pueda concebir el proceso inverso, INVOLUTIVO, en GRANDE ESCALA.
+La mente decrépita occidental, al crear el DOGMA INTRANSIGENTE de la EVOLUCIÓN, se olvidó totalmente de los procesos destructivos de la Naturaleza. Es curioso que la mente degenerada no pueda concebir el proceso inverso, INVOLUTIVO, en GRANDE ESCALA.
 
-La mente en estado de decrepitud confunde una caída con una bajada y al proceso de destrucción, disolución en grande escala, de-generación, etc., lo califica de cambio, progreso, EVOLUCIÓN.
+La mente en estado de decrepitud confunde una caída con una bajada y al proceso de destrucción, disolución en grande escala, degeneración, etc., lo califica de cambio, progreso, EVOLUCIÓN.
 
-Todo EVOLUCIONA e INVOLUCIONA, sube y baja, crece y de-crece, va y viene, fluye y refluye; en todo existe un sístole y un diás-tole, de acuerdo con la Ley del péndulo.
+Todo EVOLUCIONA e INVOLUCIONA, sube y baja, crece y decrece, va y viene, fluye y refluye; en todo existe un sístole y un diástole, de acuerdo con la Ley del péndulo.
 
-La EVOLUCIÓN y su hermana Gemela la INVOLUCIÓN, son dos Leyes que se desarrollan y procesan en forma coordinada y armo-niosa en todo lo creado.
+La EVOLUCIÓN y su hermana Gemela la INVOLUCIÓN, son dos Leyes que se desarrollan y procesan en forma coordinada y armoniosa en todo lo creado.
 
 La EVOLUCIÓN y la INVOLUCIÓN constituyen el eje mecánico de la naturaleza.
 
 La EVOLUCIÓN y la INVOLUCIÓN son dos leyes mecánicas de la naturaleza que nada tienen que ver con la AUTOREALIZACIÓN ÍNTIMA del hombre.
 
-La AUTO-REALIZACIÓN ÍNTIMA del hombre, no puede ser jamás el producto de ninguna Ley mecánica, sino el resultado de un trabajo consciente, hecho sobre sí mismo y dentro de Sí MISMO, a base de TREMENDOS SÚPER-ESFUERZOS, comprensión de fon-do y sufrimientos intencionales y voluntarios.
+La AUTO-REALIZACIÓN ÍNTIMA del hombre, no puede ser jamás el producto de ninguna Ley mecánica, sino el resultado de un trabajo consciente, hecho sobre sí mismo y dentro de Sí MISMO, a base de TREMENDOS SÚPER-ESFUERZOS, comprensión de fondo y sufrimientos intencionales y voluntarios.
 
-Todo RETORNA al punto de partida original y el EGO LUNAR re-torna después de la muerte a una nueva matriz.
+Todo RETORNA al punto de partida original y el EGO LUNAR retorna después de la muerte a una nueva matriz.
 
-Escrito está que a todo ser humano se le asignan CIENTO OCHO vidas para que se AUTO-REALICE. A muchas personas se les está venciendo el tiempo. Quien no se AUTO-REALIZA dentro de su tiempo señalado, deja de nacer para ingresar a los MUNDOS IN-FIERNOS.
+Escrito está que a todo ser humano se le asignan CIENTO OCHO vidas para que se AUTO-REALICE. A muchas personas se les está venciendo el tiempo. Quien no se AUTO-REALIZA dentro de su tiempo señalado, deja de nacer para ingresar a los MUNDOS INFIERNOS.
 
-En apoyo de la LEY de la INVOLUCIÓN o retroceso viene el BHAGAVAD GITA diciendo: "A ellos, los malvados, crueles y degra-dados, les arrojo, perpetuamente en los VIENTRES ASÚRICOS (DEMONÍACOS), para que nazcan en estos mundos" (MUNDOS INFIERNOS).
+En apoyo de la LEY de la INVOLUCIÓN o retroceso viene el BHAGAVAD GITA diciendo: "A ellos, los malvados, crueles y degradados, les arrojo, perpetuamente en los VIENTRES ASÚRICOS (DEMONÍACOS), para que nazcan en estos mundos" (MUNDOS INFIERNOS).
 
-¡OH Kountreya!, esa gente alucinada va a las matrices Demonía-cas durante muchas vidas y sigue cayendo en cuerpos cada vez más inferiores». (INVOLUCIÓN).
+¡OH Kountreya!, esa gente alucinada va a las matrices Demoníacas durante muchas vidas y sigue cayendo en cuerpos cada vez más inferiores». (INVOLUCIÓN).
 
-“Triple es la puerta de este infierno destructor; está hecha de luju-ria, ira y codicia; por eso se debe abandonar”.
+“Triple es la puerta de este infierno destructor; está hecha de lujuria, ira y codicia; por eso se debe abandonar”.
 
-La antesala de los MUNDOS-INFIERNOS es el descenso INVO-LUTIVO en cuerpos cada vez más inferiores de acuerdo con la LEY de la INVOLUCIÓN.
+La antesala de los MUNDOS-INFIERNOS es el descenso INVOLUTIVO en cuerpos cada vez más inferiores de acuerdo con la LEY de la INVOLUCIÓN.
 
-Quienes descienden por la espiral de la vida caen en matrices Demoníacas durante varias vidas antes de ingresar en los MUN-DOS-INFIERNOS de la NATURALEZA, situados por el DANTE de-ntro del interior del organismo terrestre.
+Quienes descienden por la espiral de la vida caen en matrices Demoníacas durante varias vidas antes de ingresar en los MUNDOS-INFIERNOS de la NATURALEZA, situados por el DANTE dentro del interior del organismo terrestre.
 
 En el capítulo segundo hablamos ya sobre la VACA SAGRADA y su honda significación; es muy curioso que todo BRAHMÁN en la INDIA, al rezar el ROSARIO cuenta ciento ocho cuentas del mismo.
 
-INDOS hay que no se dan por cumplidos sus deberes sagrados, si no dan en torno de la VACA PRINCIPAL, ciento ocho vueltas con el ROSARIO en las manos, y sí, llenando una copa de agua y po-niéndola por un momento en la cola de la VACA, no se la bebe, co-mo el más sagrado y delicioso licor Divino.
+INDOS hay que no se dan por cumplidos sus deberes sagrados, si no dan en torno de la VACA PRINCIPAL, ciento ocho vueltas con el ROSARIO en las manos, y sí, llenando una copa de agua y poniéndola por un momento en la cola de la VACA, no se la bebe, como el más sagrado y delicioso licor Divino.
 
 Es URGENTE recordar que el collar del BUDDHA tiene CIENTO OCHO CUENTAS. Todo esto nos invita a reflexionar sobre las CIENTO OCHO VIDAS que le son asignadas al SER HUMANO.
 
 Es claro que quien no aprovecha esas CIENTO OCHO VIDAS, ingresa en la INVOLUCIÓN de los MUNDOS-INFIERNOS.
 
-La INVOLUCIÓN INFERNAL es un caer hacia atrás, hacia el pa-sado, pasando por todos los estados animales, vegetales y minera-les, a través de sufrimientos espantosos.
+La INVOLUCIÓN INFERNAL es un caer hacia atrás, hacia el pasado, pasando por todos los estados animales, vegetales y minerales, a través de sufrimientos espantosos.
 
 La última etapa de la INVOLUCIÓN INFERNAL es el estado fósil, después viene la DESINTEGRACIÓN de los perdidos.
 
 Lo único que se SALVA de toda esa tragedia, lo único que NO se desintegra es la ESENCIA, el BUDHATA, esa FRACCIÓN DE ALMA HUMANA que el pobre ANIMAL INTELECTUAL carga dentro de sus CUERPOS LUNARES.
 
-La INVOLUCIÓN en los MUNDO-INFIERNOS tiene precisamente por objeto liberar al BUDHATA, el ALMA HUMANA, para que desde el caos original reinicie su ascenso EVOLUTIVO por las escalas mi-neral, vegetal, animal, hasta alcanzar el nivel del ANIMAL INTELEC-TUAL equivocadamente llamado HOMBRE.
+La INVOLUCIÓN en los MUNDO-INFIERNOS tiene precisamente por objeto liberar al BUDHATA, el ALMA HUMANA, para que desde el caos original reinicie su ascenso EVOLUTIVO por las escalas mineral, vegetal, animal, hasta alcanzar el nivel del ANIMAL INTELECTUAL equivocadamente llamado HOMBRE.
 
 Es lamentable que muchas ALMAS reincidan, vuelvan una y otra vez a los MUNDOS-INFIERNOS.
 
@@ -994,35 +1012,35 @@ El tiempo en los MUNDOS-INFIERNOS del REINO MINERAL SUMERGIDO, es espantosamente
 
 Quien se desintegra totalmente en los MUNDOS-INFIERNOS, queda en paz y salvo con la LEY DEL KARMA.
 
-Después de la muerte del CUERPO FÍSICO, todo ser humano después de revisar la vida que acaba de pasar, es JUZGADO por los SEÑORES DEL KARMA. Los perdidos ingresan a los MUNDOS-INFIERNOS después de haber sido puestas sus obras buenas y ma-las en la balanza de la JUSTICIA CÓSMICA.
+Después de la muerte del CUERPO FÍSICO, todo ser humano después de revisar la vida que acaba de pasar, es JUZGADO por los SEÑORES DEL KARMA. Los perdidos ingresan a los MUNDOS-INFIERNOS después de haber sido puestas sus obras buenas y malas en la balanza de la JUSTICIA CÓSMICA.
 
-La LEY DE LA BALANZA, la LEY TERRIBLE DEL KARMA, go-bierna todo lo creado. Toda causa se convierte en efecto y todo efec-to se transforma en causa.
+La LEY DE LA BALANZA, la LEY TERRIBLE DEL KARMA, gobierna todo lo creado. Toda causa se convierte en efecto y todo efecto se transforma en causa.
 
-Modificando la CAUSA se MODIFICA el EFECTO. Haced buenas obras para que pagues tus deudas. Al LEÓN DE LA LEY se combate con la balanza. Si el platillo de las malas obras pesa más, os acon-sejo aumentar el peso en el platillo de las buenas obras, así inclinar-éis la balanza a vuestro favor.
+Modificando la CAUSA se MODIFICA el EFECTO. Haced buenas obras para que pagues tus deudas. Al LEÓN DE LA LEY se combate con la balanza. Si el platillo de las malas obras pesa más, os aconsejo aumentar el peso en el platillo de las buenas obras, así inclinaréis la balanza a vuestro favor.
 
-Quien tiene CAPITAL con que pagar, paga y sale bien en los ne-gocios; quien no tiene CAPITAL, debe pagar con dolor.
+Quien tiene CAPITAL con que pagar, paga y sale bien en los negocios; quien no tiene CAPITAL, debe pagar con dolor.
 
-Cuando una LEY INFERIOR es trascendida por una LEY SUPE-RIOR, la LEY SUPERIOR LAVA a la LEY INFERIOR.
+Cuando una LEY INFERIOR es trascendida por una LEY SUPERIOR, la LEY SUPERIOR LAVA a la LEY INFERIOR.
 
-Millones de personas hablan sobre las LEYES de REENCARNA-CIÓN y KARMA, sin haber experimentado en forma directa su onda SIGNIFICACIÓN.
+Millones de personas hablan sobre las LEYES de REENCARNACIÓN y KARMA, sin haber experimentado en forma directa su onda SIGNIFICACIÓN.
 
-Realmente el EGO LUNAR RETORNA, se REINCORPORA, pe-netra en una nueva matriz, pero eso no se puede llamar REENCAR-NACIÓN; hablando con precisión diremos que eso es RETORNO.
+Realmente el EGO LUNAR RETORNA, se REINCORPORA, penetra en una nueva matriz, pero eso no se puede llamar REENCARNACIÓN; hablando con precisión diremos que eso es RETORNO.
 
 REENCARNACIÓN es otra cosa; la REENCARNACIÓN es sólo para MAESTROS, para INDIVIDUOS SAGRADOS, para los DOS VECES NACIDOS, para aquellos que ya poseen el SER.
 
-El EGO LUNAR retorna y de acuerdo con la LEY de RECU-RRENCIA, repite en cada vida las mismas acciones, los mismos dramas de las precedentes vidas.
+El EGO LUNAR retorna y de acuerdo con la LEY de RECURRENCIA, repite en cada vida las mismas acciones, los mismos dramas de las precedentes vidas.
 
 La LÍNEA ESPIRAL es la línea de la vida y cada vida se repite ya en ESPIRAS más elevadas, EVOLUTIVAS o ya en ESPIRAS más bajas, INVOLUTIVAS.
 
-Cada vida es una repetición de la pasada, más sus consecuen-cias buenas o malas, agradables o desagradables.
+Cada vida es una repetición de la pasada, más sus consecuencias buenas o malas, agradables o desagradables.
 
 Muchas personas en forma resuelta y definitiva, descienden de vida en vida por la línea espiral involutiva, hasta entrar por último en los MUNDOS-INFIERNOS.
 
 Quien quiera AUTO-REALIZARSE a fondo, debe libertarse del círculo vicioso de las LEYES EVOLUTIVAS e INVOLUTIVAS de la naturaleza.
 
-Quien de VERDAD quiera salir del ESTADO de ANIMAL INTE-LECTUAL, quien muy sinceramente quiera convertirse en HOMBRE de VERDAD, debe liberarse de las LEYES MECÁNICAS de la natu-raleza.
+Quien de VERDAD quiera salir del ESTADO de ANIMAL INTELECTUAL, quien muy sinceramente quiera convertirse en HOMBRE de VERDAD, debe liberarse de las LEYES MECÁNICAS de la naturaleza.
 
-Todo aquel que quiera convertirse en DOS VECES NACIDO, to-do aquel que quiera la AUTO-REALIZACIÓN ÍNTIMA, debe meterse por el camino de la REVOLUCIÓN DE LA CONCIENCIA; ésta es la senda del FILO DE LA NAVAJA. Esta senda está llena de peligros por dentro y por fuera.
+Todo aquel que quiera convertirse en DOS VECES NACIDO, todo aquel que quiera la AUTO-REALIZACIÓN ÍNTIMA, debe meterse por el camino de la REVOLUCIÓN DE LA CONCIENCIA; ésta es la senda del FILO DE LA NAVAJA. Esta senda está llena de peligros por dentro y por fuera.
 
 El DHAMMAPADA dice: “De entre los hombres pocos son los que alcanzan la otra orilla. Los demás andan en esta orilla, corriendo de un lado para otro”.
 
@@ -1030,7 +1048,7 @@ Jesús el Cristo dice: “De mil que me buscan uno me encuentra, de mil que me e
 
 El BHAGAVAD GITA dice: “Entre miles de hombres tal vez uno intenta llegar a la perfección; entre los que intentan, posiblemente, uno logra la perfección, y entre los perfectos, quizás uno ME conoce perfectamente”.
 
-El DIVINO RABÍ DE GALILEA nunca dijo que la LEY de la EVO-LUCIÓN llevaría a todos los seres humanos a la perfección. JESÚS, en los cuatro evangelios pone énfasis en la dificultad para entrar al REINO.
+El DIVINO RABÍ DE GALILEA nunca dijo que la LEY de la EVOLUCIÓN llevaría a todos los seres humanos a la perfección. JESÚS, en los cuatro evangelios pone énfasis en la dificultad para entrar al REINO.
 
 “Esforzaos a entrar por la puerta angosta, porque os digo que muchos procurarán entrar, y no podrán”.
 
@@ -1040,11 +1058,11 @@ El DIVINO RABÍ DE GALILEA nunca dijo que la LEY de la EVO-LUCIÓN llevaría a t
 
 “Pero os dirá: Os digo que no sé de dónde sois; apartaos de mi todos vosotros, hacedores de maldad”.
 
-“Allí será el llanto y el crujir de dientes, cuando veáis a Abraham, a Isaac, a Jacob y a todos los profetas en el REINO DE DIOS, y vo-sotros excluidos”.
+“Allí será el llanto y el crujir de dientes, cuando veáis a Abraham, a Isaac, a Jacob y a todos los profetas en el REINO DE DIOS, y vosotros excluidos”.
 
 La LEY DE LA SELECCIÓN NATURAL, existe en todo lo creado; no todos los estudiantes que ingresan a una facultad se reciben de profesionistas.
 
-El CRISTO JESÚS nunca dijo que la LEY de la EVOLUCIÓN lle-varía a todos los seres humanos a la meta final.
+El CRISTO JESÚS nunca dijo que la LEY de la EVOLUCIÓN llevaría a todos los seres humanos a la meta final.
 
 Algunos SEUDO-ESOTERISTAS y SEUDO-OCULTISTAS dicen que por muchos caminos se llega a DIOS. Este es realmente un SOFISMA con el cual quieren siempre justificar sus propios errores.
 
@@ -1062,15 +1080,15 @@ Quien despierta CONCIENCIA, puede viajar en sus CUERPOS INTERNOS fuera del CUERP
 
 En el TEMPLO DE ANUBIS y sus CUARENTA Y DOS JUECES, el INICIADO puede estudiar su propio libro.
 
-ANUBIS es el SUPREMO REGENTE del KARMA. El templo de ANUBIS se encuentra en el MUNDO MOLECULAR, llamado por mu-chas gentes MUNDO ASTRAL.
+ANUBIS es el SUPREMO REGENTE del KARMA. El templo de ANUBIS se encuentra en el MUNDO MOLECULAR, llamado por muchas gentes MUNDO ASTRAL.
 
-Los INICIADOS pueden negociar directamente con ANUBIS. Po-demos cancelar toda deuda Kármica con BUENAS OBRAS, pero hay que negociar con ANUBIS.
+Los INICIADOS pueden negociar directamente con ANUBIS. Podemos cancelar toda deuda Kármica con BUENAS OBRAS, pero hay que negociar con ANUBIS.
 
-La LEY DEL KARMA, la LEY de la BALANZA CÓSMICA no es una LEY ciega; también se puede solicitar CRÉDITO a los SEÑO-RES DEL KARMA, mas todo CRÉDITO hay que pagarlo con buenas obras y si no se paga, entonces la LEY lo cobra con dolor.
+La LEY DEL KARMA, la LEY de la BALANZA CÓSMICA no es una LEY ciega; también se puede solicitar CRÉDITO a los SEÑORES DEL KARMA, mas todo CRÉDITO hay que pagarlo con buenas obras y si no se paga, entonces la LEY lo cobra con dolor.
 
 LIBRA, el signo zodiacal de la BALANZA, gobierna los RÍÑONES. LIBRA es el signo de las fuerzas equilibrantes y en los riñones las fuerzas de nuestro organismo deben equilibrarse en forma total.
 
-Poneos de pie, en posición militar de firmes y luego con los bra-zos extendidos en forma de CRUZ, o de BALANZA, moveos en for-ma de BALANZA inclinándoos siete veces hacia la derecha y siete veces a la izquierda con la intención de que todas vuestras fuerzas se equilibren en los riñones. El movimiento de la mitad superior de la espina dorsal debe ser como el de una balanza.
+Poneos de pie, en posición militar de firmes y luego con los brazos extendidos en forma de CRUZ, o de BALANZA, moveos en forma de BALANZA inclinándoos siete veces hacia la derecha y siete veces a la izquierda con la intención de que todas vuestras fuerzas se equilibren en los riñones. El movimiento de la mitad superior de la espina dorsal debe ser como el de una balanza.
 
 Las fuerzas que suben de la tierra pasando por el cedazo de nuestros pies a lo largo de todo el organismo, deben equilibrarse en la cintura y esto se realiza con éxito mediante el MOVIMIENTO DE BALANCEO de LIBRA. LIBRA está gobernado por VENUS y SATURNO. Metal, el cobre. Piedra, el CRISOLITO.
 
@@ -1078,37 +1096,39 @@ En la práctica hemos podido verificar que los nativos de LIBRA suelen, en su ma
 
 Los nativos de LIBRA se crean muchos problemas por su manera de ser franca y JUSTICIERA.
 
-A los LÍBRANOS bien aspectados, les gusta las cosas rectas jus-tas. La gente no entiende bien a los LÍBRANOS, éstos parecen a veces crueles y despiadados, no saben ni quieren saber de diploma-cias, la hipocresía les fastidia, las dulces palabras de los perversos les enojan fácilmente en vez de suavizarles.
+A los LÍBRANOS bien aspectados, les gusta las cosas rectas justas. La gente no entiende bien a los LÍBRANOS, éstos parecen a veces crueles y despiadados, no saben ni quieren saber de diplomacias, la hipocresía les fastidia, las dulces palabras de los perversos les enojan fácilmente en vez de suavizarles.
 
-Los LÍBRANOS tienen el defecto de no saber perdonar al prójimo, en todo quieren ver Ley y nada más que ley, olvidando muchas ve-ces la misericordia.
+Los LÍBRANOS tienen el defecto de no saber perdonar al prójimo, en todo quieren ver Ley y nada más que ley, olvidando muchas veces la misericordia.
 
 A los NATIVOS DE LIBRA les gusta muchísimo viajar y son fieles cumplidores de sus deberes.
 
-Los nativos de LIBRA son lo que son y nada más que lo que son, francos y justicieros. Las gentes suelen enojarse con los nativos de LIBRA, se les interpreta erradamente por esa forma de ser y como es natural se habla mal de ellos y suelen llenarse de enemigos gra-tuitos.
+Los nativos de LIBRA son lo que son y nada más que lo que son, francos y justicieros. Las gentes suelen enojarse con los nativos de LIBRA, se les interpreta erradamente por esa forma de ser y como es natural se habla mal de ellos y suelen llenarse de enemigos gratuitos.
 
 Al LIBRANO no se le puede venir con DOBLES JUEGOS, eso no lo tolera el LIBRANO y no lo perdona.
 
-Con los LÍBRANOS se debe ser siempre amable y cariñoso o se-vero siempre, pero jamás con ese juego doble de dulzura y dureza, porque eso no lo tolera y no lo perdona jamás el LIBRANO.
+Con los LÍBRANOS se debe ser siempre amable y cariñoso o severo siempre, pero jamás con ese juego doble de dulzura y dureza, porque eso no lo tolera y no lo perdona jamás el LIBRANO.
 
-El tipo SUPERIOR de LIBRA confiere siempre CASTIDAD TO-TAL. El tipo inferior de LIBRA es muy fornicario y adúltero.
+El tipo SUPERIOR de LIBRA confiere siempre CASTIDAD TOTAL. El tipo inferior de LIBRA es muy fornicario y adúltero.
 
 El tipo superior de LIBRA tiene cierta ESPIRITUALIDAD que los ESPIRITUALISTAS no entienden y juzgan equivocadamente.
 
-El tipo inferior negativo de LIBRA, tiene gente deslumbrante y desconocida, jamás siente atracción alguna por la fama, por los lau-reles, por el prestigio.
+El tipo inferior negativo de LIBRA, tiene gente deslumbrante y desconocida, jamás siente atracción alguna por la fama, por los laureles, por el prestigio.
 
-El tipo superior de LIBRA revela la CORDURA y el sentido de previsión y ahorro. El tipo inferior de LIBRA tiene mucha superficiali-dad y codicia.
+El tipo superior de LIBRA revela la CORDURA y el sentido de previsión y ahorro. El tipo inferior de LIBRA tiene mucha superficialidad y codicia.
 
 En el tipo medio de LIBRA suelen mezclarse muchas cualidades y defectos de los dos tipos superior e inferior de LIBRA.
 
 A los nativos de LIBRA les conviene matrimonio con Piscianas.
 
-A los nativos de LIBRA les gusta hacer obras de caridad sin es-perar recompensa ni alardear o publicar el servicio hecho.
+A los nativos de LIBRA les gusta hacer obras de caridad sin esperar recompensa ni alardear o publicar el servicio hecho.
 
 El tipo superior de LIBRA ama la música selecta, se recrea en ella y la goza en grado sumo.
 
 Los LÍBRANOS sienten también atracción por el buen teatro, buena literatura, etc., etc., etc.
 
 # CAPÍTULO 8
+
+![Imagen 10](Tratado Esoterico de Astrologia Hermetica/Tratado Esoterico de Astrologia Hermetica - 010 - CAPÍTULO 8.png)
 
 Escorpio
 
@@ -1120,53 +1140,53 @@ Es necesario nacer del agua y del espíritu para poder entrar al REINO del ESOTE
 
 Es urgente NACER de nuevo para tener pleno derecho a entrar al REINO. Es urgente convertirnos en DOS VECES NACIDOS.
 
-Esto del NACIMIENTO SEGUNDO no lo entendió NICODEMUS ni lo han entendido todas las sectas BÍBLICAS. Es necesario hacer un estudio comparativo de Religiones y tener la CLAVE del ARCA-NO A.Z.F., si es que de verdad se quieren comprender las palabras de JESÚS a NICODEMUS.
+Esto del NACIMIENTO SEGUNDO no lo entendió NICODEMUS ni lo han entendido todas las sectas BÍBLICAS. Es necesario hacer un estudio comparativo de Religiones y tener la CLAVE del ARCANO A.Z.F., si es que de verdad se quieren comprender las palabras de JESÚS a NICODEMUS.
 
-Las diferentes sectas BÍBLICAS están plenamente convencidas de que sí comprenden realmente lo que significa NACER de nuevo y lo interpretan en las más variadas formas, pero ciertamente aunque tengan mucha erudición Bíblica y documenten un versículo con otro, y traten de explicar un versículo con otro u otros versículos, la reali-dad es que no lo entienden si no poseen la CLAVE SECRETA, el ARCANO A.Z.F.
+Las diferentes sectas BÍBLICAS están plenamente convencidas de que sí comprenden realmente lo que significa NACER de nuevo y lo interpretan en las más variadas formas, pero ciertamente aunque tengan mucha erudición Bíblica y documenten un versículo con otro, y traten de explicar un versículo con otro u otros versículos, la realidad es que no lo entienden si no poseen la CLAVE SECRETA, el ARCANO A.Z.F.
 
 NICODEMUS era un sabio, conocía profundamente las sagradas escrituras y, sin embargo, no entendió y dijo: «¿Cómo puede un hombre NACER siendo viejo?, ¿Puede, acaso, entrar por segunda vez en el vientre de su madre, y NACER?»
 
 JESÚS, el GRAN KABIR, le dio entonces a NICODEMUS una respuesta de tipo MAYA: “De cierto, de cierto te digo, que el que no naciere del agua y del espíritu, no puede entrar en el REINO de DIOS”.
 
-Es claro que quien no tiene más información que la letra muerta, quien no entiende el doble significado de los versículos Bíblicos, quien jamás ha conocido el ARCANO A.Z.F., interpreta estas pala-bras del GRAN KABIR, a su modo, con la única información que po-see, con lo que entiende y cree que con el bautismo de su secta o algo similar, ya está resuelto el problema del NACIMIENTO SE-GUNDO.
+Es claro que quien no tiene más información que la letra muerta, quien no entiende el doble significado de los versículos Bíblicos, quien jamás ha conocido el ARCANO A.Z.F., interpreta estas palabras del GRAN KABIR, a su modo, con la única información que posee, con lo que entiende y cree que con el bautismo de su secta o algo similar, ya está resuelto el problema del NACIMIENTO SEGUNDO.
 
 Para los MAYAS el ESPÍRITU es FUEGO VIVO y dicen: “Hay que unir lo de arriba con lo de abajo, por medio del agua y del FUEGO”.
 
-Los BRAHMANES INDOSTANlES simbolizan el nacimiento se-gundo sexualmente. En LITURGIA se construye una VACA de ORO muy grande y el candidato al NACIMIENTO SEGUNDO tiene que pasar tres veces arrastrándose por en medio del cuerpo hueco de la VACA, saliendo por la VULVA y queda así consagrada como un ver-dadero BRAHMÁN, DWIPA, o dos veces NACIDO, una de su MA-DRE y otra de la VACA.
+Los BRAHMANES INDOSTANlES simbolizan el nacimiento segundo sexualmente. En LITURGIA se construye una VACA de ORO muy grande y el candidato al NACIMIENTO SEGUNDO tiene que pasar tres veces arrastrándose por en medio del cuerpo hueco de la VACA, saliendo por la VULVA y queda así consagrada como un verdadero BRAHMÁN, DWIPA, o dos veces NACIDO, una de su MADRE y otra de la VACA.
 
 Así en forma simbólica los BRAHMANES explican el SEGUNDO NACIMIENTO enseñado por JESÚS a NICODEMUS.
 
-La VACA ya dijimos en precedentes capítulos, representa la MA-DRE DIVINA, pero lo interesante es que los BRAHMANES se dicen a sí mismos DOS VECES NACIDOS y su nacimiento segundo es sexual, nacidos de la VACA y salidos de entre su vientre por la VUL-VA.
+La VACA ya dijimos en precedentes capítulos, representa la MADRE DIVINA, pero lo interesante es que los BRAHMANES se dicen a sí mismos DOS VECES NACIDOS y su nacimiento segundo es sexual, nacidos de la VACA y salidos de entre su vientre por la VULVA.
 
-Este asunto es muy espinoso y la RAZA LUNAR lo odia mortal-mente, prefieren matar la VACA y luego insultar a todo el que hable de los MISTERIOS del SEXO y el ARCANO A. Z. F.
+Este asunto es muy espinoso y la RAZA LUNAR lo odia mortalmente, prefieren matar la VACA y luego insultar a todo el que hable de los MISTERIOS del SEXO y el ARCANO A. Z. F.
 
-Los BRAHMANES no son DOS VECES NACIDOS, pero simbóli-camente sí lo son. El MAESTRO MASÓN tampoco es MAESTRO de VERDAD, pero simbólicamente sí lo es.
+Los BRAHMANES no son DOS VECES NACIDOS, pero simbólicamente sí lo son. El MAESTRO MASÓN tampoco es MAESTRO de VERDAD, pero simbólicamente sí lo es.
 
-Lo interesante es llegar al NACIMIENTO SEGUNDO y el proble-ma es sexual en un ciento por ciento.
+Lo interesante es llegar al NACIMIENTO SEGUNDO y el problema es sexual en un ciento por ciento.
 
-Quien de verdad quiera entrar en esa tierra de la CUARTA DI-MENSIÓN, en esos valles, montañas y templos de JINAS, en ese REINO de los DOS VECES NACIDOS, tiene que trabajar con la PIEDRA BRUTA, cincelarla, darle forma, como diríamos en lenguaje Masónico.
+Quien de verdad quiera entrar en esa tierra de la CUARTA DIMENSIÓN, en esos valles, montañas y templos de JINAS, en ese REINO de los DOS VECES NACIDOS, tiene que trabajar con la PIEDRA BRUTA, cincelarla, darle forma, como diríamos en lenguaje Masónico.
 
-Necesitamos levantar respetuosamente esa PIEDRA MARAVI-LLOSA que nos separa de la TIERRA de las MIL Y UNA NOCHES, de la tierra de las maravillas donde viven felices los DOS VECES NACIDOS.
+Necesitamos levantar respetuosamente esa PIEDRA MARAVILLOSA que nos separa de la TIERRA de las MIL Y UNA NOCHES, de la tierra de las maravillas donde viven felices los DOS VECES NACIDOS.
 
 Es imposible correr la PIEDRA, levantarla, si antes no le hemos dado forma cúbica a base de cincel y martillo.
 
 PEDRO, el Discípulo de JESÚS el CRISTO, es el ALADINO, el intérprete maravilloso, autorizado para alzar la PIEDRA que cierra el SANTUARIO de los GRANDES MISTERIOS.
 
-El nombre original de PEDRO es PATAR con sus tres CONSO-NANTES, P.T. R., que son radicales.
+El nombre original de PEDRO es PATAR con sus tres CONSONANTES, P.T. R., que son radicales.
 
-P. viene a recordarnos al PADRE que está en secreto, a los PA-DRES de los DIOSES, a nuestros PADRES o PITRIS.
+P. viene a recordarnos al PADRE que está en secreto, a los PADRES de los DIOSES, a nuestros PADRES o PITRIS.
 
 T. la TAU, el HERMAFRODITA DIVINO, el hombre y la mujer unidos sexualmente durante el acto.
 
-R. esta letra es vital en el INRI, es el fuego sagrado y terriblemen-te divino, el RA egipcio.
+R. esta letra es vital en el INRI, es el fuego sagrado y terriblemente divino, el RA egipcio.
 
 PEDRO, PATAR, el ILUMINADOR, es el MAESTRO de la MAGIA SEXUAL, el MAESTRO bondadoso que nos aguarda siempre a la entrada del terrible CAMINO.
 
-La VACA RELIGIOSA el famoso MINOTAURO CRETENSE, es lo primero que nos encontramos en el subterráneo místico que condu-ce a la TIERRA de los Dos VECES NACIDOS.
+La VACA RELIGIOSA el famoso MINOTAURO CRETENSE, es lo primero que nos encontramos en el subterráneo místico que conduce a la TIERRA de los Dos VECES NACIDOS.
 
-La PIEDRA FILOSOFAL de los VIEJOS ALQUIMISTAS medieva-les es el SEXO y el NACIMIENTO SEGUNDO es SEXUAL.
+La PIEDRA FILOSOFAL de los VIEJOS ALQUIMISTAS medievales es el SEXO y el NACIMIENTO SEGUNDO es SEXUAL.
 
-El Capítulo VIII de las LEYES de Manú, dice: "Un Reino poblado sobre todo de SUDRAS, lleno de hombres impíos y privado de habi-tantes DOS VECES NACIDOS, perecerá por completo rápidamente, atacado por el hambre y la enfermedad".
+El Capítulo VIII de las LEYES de Manú, dice: "Un Reino poblado sobre todo de SUDRAS, lleno de hombres impíos y privado de habitantes DOS VECES NACIDOS, perecerá por completo rápidamente, atacado por el hambre y la enfermedad".
 
 Sin la DOCTRINA de PEDRO resulta imposible el NACIMIENTO SEGUNDO. Nosotros los GNÓSTICOS estudiamos la DOCTRINA DE PEDRO.
 
@@ -1176,87 +1196,87 @@ Muchos son los equivocados sinceros que creen que pueden AUTO-REALlZARSE excluye
 
 Muchos son los que hablan contra el SEXO, los que insultan al SEXO, lo que escupen toda su baba difamatoria en el SANTUARIO SAGRADO del TERCER LOGOS.
 
-Esos que odian al SEXO, esos que dicen que el SEXO es grose-ro, inmundo, animal, bestial son los insultadores, los que blasfeman contra el ESPÍRITU SANTO. Quien se pronuncia contra la MAGIA SEXUAL quien escupe su infamia en el SANTUARIO del TERCER LOGOS, jamás podrá llegar al NACIMIENTO SEGUNDO.
+Esos que odian al SEXO, esos que dicen que el SEXO es grosero, inmundo, animal, bestial son los insultadores, los que blasfeman contra el ESPÍRITU SANTO. Quien se pronuncia contra la MAGIA SEXUAL quien escupe su infamia en el SANTUARIO del TERCER LOGOS, jamás podrá llegar al NACIMIENTO SEGUNDO.
 
-El nombre de la MAGIA SEXUAL en SÁNSCRITO es MAIT-HUNA. La DOCTRINA de PEDRO es el MAITHUNA y JESÚS dijo: “Tú eres PEDRO, PIEDRA y sobre esa PIEDRA edificaré mi IGLE-SIA y las puertas del INFIERNO no prevalecerán contra ella”.
+El nombre de la MAGIA SEXUAL en SÁNSCRITO es MAITHUNA. La DOCTRINA de PEDRO es el MAITHUNA y JESÚS dijo: “Tú eres PEDRO, PIEDRA y sobre esa PIEDRA edificaré mi IGLESIA y las puertas del INFIERNO no prevalecerán contra ella”.
 
 La CLAVE del MAITHUNA es el LINGAM NEGRO embutido en el YONI, atributos del DIOS SHIVA, el TERCER LOGOS, el ESPÍRITU SANTO.
 
 En el MAITHUNA el PHALO debe entrar por la VAGINA, pero jamás debe eyacularse o derramarse el SEMEN.
 
-La pareja debe retirarse del acto sexual antes de llegar al espas-mo, para evitar el derrame del licor seminal.
+La pareja debe retirarse del acto sexual antes de llegar al espasmo, para evitar el derrame del licor seminal.
 
 El deseo refrenado transmutará el licor seminal en ENERGÍA CREADORA.
 
-La ENERGÍA SEXUAL sube hasta el cerebro. Así es como el ce-rebro se seminiza, así es como el semen se cerebriza.
+La ENERGÍA SEXUAL sube hasta el cerebro. Así es como el cerebro se seminiza, así es como el semen se cerebriza.
 
-El MAITHUNA es la práctica que nos permite despertar y desarro-llar el KUNDALINI, la serpiente ígnea de nuestros mágicos poderes.
+El MAITHUNA es la práctica que nos permite despertar y desarrollar el KUNDALINI, la serpiente ígnea de nuestros mágicos poderes.
 
 Cuando el KUNDALINI despierta, sube por el canal medular a lo largo de la espina dorsal.
 
 El KUNDALINI abre las siete IGLESIAS del Apocalipsis de San Juan. Las siete Iglesias están situadas en la espina dorsal.
 
-La primera Iglesia es EFESO y se corresponde con los órganos sexuales. Dentro de la IGLESIA de EFESO duerme la serpiente sa-grada enroscada tres veces y media.
+La primera Iglesia es EFESO y se corresponde con los órganos sexuales. Dentro de la IGLESIA de EFESO duerme la serpiente sagrada enroscada tres veces y media.
 
-La Segunda Iglesia es ESMIRNA, situada a la altura de la prósta-ta y nos confiere el poder sobre las aguas.
+La Segunda Iglesia es ESMIRNA, situada a la altura de la próstata y nos confiere el poder sobre las aguas.
 
 La Tercera Iglesia es PÉRGAMO, situada a la altura del ombligo y nos confiere el poder sobre el fuego.
 
-La Cuarta Iglesia es TIATIRA, situada a la altura del corazón y nos confiere el poder sobre el aire y muchos poderes, tales como el desdoblamiento voluntario, el de los JINAS, etc. La Quinta Iglesia es SARDIS, situada a la altura de la laringe creadora y nos confiere el poder del OÍDO MÁGICO, que nos permi-te escuchar las voces de los mundos superiores y la música de las esferas.
+La Cuarta Iglesia es TIATIRA, situada a la altura del corazón y nos confiere el poder sobre el aire y muchos poderes, tales como el desdoblamiento voluntario, el de los JINAS, etc. La Quinta Iglesia es SARDIS, situada a la altura de la laringe creadora y nos confiere el poder del OÍDO MÁGICO, que nos permite escuchar las voces de los mundos superiores y la música de las esferas.
 
-La Sexta Iglesia es FILADELFIA y queda a la altura del entrecejo y nos confiere el poder de ver los MUNDOS INTERNOS y las criatu-ras que los pueblan.
+La Sexta Iglesia es FILADELFIA y queda a la altura del entrecejo y nos confiere el poder de ver los MUNDOS INTERNOS y las criaturas que los pueblan.
 
 La Séptima Iglesia es LAODICEA. Esta maravillosa IGLESIA es el LOTO de los MIL PÉTALOS, situado en la glándula Pineal, parte superior del cerebro.
 
 LAODICEA nos confiere los poderes de la POLIVIDENCIA, con los cuales podemos estudiar todos los MISTERIOS del GRAN DÍA y de la GRAN NOCHE.
 
-El FUEGO SAGRADO del KUNDALINI abre las siete IGLESIAS en orden sucesivo, conforme asciende lentamente por el canal me-dular.
+El FUEGO SAGRADO del KUNDALINI abre las siete IGLESIAS en orden sucesivo, conforme asciende lentamente por el canal medular.
 
 La SERPIENTE ÍGNEA de nuestros mágicos poderes sube muy lentamente, de acuerdo con los méritos del corazón.
 
-Las corrientes SOLAR y LUNAR de la ENERGÍA SEXUAL, cuan-do hacen contacto en el TRIVENI, cerca del coxis, base de la espina dorsal, tienen el poder de despertar la SERPIENTE SAGRADA para que suba por el canal medular.
+Las corrientes SOLAR y LUNAR de la ENERGÍA SEXUAL, cuando hacen contacto en el TRIVENI, cerca del coxis, base de la espina dorsal, tienen el poder de despertar la SERPIENTE SAGRADA para que suba por el canal medular.
 
-El FUEGO SAGRADO ascendiendo por la ESPINA DORSAL, tie-ne la forma de una serpiente.
+El FUEGO SAGRADO ascendiendo por la ESPINA DORSAL, tiene la forma de una serpiente.
 
-El FUEGO SAGRADO tiene siete grados de poder. ES URGEN-TE trabajar con los SIETE GRADOS de poder del fuego.
+El FUEGO SAGRADO tiene siete grados de poder. ES URGENTE trabajar con los SIETE GRADOS de poder del fuego.
 
 El SEXO en sí mismo, es la NOVENA ESFERA. El descenso de la NOVENA ESFERA fue en los antiguos MISTERIOS la prueba máxima para la SUPREMA DIGNIDAD del HIEROFANTE.
 
-BUDDHA, JESÚS el GRAN KABIR, HERMES, ZOROASTRO, MAHOMA, DANTE, etc., etc., etc., tuvieron que pasar por esa prue-ba máxima.
+BUDDHA, JESÚS el GRAN KABIR, HERMES, ZOROASTRO, MAHOMA, DANTE, etc., etc., etc., tuvieron que pasar por esa prueba máxima.
 
-Muchos son los estudiantes SEUDO-ESOTERISTAS y SEU-DOOCULTISTAS, que al leer literatura ocultista o seudo-ocultista, quisieran inmediatamente entrar en el país de las maravillas JINAS, en la dicha del ÉXTASIS CONTINUO, etc. No quieren entender esos estudiantes que para poder subir tie-nen primero que bajar.
+Muchos son los estudiantes SEUDO-ESOTERISTAS y SEUDOOCULTISTAS, que al leer literatura ocultista o seudo-ocultista, quisieran inmediatamente entrar en el país de las maravillas JINAS, en la dicha del ÉXTASIS CONTINUO, etc. No quieren entender esos estudiantes que para poder subir tienen primero que bajar.
 
-Es necesario primero bajar a la NOVENA ESFERA; sólo así po-demos subir.
+Es necesario primero bajar a la NOVENA ESFERA; sólo así podemos subir.
 
-EL MAGISTERIO DEL FUEGO es muy largo y terrible, si el estu-diante comete el error de derramar el VASO DE HERMES, pierde su trabajo precedente, baja la serpiente ígnea de nuestros mágicos po-deres.
+EL MAGISTERIO DEL FUEGO es muy largo y terrible, si el estudiante comete el error de derramar el VASO DE HERMES, pierde su trabajo precedente, baja la serpiente ígnea de nuestros mágicos poderes.
 
-Todas las ESCUELAS Esotéricas mencionan CINCO INICIACIO-NES de MISTERIOS MAYORES. Esas INICIACIONES se encuen-tran muy íntimamente relacionadas con el MAGISTERIO DEL FUE-GO.
+Todas las ESCUELAS Esotéricas mencionan CINCO INICIACIONES de MISTERIOS MAYORES. Esas INICIACIONES se encuentran muy íntimamente relacionadas con el MAGISTERIO DEL FUEGO.
 
 El FUEGO SAGRADO tiene poder de fecundar a la PRAKRITI SAGRADA del INICIADO.
 
 Ya dijimos antes y lo volvemos a repetir, que la PRAKRITI es la simbólica VACA SAGRADA de las cinco patas.
 
-Cuando la PRAKRITI se hace fecunda dentro del INICIADO, en-tonces se gestan dentro de su VIENTRE por obra y gracia del TER-CER LOGOS, los CUERPOS SOLARES.
+Cuando la PRAKRITI se hace fecunda dentro del INICIADO, entonces se gestan dentro de su VIENTRE por obra y gracia del TERCER LOGOS, los CUERPOS SOLARES.
 
-La RAZA SOLAR, los DOS VECES NACIDOS, tienen CUERPOS SOLARES. Las gentes comunes y corrientes, la humanidad en gene-ral, es RAZA LUNAR y sólo tiene CUERPOS INTERNOS de tipo LUNAR.
+La RAZA SOLAR, los DOS VECES NACIDOS, tienen CUERPOS SOLARES. Las gentes comunes y corrientes, la humanidad en general, es RAZA LUNAR y sólo tiene CUERPOS INTERNOS de tipo LUNAR.
 
-Las Escuelas SEUDO-ESOTÉRICAS y SEUDO-OCULTISTAS mencionan el SEPTENARIO TEOSÓFICO, los CUERPOS INTER-NOS, pero ignoran que esos vehículos son realmente CUERPOS LUNARES, PROTOPLASMÁTICOS.
+Las Escuelas SEUDO-ESOTÉRICAS y SEUDO-OCULTISTAS mencionan el SEPTENARIO TEOSÓFICO, los CUERPOS INTERNOS, pero ignoran que esos vehículos son realmente CUERPOS LUNARES, PROTOPLASMÁTICOS.
 
-Dentro de esos CUERPOS LUNARES, PROTOPLASMÁTICOS de los ANIMALES INTELECTUALES, se hallan contenidas las LE-YES de la EVOLUCIÓN y de la INVOLUCIÓN.
+Dentro de esos CUERPOS LUNARES, PROTOPLASMÁTICOS de los ANIMALES INTELECTUALES, se hallan contenidas las LEYES de la EVOLUCIÓN y de la INVOLUCIÓN.
 
-Los CUERPOS LUNARES PROTOPLASMÁTICOS son cierta-mente propiedad común de todas las bestias de la naturaleza.
+Los CUERPOS LUNARES PROTOPLASMÁTICOS son ciertamente propiedad común de todas las bestias de la naturaleza.
 
 Los CUERPOS LUNARES PROTOPLASMÁTICOS devienen de un remoto pasado mineral y retornan al pasado mineral porque todo retorna a su punto de partida original. Los CUERPOS LUNARES PROTOPLASMÁTICOS evolucionan hasta cierto punto perfectamente definido por la naturaleza y luego inician su retorno involutivo hasta el punto de partida original.
 
 Las CHISPAS VIRGINALES, las oleadas MONÁDICAS hicieron surgir en el pasado mineral los CUERPOS PROTOPLASMÁTICOS con los que se vistieron los ELEMENTALES MINERALES, GNOMOS O PIGMEOS.
 
-La entrada de los ELEMENTALES MINERALES en la EVOLU-CIÓN VEGETAL produjo un cambio en los vehículos Protoplasmáti-cos.
+La entrada de los ELEMENTALES MINERALES en la EVOLUCIÓN VEGETAL produjo un cambio en los vehículos Protoplasmáticos.
 
-El ingreso de los elementales vegetales en la EVOLUCIÓN ANI-MAL de los irracionales provocó como es natural nuevos cambios en esos CUERPOS PROTOPLASMÁTICOS LUNARES.
+El ingreso de los elementales vegetales en la EVOLUCIÓN ANIMAL de los irracionales provocó como es natural nuevos cambios en esos CUERPOS PROTOPLASMÁTICOS LUNARES.
 
-Los PROTOPLASMAS siempre están sometidos a muchos cam-bios y la entrada de los ELEMENTALES ANIMALES en matrices de la especie ANIMAL INTELECTUAL, le dio a estos cuerpos lunares el aspecto que ahora tienen.
+Los PROTOPLASMAS siempre están sometidos a muchos cambios y la entrada de los ELEMENTALES ANIMALES en matrices de la especie ANIMAL INTELECTUAL, le dio a estos cuerpos lunares el aspecto que ahora tienen.
 
-La naturaleza necesita al ANIMAL INTELECTUAL equívocamente llamado HOMBRE, así como se encuentra, en el estado en que aho-ra vive.
+La naturaleza necesita al ANIMAL INTELECTUAL equívocamente llamado HOMBRE, así como se encuentra, en el estado en que ahora vive.
 
 Toda la EVOLUCIÓN de los PROTOPLASMAS tiene por objeto crear estas máquinas intelectuales.
 
@@ -1266,15 +1286,15 @@ Toda la humanidad en su conjunto es un órgano de la naturaleza, un órgano indi
 
 Cuando cualquier célula de dicho órgano vital, es decir, cuando cualquier sujeto es demasiado perverso o cumple a cabalidad su tiempo de ciento ocho vidas sin haber dado fruto, deja de NACER para precipitar su INVOLUCIÓN en los MUNDOS INFIERNOS:
 
-Si alguien quiere escaparse de esa trágica Ley de la INVOLU-CIÓN PROTOPLASMÁTICA, debe CREARSE por sí mismo y me-diante tremendos SÚPER-ESFUERZOS, los CUERPOS SOLARES.
+Si alguien quiere escaparse de esa trágica Ley de la INVOLUCIÓN PROTOPLASMÁTICA, debe CREARSE por sí mismo y mediante tremendos SÚPER-ESFUERZOS, los CUERPOS SOLARES.
 
-En todos los elementos de la naturaleza, en toda sustancia quí-mica, en todo fruto, existe su correspondiente tipo de HIDRÓGENO y el HIDRÓGENO del SEXO es el SI-12.
+En todos los elementos de la naturaleza, en toda sustancia química, en todo fruto, existe su correspondiente tipo de HIDRÓGENO y el HIDRÓGENO del SEXO es el SI-12.
 
 El FUEGO, el FOHAT hace fecundo el VIENTRE de la VACA SAGRADA de las cinco patas, pero sólo con el HIDRÓGENO SEXUAL SI-12, se forman, se cristalizan, los CUERPOS SOLARES.
 
 Dentro de las siete notas de la escala musical se realizan todos los procesos biológicos y fisiológicos cuyo último resultado es ese elíxir maravilloso llamado SEMEN.
 
-El proceso se inicia con la nota DO desde el momento en que el alimento entra en la boca y continua con las notas RE-MI-FA-SOL-LA, y cuando resuena el SI MUSICAL, el ELÍXIR EXTRAORDINA-RIO llamado SEMEN ya está preparado.
+El proceso se inicia con la nota DO desde el momento en que el alimento entra en la boca y continua con las notas RE-MI-FA-SOL-LA, y cuando resuena el SI MUSICAL, el ELÍXIR EXTRAORDINARIO llamado SEMEN ya está preparado.
 
 El HIDRÓGENO SEXUAL se encuentra depositado en el SEMEN y podemos pasarlo a una segunda octava superior DO-RE-MI-FA-SOL-LA-SI, mediante un SHOCK especial.
 
@@ -1282,29 +1302,29 @@ Ese SHOCK especial es la REFRENADA sexual del MAITHUNA. La segunda octava musica
 
 Un segundo SHOCK del MAITHUNA hace pasar al HIDRÓGENO SEXUAL SI-12 a una tercera octava superior DO-RE-MI-FA-SOL-LA-SI.
 
-La TERCERA OCTAVA MUSICAL originará la cristalización del HIDRÓGENO SEXUAL SI-12, en la forma magnífica SOLAR del legí-timo CUERPO MENTAL.
+La TERCERA OCTAVA MUSICAL originará la cristalización del HIDRÓGENO SEXUAL SI-12, en la forma magnífica SOLAR del legítimo CUERPO MENTAL.
 
 Un tercer SHOCK pasará el HIDRÓGENO SEXUAL SI-12 a una cuarta octava musical DO-RE-MI-FA-SOL-LA-SI.
 
-La CUARTA OCTAVA MUSICAL, origina la CRISTALIZACIÓN del HIDRÓGENO SEXUAL, en la forma del CUERPO DE LA VO-LUNTAD CONSCIENTE, o cuerpo CAUSAL.
+La CUARTA OCTAVA MUSICAL, origina la CRISTALIZACIÓN del HIDRÓGENO SEXUAL, en la forma del CUERPO DE LA VOLUNTAD CONSCIENTE, o cuerpo CAUSAL.
 
-Quien ya posee los CUATRO CUERPOS conocidos como FÍSI-CO, ASTRAL, MENTAL y CAUSAL, se da el lujo de ENCARNAR al SER para convertirse en HOMBRE VERDADERO, en HOMBRE SOLAR.
+Quien ya posee los CUATRO CUERPOS conocidos como FÍSICO, ASTRAL, MENTAL y CAUSAL, se da el lujo de ENCARNAR al SER para convertirse en HOMBRE VERDADERO, en HOMBRE SOLAR.
 
 Normalmente el SER no NACE ni muere ni se reencarna, pero cuando ya tenemos los CUERPOS SOLARES, podemos ENCAR-NARLO y pasamos a SER realmente.
 
 Al que sabe, la palabra da poder, nadie la pronunció, nadie la pronunciará, sino solamente aquel que lo tiene ENCARNADO.
 
-Muchos estudiantes GNÓSTICOS se preguntan por qué no men-cionamos al cuerpo VITAL y por qué solo contamos cuatro vehículos excluyendo al VITAL; la respuesta a este interrogante es que el cuerpo VITAL es tan sólo la sección superior del CUERPO FÍSICO.
+Muchos estudiantes GNÓSTICOS se preguntan por qué no mencionamos al cuerpo VITAL y por qué solo contamos cuatro vehículos excluyendo al VITAL; la respuesta a este interrogante es que el cuerpo VITAL es tan sólo la sección superior del CUERPO FÍSICO.
 
-En la TERCERA INICIACIÓN DEL FUEGO nace el ASTRAL SO-LAR; en la CUARTA INICIACIÓN DEL FUEGO nace el MENTAL SOLAR, en la QUINTA INICIACIÓN del fuego, NACE el CUERPO CAUSAL, o CUERPO DE LA VOLUNTAD CONSCIENTE.
+En la TERCERA INICIACIÓN DEL FUEGO nace el ASTRAL SOLAR; en la CUARTA INICIACIÓN DEL FUEGO nace el MENTAL SOLAR, en la QUINTA INICIACIÓN del fuego, NACE el CUERPO CAUSAL, o CUERPO DE LA VOLUNTAD CONSCIENTE.
 
 Las cinco INICIACIONES de MISTERIOS MAYORES sólo tienen por objeto fabricar los CUERPOS SOLARES.
 
-En GNOSTICISMO y ESOTERISMO se entiende por NACIMIEN-TO SEGUNDO fabricar los CUERPOS SOLARES y ENCARNAR al SER.
+En GNOSTICISMO y ESOTERISMO se entiende por NACIMIENTO SEGUNDO fabricar los CUERPOS SOLARES y ENCARNAR al SER.
 
-Los CUERPOS SOLARES se gestan dentro del vientre de la PRAKRITI. El SER es concebido por obra y gracia del TERCER LO-GOS, dentro del VIENTRE de la PRAKRITI.
+Los CUERPOS SOLARES se gestan dentro del vientre de la PRAKRITI. El SER es concebido por obra y gracia del TERCER LOGOS, dentro del VIENTRE de la PRAKRITI.
 
-Ella es VIRGEN antes del parto, en el parto y después del parto. Todo MAESTRO de la LOGIA BLANCA es hijo de una VIRGEN IN-MACULADA.
+Ella es VIRGEN antes del parto, en el parto y después del parto. Todo MAESTRO de la LOGIA BLANCA es hijo de una VIRGEN INMACULADA.
 
 Quien alcanza el NACIMIENTO SEGUNDO sale de la NOVENA ESFERA (EL SEXO).
 
@@ -1312,33 +1332,33 @@ Quien alcanza el NACIMIENTO SEGUNDO queda totalmente prohibido de volver a tener
 
 Quien alcanza el NACIMIENTO SEGUNDO ingresa a un templo secreto; al templo de los dos veces NACIDOS.
 
-El ANIMAL INTELECTUAL común y corriente cree que es HOM-BRE, pero en realidad está equivocado, porque sólo los dos veces NACIDOS, son HOMBRES de VERDAD.
+El ANIMAL INTELECTUAL común y corriente cree que es HOMBRE, pero en realidad está equivocado, porque sólo los dos veces NACIDOS, son HOMBRES de VERDAD.
 
-Conocimos una DAMA-ADEPTO de la LOGIA BLANCA, que fa-bricó sus CUERPOS SOLARES en sólo DIEZ AÑOS de trabajo muy INTENSO en la NOVENA ESFERA; esa DAMA vive con los ÁNGE-LES, ARCÁNGELES, SERAFINES, etc.
+Conocimos una DAMA-ADEPTO de la LOGIA BLANCA, que fabricó sus CUERPOS SOLARES en sólo DIEZ AÑOS de trabajo muy INTENSO en la NOVENA ESFERA; esa DAMA vive con los ÁNGELES, ARCÁNGELES, SERAFINES, etc.
 
-Trabajando muy INTENSAMENTE en la NOVENA ESFERA sin dejarse caer, se puede realizar el trabajo de FABRICAR los CUER-POS SOLARES en DIEZ o VEINTE años poco más o menos.
+Trabajando muy INTENSAMENTE en la NOVENA ESFERA sin dejarse caer, se puede realizar el trabajo de FABRICAR los CUERPOS SOLARES en DIEZ o VEINTE años poco más o menos.
 
-La RAZA LUNAR odia mortalmente esta ciencia de la VACA SA-GRADA y antes que aceptarla prefiere buscar escapatorias y justifi-cativos con frases de relumbrón y mojigatería.
+La RAZA LUNAR odia mortalmente esta ciencia de la VACA SAGRADA y antes que aceptarla prefiere buscar escapatorias y justificativos con frases de relumbrón y mojigatería.
 
-Los BONZOS y DUGPAS de capacete rojo, los MAGOS NE-GROS, practican el TANTRISMO NEGRO, eyaculan el semen du-rante el MAITHUNA, así despiertan y desarrollan el ABOMINABLE ÓRGANO KUNDARTIGUADOR.
+Los BONZOS y DUGPAS de capacete rojo, los MAGOS NEGROS, practican el TANTRISMO NEGRO, eyaculan el semen durante el MAITHUNA, así despiertan y desarrollan el ABOMINABLE ÓRGANO KUNDARTIGUADOR.
 
 Es urgente saber que el ÓRGANO KUNDARTIGUADOR es la SERPIENTE TENTADORA del EDÉN, el fuego sagrado proyectado hacia abajo, la cola de SATÁN cuya raíz está en el COXIS.
 
 El ABOMINABLE ÓRGANO KUNDARTIGUADOR fortalece los CUERPOS LUNARES y el EGO.
 
-Aquellos que viven aplazando el NACIMIENTO SEGUNDO para futuras vidas, terminan por perder la oportunidad y vencidas las CIENTO OCHO VIDAS, ingresan a los MUNDOS INFIERNOS, don-de sólo se oye el llanto y el crujir de dientes.
+Aquellos que viven aplazando el NACIMIENTO SEGUNDO para futuras vidas, terminan por perder la oportunidad y vencidas las CIENTO OCHO VIDAS, ingresan a los MUNDOS INFIERNOS, donde sólo se oye el llanto y el crujir de dientes.
 
-DIÓGENES buscó con su linterna a un HOMBRE en todo ATE-NAS y no lo encontró. Los DOS VECES NACIDOS, los HOMBRES VERDADEROS hay que buscarlos con la linterna de DIÓGENES, son muy raros de hallar.
+DIÓGENES buscó con su linterna a un HOMBRE en todo ATENAS y no lo encontró. Los DOS VECES NACIDOS, los HOMBRES VERDADEROS hay que buscarlos con la linterna de DIÓGENES, son muy raros de hallar.
 
-Por ahí andan muchos estudiantes SEUDO-OCULTlSTAS y SEUDO-ESOTERISTAS que quieren DIZQUE AUTO-REALIZARSE, pero como son LUNARES, cuando conocen esta ciencia de la NO-VENA ESFERA, se escandalizan, nos maldicen, lanzan contra noso-tros toda su baba difamatoria y si estuviéramos en tiempos de ES-DRAS, inmolarían la VACA SAGRADA diciendo: “CAIGA SU SAN-GRE SOBRE NOSOTROS Y SOBRE NUESTROS HIJOS”.
+Por ahí andan muchos estudiantes SEUDO-OCULTlSTAS y SEUDO-ESOTERISTAS que quieren DIZQUE AUTO-REALIZARSE, pero como son LUNARES, cuando conocen esta ciencia de la NOVENA ESFERA, se escandalizan, nos maldicen, lanzan contra nosotros toda su baba difamatoria y si estuviéramos en tiempos de ESDRAS, inmolarían la VACA SAGRADA diciendo: “CAIGA SU SANGRE SOBRE NOSOTROS Y SOBRE NUESTROS HIJOS”.
 
-El camino que conduce al abismo está empedrado con buenas in-tenciones. NO sólo entran al abismo los perversos; recordemos la parábola de la higuera estéril. Árbol que NO da fruto, es cortado y echado al fuego.
+El camino que conduce al abismo está empedrado con buenas intenciones. NO sólo entran al abismo los perversos; recordemos la parábola de la higuera estéril. Árbol que NO da fruto, es cortado y echado al fuego.
 
-En los MUNDOS-INFIERNOS viven también MAGNÍFICOS estu-diantes de SEUDO-OCULTISMO y SEUDO-ESOTERISMO.
+En los MUNDOS-INFIERNOS viven también MAGNÍFICOS estudiantes de SEUDO-OCULTISMO y SEUDO-ESOTERISMO.
 
-ESCORPIO es un signo muy interesante, la ponzoña del ES-CORPIÓN hiere de muerte a los enemigos del MAITHUNA, a los PURITANOS INSULTADORES que odian al SEXO, a los que BLAS-FEMAN contra el TERCER LOGOS, a los perversos FORNICARIOS, a los degenerados del INFRASEXO, homosexuales, masturbadores, etc.
+ESCORPIO es un signo muy interesante, la ponzoña del ESCORPIÓN hiere de muerte a los enemigos del MAITHUNA, a los PURITANOS INSULTADORES que odian al SEXO, a los que BLASFEMAN contra el TERCER LOGOS, a los perversos FORNICARIOS, a los degenerados del INFRASEXO, homosexuales, masturbadores, etc.
 
-ESCORPIO gobierna los ÓRGANOS SEXUALES. ESCORPIO es casa de MARTE, planeta de la guerra y en el sexo se encuentra la raíz de la GRAN BATALLA entre los MAGOS BLANCOS y los NE-GROS, entre las fuerzas SOLARES y LUNARES.
+ESCORPIO gobierna los ÓRGANOS SEXUALES. ESCORPIO es casa de MARTE, planeta de la guerra y en el sexo se encuentra la raíz de la GRAN BATALLA entre los MAGOS BLANCOS y los NEGROS, entre las fuerzas SOLARES y LUNARES.
 
 La RAZA LUNAR odia mortalmente todo lo que tenga sabor a MAITHUNA (MAGIA SEXUAL) TANTRISMO BLANCO, VACA SA-
 
@@ -1346,11 +1366,11 @@ GRADA, etc.
 
 Los nativos de ESCORPIO pueden caer en las más espantosas fornicaciones o REGENERARSE totalmente.
 
-En la práctica hemos podido verificar que los nativos de ESCOR-PIO sufren mucho en la primera mitad de la vida y hasta tienen un amor que les ocasiona grandes amarguras, pero en la segunda mi-tad de la vida todo cambia, la suerte les, mejora notablemente.
+En la práctica hemos podido verificar que los nativos de ESCORPIO sufren mucho en la primera mitad de la vida y hasta tienen un amor que les ocasiona grandes amarguras, pero en la segunda mitad de la vida todo cambia, la suerte les, mejora notablemente.
 
 Los nativos de ESCORPIO tienen cierta tendencia a la IRA y a la venganza, difícilmente perdonan a alguien.
 
-Las mujeres de ESCORPIO siempre están en el peligro de que-dar viudas y pasar muchas necesidades económicas durante la pri-mera parte de su vida.
+Las mujeres de ESCORPIO siempre están en el peligro de quedar viudas y pasar muchas necesidades económicas durante la primera parte de su vida.
 
 Los hombres de ESCORPIO sufren mucha miseria durante la primera parte de su vida, pero debido a su experiencia, mejoran en la segunda mitad de su existencia.
 
@@ -1364,17 +1384,19 @@ La práctica de ESCORPIO es el MAITHUNA y éste no sólo se práctica durante ES
 
 Sin embargo, hemos de advertir que nunca se debe practicar dos veces seguidas en una misma noche. Sólo está permitido practicar una sola vez diaria.
 
-Es también urgente saber que jamás se debe obligar a la cónyu-ge a practicar el MAITHUNA cuando está enferma o cuando tiene la menstruación, o en estado de embarazo, porque es delito.
+Es también urgente saber que jamás se debe obligar a la cónyuge a practicar el MAITHUNA cuando está enferma o cuando tiene la menstruación, o en estado de embarazo, porque es delito.
 
 La mujer que ha dado a luz alguna criatura, sólo puede practicar el MAITHUNA cuarenta días después del parto.
 
-El MAITHUNA no impide la reproducción de la especie, porque la semilla siempre pasa a la matriz sin necesidad de derramar el se-men. Las múltiples combinaciones de la sustancia infinita son mara-villosas.
+El MAITHUNA no impide la reproducción de la especie, porque la semilla siempre pasa a la matriz sin necesidad de derramar el semen. Las múltiples combinaciones de la sustancia infinita son maravillosas.
 
-Son muchos los estudiantes de ocultismo que se quejan porque fracasan, porque sufren de descargas seminales, porque no logran evitar la eyaculación seminal. A esos estudiantes les aconsejarnos una pequeña práctica de cinco minutos el viernes de cada semana si el caso es muy grave, o una pequeña práctica de cinco minutos dia-rios, sí el caso no es muy grave.
+Son muchos los estudiantes de ocultismo que se quejan porque fracasan, porque sufren de descargas seminales, porque no logran evitar la eyaculación seminal. A esos estudiantes les aconsejarnos una pequeña práctica de cinco minutos el viernes de cada semana si el caso es muy grave, o una pequeña práctica de cinco minutos diarios, sí el caso no es muy grave.
 
-Después de un año con estas pequeñas prácticas de cinco minu-tos de MAITHUNA, se puede alargar cinco minutos más por otro año y al tercer año se practicará quince minutos diarios. Así poco a poco en cada año se puede alargar el tiempo de la práctica con el MAIT-HUNA hasta ser capaces de practicar una hora diaria.
+Después de un año con estas pequeñas prácticas de cinco minutos de MAITHUNA, se puede alargar cinco minutos más por otro año y al tercer año se practicará quince minutos diarios. Así poco a poco en cada año se puede alargar el tiempo de la práctica con el MAITHUNA hasta ser capaces de practicar una hora diaria.
 
 # CAPÍTULO 9
+
+![Imagen 11](Tratado Esoterico de Astrologia Hermetica/Tratado Esoterico de Astrologia Hermetica - 011 - CAPÍTULO 9.png)
 
 Sagitario
 
@@ -1382,45 +1404,45 @@ Sagitario
 
 ## SAGITARIO
 
-Desde Geber hasta el enigmático y poderoso CONDE CAGLIOS-TRO, que transmutaba el plomo en oro y fabricaba diamantes de la mejor calidad, existió una larga serie de ALQUIMISTAS e investiga-dores de la PIEDRA FILOSOFAL (EL SEXO).
+Desde Geber hasta el enigmático y poderoso CONDE CAGLIOSTRO, que transmutaba el plomo en oro y fabricaba diamantes de la mejor calidad, existió una larga serie de ALQUIMISTAS e investigadores de la PIEDRA FILOSOFAL (EL SEXO).
 
 A todas luces resulta bastante claro que sólo aquellos sabios que disolvieron el EGO LUNAR y despreciaron las vanidades de este mundo, tuvieron verdadero éxito en sus pesquisas.
 
-Entre todos esos ALQUIMISTAS y ADEPTOS VICTORIOSOS que trabajaron en el laboratorio de la ALQUIMIA SEXUAL, se desta-can BASILIO VALENTÍN, RIPLEY, BACÓN, HONKS ROGER, etc.
+Entre todos esos ALQUIMISTAS y ADEPTOS VICTORIOSOS que trabajaron en el laboratorio de la ALQUIMIA SEXUAL, se destacan BASILIO VALENTÍN, RIPLEY, BACÓN, HONKS ROGER, etc.
 
 NICOLÁS FLAMEL es todavía muy discutido; algunos suponen que no alcanzó la difícil meta durante su vida...como se negase a revelar al Rey su secreto, terminó sus días encerrado en la terrible BASTILLA.
 
 Nosotros francamente estamos convencidos de que NICOLÁS FLAMEL, el gran ALQUIMISTA logró trasmutar todo el PLOMO de su PERSONALIDAD en el ORO maravilloso del ESPÍRITU.
 
-Trevisán, el famoso Trevisán, gastó toda su fortuna buscando la PIEDRA FILOSOFAL y logró descubrir el secreto a los setenta y cin-co años, ya demasiado tarde.
+Trevisán, el famoso Trevisán, gastó toda su fortuna buscando la PIEDRA FILOSOFAL y logró descubrir el secreto a los setenta y cinco años, ya demasiado tarde.
 
-La PIEDRA FILOSOFAL es el sexo y el secreto es el MAITHUNA, la MAGIA SEXUAL, pero el pobre Trevisán, a pesar de poseer una inteligencia formidable, solo en la ancianidad vino a descubrir el se-creto.
+La PIEDRA FILOSOFAL es el sexo y el secreto es el MAITHUNA, la MAGIA SEXUAL, pero el pobre Trevisán, a pesar de poseer una inteligencia formidable, solo en la ancianidad vino a descubrir el secreto.
 
-Paracelso, discípulo de Trithemio, gran Médico Alquimista, cono-ció el secreto de la PIEDRA FILOSOFAL, transmutó el plomo en oro y realizó sorprendentes curaciones.
+Paracelso, discípulo de Trithemio, gran Médico Alquimista, conoció el secreto de la PIEDRA FILOSOFAL, transmutó el plomo en oro y realizó sorprendentes curaciones.
 
 Muchos suponen que Paracelso murió de muerte violenta, por asesinato o suicidio, por haber revelado una parte de los Misterios, pero la realidad es que Paracelso desapareció sin saber cómo ni por qué.
 
-Todos NOSOTROS sabemos que Paracelso consiguió eso que se llama ELIXIR DE LARGA VIDA y que con dicho elixir MARAVI-LLOSO se sostiene todavía, vive con el mismo cuerpo físico que tu-vo en la EDAD MEDIA.
+Todos NOSOTROS sabemos que Paracelso consiguió eso que se llama ELIXIR DE LARGA VIDA y que con dicho elixir MARAVILLOSO se sostiene todavía, vive con el mismo cuerpo físico que tuvo en la EDAD MEDIA.
 
 Schrotpffer y Savater practicaron ciertos ritos mágicos demasiado peligrosos que les ocasionaron la muerte violenta sin haberse Auto-realizado a fondo.
 
-El famoso doctor J. Dee buscó la PIEDRA FILOSOFAL y nunca la encontró, pero si quedó reducido a la más espantosa miseria. En los últimos años de su vida el pobre doctor degeneró horriblemente con el MEDIUMNISMO y se convirtió en juguete de las entidades inferio-res que viven en el mundo molecular.
+El famoso doctor J. Dee buscó la PIEDRA FILOSOFAL y nunca la encontró, pero si quedó reducido a la más espantosa miseria. En los últimos años de su vida el pobre doctor degeneró horriblemente con el MEDIUMNISMO y se convirtió en juguete de las entidades inferiores que viven en el mundo molecular.
 
-SETON fue condenado por negarse a revelar el secreto de la PIEDRA FILOSOFAL. El Dr. PRISE, de la ROYAL SOCIETY OF LONDRES, consiguió TRANSMUTAR PLOMO FÍSICO en ORO MA-TERIAL, pero al querer repetir el experimento ante sus colegas, fra-casó y entonces, avergonzado y desesperado, se suicidó.
+SETON fue condenado por negarse a revelar el secreto de la PIEDRA FILOSOFAL. El Dr. PRISE, de la ROYAL SOCIETY OF LONDRES, consiguió TRANSMUTAR PLOMO FÍSICO en ORO MATERIAL, pero al querer repetir el experimento ante sus colegas, fracasó y entonces, avergonzado y desesperado, se suicidó.
 
 DELISLE, el gran DELISLE, por iguales motivos, fue encarcelado y al querer fugarse de la horrible mazmorra donde estaba encerrado, fue muerto por los guardias.
 
-Todos estos FRACASOS y cientos otros, revelan que el VERDA-DERO OCULTISMO PRÁCTICO y sus terribles poderes mágicos, exigen la más espantosa SANTIDAD, sin la cual es imposible enfren-tarse a los peligros de la ALKIMIA y de la MAGIA.
+Todos estos FRACASOS y cientos otros, revelan que el VERDADERO OCULTISMO PRÁCTICO y sus terribles poderes mágicos, exigen la más espantosa SANTIDAD, sin la cual es imposible enfrentarse a los peligros de la ALKIMIA y de la MAGIA.
 
 Hablar de SANTIDAD en estos tiempos resulta algo muy difícil, porque el mundo está lleno de santurrones estúpidos que presumen de SANTOS.
 
-El GRAN MAESTRO de la fuerza llamado MORÍA, platicando con nosotros en el TÍBET ORIENTAL, nos dijo: «UNIRSE CON EL ÍNTI-MO ES ALGO MUY DIFÍCIL, DE DOS QUE INTENTEN UNIRSE CON EL ÍNTIMO, TAN SÓLO UNO LO CONSIGUE, PORQUE CO-MO DIJO EL POETA GUILLERMO VALENCIA, ENTRE LAS CA-DENCIAS DEL VERSO TAMBIÉN SE ESCONDE EL DELITO».
+El GRAN MAESTRO de la fuerza llamado MORÍA, platicando con nosotros en el TÍBET ORIENTAL, nos dijo: «UNIRSE CON EL ÍNTIMO ES ALGO MUY DIFÍCIL, DE DOS QUE INTENTEN UNIRSE CON EL ÍNTIMO, TAN SÓLO UNO LO CONSIGUE, PORQUE COMO DIJO EL POETA GUILLERMO VALENCIA, ENTRE LAS CADENCIAS DEL VERSO TAMBIÉN SE ESCONDE EL DELITO».
 
-El delito se viste de SANTO, de MÁRTIR, de APÓSTOL. Millones de personas aficionadas a la literatura ocultista presumen de SAN-TIDAD, no comen carnes, no fuman, no toman, mas en la casa se pelean con el cónyuge y la cónyuge, golpean a sus hijos e hijas, for-nican, adulteran, no pagan sus deudas, prometen y no cumplen, etc., etc., etc.
+El delito se viste de SANTO, de MÁRTIR, de APÓSTOL. Millones de personas aficionadas a la literatura ocultista presumen de SANTIDAD, no comen carnes, no fuman, no toman, mas en la casa se pelean con el cónyuge y la cónyuge, golpean a sus hijos e hijas, fornican, adulteran, no pagan sus deudas, prometen y no cumplen, etc., etc., etc.
 
 En el mundo físico muchas personas han llegado a la CASTIDAD ABSOLUTA, pero cuando a esas personas se les somete a prueba en los mundos internos, entonces resultan siendo espantosamente fornicarias.
 
-Muchos son los devotos del sendero que en el mundo físico no se tomarían jamás una copa de vino, pero en los mundos internos resul-tan EBRIOS PERDIDOS cuando se les somete a prueba.
+Muchos son los devotos del sendero que en el mundo físico no se tomarían jamás una copa de vino, pero en los mundos internos resultan EBRIOS PERDIDOS cuando se les somete a prueba.
 
 Muchos son los devotos de la senda que en el mundo físico son mansas ovejas, pero cuando se les somete a prueba, en los mundos internos, resultan verdaderos tigres.
 
@@ -1428,25 +1450,25 @@ Muchos son los devotos de la senda que no codician dinero, pero codician poderes
 
 En el mundo existen muchos devotos de la senda que asombran por su humildad, pueden dormir tranquilamente en el suelo, a la puerta de un rico y contentarse con las migajas de pan que caen de la mesa del amo, pero tienen el orgullo de poseer muchas virtudes o presumen de su humildad.
 
-Muchas gentes han aspirado a la SANTIDAD cuando se han in-formado de que sí existen casos de VERDADEROS SANTOS. Mu-chos son los que envidian la SANTIDAD de otros y por ello quieren también ser SANTOS.
+Muchas gentes han aspirado a la SANTIDAD cuando se han informado de que sí existen casos de VERDADEROS SANTOS. Muchos son los que envidian la SANTIDAD de otros y por ello quieren también ser SANTOS.
 
-Muchos individuos no trabajan en la DISOLUCIÓN el EGO LU-NAR por pura pereza mental.
+Muchos individuos no trabajan en la DISOLUCIÓN el EGO LUNAR por pura pereza mental.
 
-Innumerables aspirantes a la LUZ, se comen tres banquetes dia-rios, son terriblemente glotones.
+Innumerables aspirantes a la LUZ, se comen tres banquetes diarios, son terriblemente glotones.
 
-Muchos no murmuran con los labios, pero murmuran con la men-te, y, sin embargo, creen que nunca murmuran.
+Muchos no murmuran con los labios, pero murmuran con la mente, y, sin embargo, creen que nunca murmuran.
 
-Raros son los aspirantes que saben obedecer al PADRE que está en secreto. Casi todos los estudiantes de ocultismo queriendo decir verdad mienten, tienen lengua embustera, afirman lo que no han ex-perimentado y eso es embuste.
+Raros son los aspirantes que saben obedecer al PADRE que está en secreto. Casi todos los estudiantes de ocultismo queriendo decir verdad mienten, tienen lengua embustera, afirman lo que no han experimentado y eso es embuste.
 
 Hoy en día es muy común y corriente poner falsos testigos y los estudiantes de ocultismo lo hacen sin saber que cometen delito.
 
-La vanidad también se viste de harapos y son muchos los aspi-rantes que se visten mal y andan por las calles en completo desali-ño, pero a través de los agujeros de sus vestiduras también se ve su vanidad.
+La vanidad también se viste de harapos y son muchos los aspirantes que se visten mal y andan por las calles en completo desaliño, pero a través de los agujeros de sus vestiduras también se ve su vanidad.
 
-Innumerables aspirantes no han podido dejar el AMOR PROPIO, se quieren demasiado a sí mismos y sufren lo indecible cuando al-guien les hace algún desaire.
+Innumerables aspirantes no han podido dejar el AMOR PROPIO, se quieren demasiado a sí mismos y sufren lo indecible cuando alguien les hace algún desaire.
 
 Multitud de aspirantes están llenos de malos pensamientos, no han aprendido a controlar su mente y, sin embargo, creen que van muy bien.
 
-Innumerables SEUDO-ESOTERISTAS y SEUDO-OCULTISTAS, si no son avaros con el dinero, son entonces avaros con los conoci-mientos, no han podido trascender la AVARICIA.
+Innumerables SEUDO-ESOTERISTAS y SEUDO-OCULTISTAS, si no son avaros con el dinero, son entonces avaros con los conocimientos, no han podido trascender la AVARICIA.
 
 Millares de aspirantes llevan la MUNDANALIDAD dentro de sí mismos, aun cuando jamás concurran a un baile, a una fiesta.
 
@@ -1456,15 +1478,15 @@ Innumerables devotos dicen malas palabras, algunos sólo las pronuncian mentalme
 
 Muchos VIRTUOSOS son crueles con las gentes. Conocimos el caso de un VIRTUOSO que hirió con duras frases a un infeliz que le compuso un verso.
 
-El desdichado tenía hambre y como era poeta, compuso un verso al VIRTUOSO con el propósito de conseguir una moneda, la res-puesta fue grave, el virtuoso presumiendo de modestia y humildad, insultó al hambriento.
+El desdichado tenía hambre y como era poeta, compuso un verso al VIRTUOSO con el propósito de conseguir una moneda, la respuesta fue grave, el virtuoso presumiendo de modestia y humildad, insultó al hambriento.
 
-Multitud de aspirantes a la luz son vejados y humillados cruel-mente por los preceptores de ciertas escuelas.
+Multitud de aspirantes a la luz son vejados y humillados cruelmente por los preceptores de ciertas escuelas.
 
-Son muchas las personas que serían capaces de todo en la vida, menos de matar a alguien, pero matan con sus ironías, con sus ma-las acciones, con la carcajada que hiere, con la dura palabra.
+Son muchas las personas que serían capaces de todo en la vida, menos de matar a alguien, pero matan con sus ironías, con sus malas acciones, con la carcajada que hiere, con la dura palabra.
 
-Son muchos los esposos que han matado a sus esposas con sus malas acciones, con su mala conducta, con sus horribles celos, con la ingratitud, etc. Son muchas las esposas que han matado a sus esposos con su mal carácter, con los celos torpes, con sus exigencias sin conside-ración, etc., etc., etc.
+Son muchos los esposos que han matado a sus esposas con sus malas acciones, con su mala conducta, con sus horribles celos, con la ingratitud, etc. Son muchas las esposas que han matado a sus esposos con su mal carácter, con los celos torpes, con sus exigencias sin consideración, etc., etc., etc.
 
-No debemos olvidar que toda enfermedad tiene causas psíqui-cas. El insulto, la ironía, la carcajada estruendosa y ofensiva, las ma-las palabras sirven para causar daño, enfermedades, asesinar, etc. Muchos padres y madres de familia hubieran vivido algo más, si sus hijos se lo hubieran permitido.
+No debemos olvidar que toda enfermedad tiene causas psíquicas. El insulto, la ironía, la carcajada estruendosa y ofensiva, las malas palabras sirven para causar daño, enfermedades, asesinar, etc. Muchos padres y madres de familia hubieran vivido algo más, si sus hijos se lo hubieran permitido.
 
 Casi todos los seres humanos en forma inconsciente son MA-TRICIDAS, PARRICIDAS, FRATRICIDAS, UXORICIDAS, etc., etc.
 
@@ -1474,75 +1496,75 @@ No hay verdadera CARIDAD en millares de aspirantes, presumen de caritativos, mas
 
 Son crueles los aspirantes a la luz, despiadados, dicen que aman y no aman, predican la caridad, pero no la practican.
 
-El signo de SAGITARIO nos invita a reflexionar en todo esto. Sa-gitario está simbolizado por un hombre que tiene una flecha en la mano, mitad caballo, mitad hombre.
+El signo de SAGITARIO nos invita a reflexionar en todo esto. Sagitario está simbolizado por un hombre que tiene una flecha en la mano, mitad caballo, mitad hombre.
 
-El caballo representa al EGO ANIMAL, YO PLURALIZADO vesti-do con sus CUERPOS LUNARES.
+El caballo representa al EGO ANIMAL, YO PLURALIZADO vestido con sus CUERPOS LUNARES.
 
-El YO no es algo INDIVIDUAL, el YO no tiene INDIVIDUALIDAD. El YO es PLURAL, el EGO LUNAR está constituido por una suma de pequeños YOES. Cada defecto psicológico está personificado por un pequeño YO. El conjunto de todos nuestros defectos está represen-tado por el YO PLURALIZADO.
+El YO no es algo INDIVIDUAL, el YO no tiene INDIVIDUALIDAD. El YO es PLURAL, el EGO LUNAR está constituido por una suma de pequeños YOES. Cada defecto psicológico está personificado por un pequeño YO. El conjunto de todos nuestros defectos está representado por el YO PLURALIZADO.
 
-El problema más grave que tiene que resolver todo el que alcan-za el NACIMIENTO SEGUNDO, es el de DISOLVER el EGO LU-NAR.
+El problema más grave que tiene que resolver todo el que alcanza el NACIMIENTO SEGUNDO, es el de DISOLVER el EGO LUNAR.
 
-El recién nacido MAESTRO está vestido con sus CUERPOS SO-LARES, pero su EGO está vestido con los CUERPOS LUNARES.
+El recién nacido MAESTRO está vestido con sus CUERPOS SOLARES, pero su EGO está vestido con los CUERPOS LUNARES.
 
 Ante el recién nacido MAESTRO se abren dos caminos, el de la derecha y el de la izquierda. Por el camino de la derecha andan aquellos MAESTROS que trabajan en la DISOLUCIÓN del EGO LUNAR. Por el camino de la izquierda andan aquellos que NO se PREOCUPAN por la disolución del EGO LUNAR.
 
-Los MAESTROS que NO disuelven el EGO LUNAR, se convier-ten en HANASMUSSIANOS. Un HANASMUSSEN es un sujeto con DOBLE CENTRO DE GRAVEDAD.
+Los MAESTROS que NO disuelven el EGO LUNAR, se convierten en HANASMUSSIANOS. Un HANASMUSSEN es un sujeto con DOBLE CENTRO DE GRAVEDAD.
 
 El MAESTRO vestido con sus CUERPOS SOLARES y el EGO LUNAR vestido con sus vehículos LUNARES, constituyen una doble personalidad, un HANASMUSSIANO.
 
-El HANASMUSSEN es mitad ÁNGEL mitad bestia, como el cen-tauro de SAGITARIO. El HANASMUSSIANO tiene dos personalida-des INTERNAS, una de ÁNGEL, otra de DEMONIO.
+El HANASMUSSEN es mitad ÁNGEL mitad bestia, como el centauro de SAGITARIO. El HANASMUSSIANO tiene dos personalidades INTERNAS, una de ÁNGEL, otra de DEMONIO.
 
 El HANASMUSSIANO es un ABORTO de la MADRE CÓSMICA, un FRACASO. Si el estudiante GNÓSTICO disuelve el EGO LUNAR antes del NACIMIENTO SEGUNDO, se cura en salud, resuelve su problema por anticipado, asegura el éxito.
 
 Quien invoque a ANDRAMELEK en los mundos internos, tendrá la más tremenda sorpresa, porque puede concurrir el DEMONIO ANDRAMELEK o el MAESTRO de la LOGIA BLANCA. Este sujeto es un HANASMUSSIANO con DOBLE CENTRO de GRAVEDAD.
 
-Disolver el EGO LUNAR es básico en la GRAN OBRA. Quienes alcanzan el NACIMIENTO SEGUNDO sienten la necesidad de elimi-nar los CUERPOS LUNARES, pero esto no es posible sin haber an-tes disuelto el EGO LUNAR.
+Disolver el EGO LUNAR es básico en la GRAN OBRA. Quienes alcanzan el NACIMIENTO SEGUNDO sienten la necesidad de eliminar los CUERPOS LUNARES, pero esto no es posible sin haber antes disuelto el EGO LUNAR.
 
 Los dos veces NACIDOS se estancan en su progreso interior cuando les falta AMOR.
 
-Todo el que se olvida de su MADRE DIVINA se estanca en su progreso. Existe falta de AMOR cuando cometemos el error de olvi-dar a nuestra MADRE DIVINA.
+Todo el que se olvida de su MADRE DIVINA se estanca en su progreso. Existe falta de AMOR cuando cometemos el error de olvidar a nuestra MADRE DIVINA.
 
-Es imposible eliminar a todos los pequeños YOES que constitu-yen el EGO LUNAR sin la ayuda de la MADRE DIVINA.
+Es imposible eliminar a todos los pequeños YOES que constituyen el EGO LUNAR sin la ayuda de la MADRE DIVINA.
 
 Comprender cualquier defecto, es básico, indispensable, cuando se quiere eliminar el pequeño YO que lo personifica, pero el trabajo de eliminación en SÍ MISMO, resulta imposible sin la ayuda de la VACA SAGRADA de las cinco patas. La MADRE DIVINA elimina botellas rotas. Cada pequeño YO es una botella dentro de la cual se encuentra embotellada una fracción de la ESENCIA.
 
-Esto significa que la ESENCIA, el BUDHATA, el ALMA o FRAC-CIÓN de ALMA HUMANA que todo ANIMAL INTELECTUAL tiene, se ha vuelto miles de fracciones que están embotelladas.
+Esto significa que la ESENCIA, el BUDHATA, el ALMA o FRACCIÓN de ALMA HUMANA que todo ANIMAL INTELECTUAL tiene, se ha vuelto miles de fracciones que están embotelladas.
 
-EJEMPLO: La IRA, está representada por centenares o miles de YOES, cada uno es una botella dentro de la cual se encuentra em-botellada la ESENCIA; a cada botella le corresponde una fracción de la ESENCIA.
+EJEMPLO: La IRA, está representada por centenares o miles de YOES, cada uno es una botella dentro de la cual se encuentra embotellada la ESENCIA; a cada botella le corresponde una fracción de la ESENCIA.
 
 Todas esas botellas de la IRA, todos esos YOES, viven en cada uno de los cuarenta y nueve departamentos o regiones del SUB-CONSCIENTE.
 
-Comprender la IRA en cualquier departamento SUBCONSCIEN-TE, significa romper una botella; entonces la correspondiente frac-ción de la ESENCIA se libera.
+Comprender la IRA en cualquier departamento SUBCONSCIENTE, significa romper una botella; entonces la correspondiente fracción de la ESENCIA se libera.
 
 Cuando esto sucede, la MADRE DIVINA interviene eliminando la botella rota, el cadáver del pequeño YO destrozado. Dicho cadáver ya no tiene por dentro la fracción del ALMA que antes aprisionaba y poco a poco se va desintegrando en los MUNDOS-INFIER NOS.
 
-Es necesario saber que sólo interviene la MADRE DIVINA en es-te caso, cuando la botella está destrozada, cuando la ESENCIA en ella encerrada ha sido liberada.
+Es necesario saber que sólo interviene la MADRE DIVINA en este caso, cuando la botella está destrozada, cuando la ESENCIA en ella encerrada ha sido liberada.
 
 Si la MADRE DIVINA eliminase la botella con el GENIECILLO dentro, el pobre GENIECILLO, es decir, la FRACCIÓN DEL ALMA, tendría que entrar también en los mundos INFIERNOS.
 
-Cuando todas las botellas han sido rotas, la ESENCIA en su tota-lidad se ha LIBERADO y la MADRE DIVINA se dedica a eliminar cadáveres.
+Cuando todas las botellas han sido rotas, la ESENCIA en su totalidad se ha LIBERADO y la MADRE DIVINA se dedica a eliminar cadáveres.
 
-Comprender la IRA en veinte o treinta regiones subconscientes, no significa haberla comprendido en todos los cuarenta y nueve de-partamentos.
+Comprender la IRA en veinte o treinta regiones subconscientes, no significa haberla comprendido en todos los cuarenta y nueve departamentos.
 
-COMPRENDER LA IRA en el DEPARTAMENTO TRES o CUA-TRO, significa quebrar, romper una botella ya sea en el departamen-to tres o cuatro. Sin embargo, muchos YOES de la IRA, muchas bo-tellas, pueden continuar en todos los otros departamentos SUB-CONSCIENTES.
+COMPRENDER LA IRA en el DEPARTAMENTO TRES o CUATRO, significa quebrar, romper una botella ya sea en el departamento tres o cuatro. Sin embargo, muchos YOES de la IRA, muchas botellas, pueden continuar en todos los otros departamentos SUB-CONSCIENTES.
 
 Cada DEFECTO se procesa en cada una de las cuarenta y nueve regiones del SUBCONSCIENTE y tiene muchísimas raíces.
 
-La IRA, la CODICIA, LUJURIA, ENVIDIA, ORGULLO, PEREZA, GULA, tienen millares de botellas, millares de pequeños YOES de-ntro de los cuales está embotellada la ESENCIA.
+La IRA, la CODICIA, LUJURIA, ENVIDIA, ORGULLO, PEREZA, GULA, tienen millares de botellas, millares de pequeños YOES dentro de los cuales está embotellada la ESENCIA.
 
-Cuando el YO PLURALIZADO es muerto y eliminado, la ESEN-CIA se une con el SER, con el ÍNTIMO y los CUERPOS LUNARES son eliminados durante un trance místico que dura tres días.
+Cuando el YO PLURALIZADO es muerto y eliminado, la ESENCIA se une con el SER, con el ÍNTIMO y los CUERPOS LUNARES son eliminados durante un trance místico que dura tres días.
 
-Después de TRES DÍAS el MAESTRO, vestido con sus CUER-POS SOLARES, retorna, regresa a su CUERPO FÍSICO. Esta es la RESURRECCIÓN INICIÁTICA.
+Después de TRES DÍAS el MAESTRO, vestido con sus CUERPOS SOLARES, retorna, regresa a su CUERPO FÍSICO. Esta es la RESURRECCIÓN INICIÁTICA.
 
 Todo MAESTRO RESURRECTO tiene CUERPOS SOLARES, pero NO tiene CUERPOS LUNARES.
 
-Los MAESTROS RESURRECTOS tienen poderes sobre el FUE-GO, el AIRE, las AGUAS y la TIERRA.
+Los MAESTROS RESURRECTOS tienen poderes sobre el FUEGO, el AIRE, las AGUAS y la TIERRA.
 
 Los MAESTROS RESURRECTOS pueden TRANSMUTAR el PLOMO físico en ORO físico.
 
 Los MAESTROS RESURRECTOS gobiernan la VIDA y la MUERTE, pueden conservar el cuerpo físico durante millones de años, conocen la cuadratura del círculo y el movimiento perpetuo, tiene la medicina universal y parlan en el Orto purísimo de la DIVINA LENGUA que, como un río de oro, corre deliciosamente bajo la selva espesa el SOL.
 
-Quien está muriendo de momento en momento es sometido a mi-llares de pruebas esotéricas en cada unos de los cuarenta nueve departamentos subconscientes de JALDABAOTH.
+Quien está muriendo de momento en momento es sometido a millares de pruebas esotéricas en cada unos de los cuarenta nueve departamentos subconscientes de JALDABAOTH.
 
 Muchos iniciados después de salir victoriosos en unos cuantos departamentos o regiones del SUBCONSCIENTE, fracasan en unos cuantos departamentos en tales o cuales pruebas relacionadas con tal o cual defecto Psicológico.
 
@@ -1552,61 +1574,63 @@ La MADRE DIVINA ruega por nosotros a la LOGIA BLANCA y elimina uno a uno aquello
 
 Si por algo tenemos nuestro RAYO MATERNAL PARTICULAR, nuestra MADRE DIVINA INDIVIDUAL, es precisamente porque ella en SÍ MISMA es la MADRE del SER ÍNTIMO, oculta dentro de la MONADA, una con la MONADA.
 
-Si ARTEMISA LOQUIA o NEITER fue LUNA en el cielo, para los Griegos la casta DIANA en la tierra fue la DIVINA MADRE presidien-do sobre el nacimiento y vida del niño y para los EGIPCIOS fue HÉCATE en el INFIERNO, la DIOSA de la MUERTE, que imperaba sobre los ENCANTAMIENTOS y la MAGIA sagrada.
+Si ARTEMISA LOQUIA o NEITER fue LUNA en el cielo, para los Griegos la casta DIANA en la tierra fue la DIVINA MADRE presidiendo sobre el nacimiento y vida del niño y para los EGIPCIOS fue HÉCATE en el INFIERNO, la DIOSA de la MUERTE, que imperaba sobre los ENCANTAMIENTOS y la MAGIA sagrada.
 
 HÉCATE-DIANA-LUNA es la MADRE DIVINA TRINA, al par que UNA, al modo de la TRIMURTI INDOSTÁNICA, BRAHAMA, VISHNÚ, SHIVA.
 
-La MADRE DIVINA es ISIS, la CERES de los MISTERIOS DE ELEUSIS, la VENUS CELESTE; aquella que en el principio del mun-do originó la atracción de los sexos opuestos y propagó con fecundi-dad eterna las humanas generaciones.
+La MADRE DIVINA es ISIS, la CERES de los MISTERIOS DE ELEUSIS, la VENUS CELESTE; aquella que en el principio del mundo originó la atracción de los sexos opuestos y propagó con fecundidad eterna las humanas generaciones.
 
 Ella es PROSERPINA, la de los nocturnos ladridos, la que en su triple apariencia CELESTE TERRESTRE e INFERNAL, oprime a los terribles demonios del AVERNO, manteniendo cerradas las puertas de las prisiones subterráneas y recorriendo triunfal los SAGRADOS BOSQUES.
 
-Soberana de la ESTIGIA MORADA, brilla en mitad de las tinie-blas del AQUERONTE, igual que sobre la tierra y los Campos Elíse-os.
+Soberana de la ESTIGIA MORADA, brilla en mitad de las tinieblas del AQUERONTE, igual que sobre la tierra y los Campos Elíseos.
 
-Debido a cierta equivocación de algunos INDIVIDUOS SAGRA-DOS, en los tiempos ARCAICOS el pobre ANIMAL INTELECTUAL recibió el ABOMINABLE ORGANO KUNDARTIGUADOR.
+Debido a cierta equivocación de algunos INDIVIDUOS SAGRADOS, en los tiempos ARCAICOS el pobre ANIMAL INTELECTUAL recibió el ABOMINABLE ORGANO KUNDARTIGUADOR.
 
 Dicho órgano es la COLA de SATÁN, el fuego sexual dirigiéndose hacia abajo, hacia los INFIERNOS ATÓMICOS del EGO LUNAR.
 
-Cuando el ANIMAL INTELECTUAL perdió el ÓRGANO KUN-DARTIGUADOR, quedaron las malas consecuencias dentro de cada sujeto; esas malas consecuencias están constituidas por el YO PLURALIZADO, el EGO LUNAR. A base de COMPRENSIÓN de FONDO, y profunda MEDITA-CIÓN INTERIOR, podemos y debemos eliminar de nosotros con ayuda de la MADRE DIVINA, las malas consecuencias del ABOMI-NABLE ÓRGANO KUNDARTIGUADOR.
+Cuando el ANIMAL INTELECTUAL perdió el ÓRGANO KUNDARTIGUADOR, quedaron las malas consecuencias dentro de cada sujeto; esas malas consecuencias están constituidas por el YO PLURALIZADO, el EGO LUNAR. A base de COMPRENSIÓN de FONDO, y profunda MEDITACIÓN INTERIOR, podemos y debemos eliminar de nosotros con ayuda de la MADRE DIVINA, las malas consecuencias del ABOMINABLE ÓRGANO KUNDARTIGUADOR.
 
-En otros tiempos el ser humano no quería vivir en este mundo, se había dado cuenta de su trágica situación; ciertos INDIVIDUOS SA-GRADOS le dieron a la raza humana el ABOMINABLE ÓRGANO KUNDARTIGUADOR, para que se ilusionara de las bellezas de este mundo. El resultado fue que el ser humano se ilusionó del mundo.
+En otros tiempos el ser humano no quería vivir en este mundo, se había dado cuenta de su trágica situación; ciertos INDIVIDUOS SAGRADOS le dieron a la raza humana el ABOMINABLE ÓRGANO KUNDARTIGUADOR, para que se ilusionara de las bellezas de este mundo. El resultado fue que el ser humano se ilusionó del mundo.
 
 Cuando aquellos INDIVIDUOS SAGRADOS le quitaron el ÓRGANO KUNDARTIGUADOR a la humanidad, quedaron dentro de cada persona las malas CONSECUENCIAS.
 
 Con la AYUDA de la MADRE DIVINA podemos eliminar las malas consecuencias del ABOMINABLE ÓRGANO KUNDARTIGUADOR.
 
-El SIGNO de SAGITARIO, con su famoso centauro, mitad HOM-BRE, mitad BESTIA, es algo que jamás debe ser olvidado.
+El SIGNO de SAGITARIO, con su famoso centauro, mitad HOMBRE, mitad BESTIA, es algo que jamás debe ser olvidado.
 
 SAGITARIO es casa de JÚPITER. El metal de SAGITARIO es el ESTAÑO, piedra el ZAFIRO AZUL.
 
-En la práctica hemos podido verificar que los nativos de SAGI-TARIO son muy fornicarios y pasionales.
+En la práctica hemos podido verificar que los nativos de SAGITARIO son muy fornicarios y pasionales.
 
 Los nativos de SAGITARIO aman los viajes, las exploraciones, las aventuras, los deportes.
 
-Los nativos de SAGITARIO se enojan fácilmente y luego perdo-nan.
+Los nativos de SAGITARIO se enojan fácilmente y luego perdonan.
 
 Los nativos de SAGITARIO son muy COMPRENSIVOS, aman la bella música, poseen maravillosa inteligencia.
 
-Los SAGITARIANOS son tenaces, cuando parecen haber definiti-vamente fracasado, parecen resucitar de entre sus propias cenizas como el AVE FÉNIX de la MITOLOGÍA, dejando asombrados a todos sus amigos y enemigos.
+Los SAGITARIANOS son tenaces, cuando parecen haber definitivamente fracasado, parecen resucitar de entre sus propias cenizas como el AVE FÉNIX de la MITOLOGÍA, dejando asombrados a todos sus amigos y enemigos.
 
 Los nativos de SAGITARIO son capaces de embarcarse en GRANDES EMPRESAS, aun cuando se vean rodeados de inmensos peligros.
 
-La vida económica de los SAGITARIANOS a veces es muy bue-na pero también pasan los SAGITARIANOS por grandes amarguras y dificultades económicas.
+La vida económica de los SAGITARIANOS a veces es muy buena pero también pasan los SAGITARIANOS por grandes amarguras y dificultades económicas.
 
 Lo que más perjudica a los SAGITARIANOS es la LUJURIA.
 
-PRÁCTICA. Sentaos en cuclillas, al modo de las HUACAS PE-RUANAS; poned vuestras manos sobre las piernas, con los dedos índices señalando hacia arriba, hacia el cielo, para atraer los RAYOS del PLANETA JÚPITER, a fin de magnetizar las piernas, las femora-les, intensamente.
+PRÁCTICA. Sentaos en cuclillas, al modo de las HUACAS PERUANAS; poned vuestras manos sobre las piernas, con los dedos índices señalando hacia arriba, hacia el cielo, para atraer los RAYOS del PLANETA JÚPITER, a fin de magnetizar las piernas, las femorales, intensamente.
 
 El MANTRAM ISIS es el MANTRAM de esta práctica. ISIS es la MADRE DIVINA.
 
 Se pronuncia este MANTRAM alargando el sonido de cada una de las cuatro letras que lo componen, iiiiiissssss iiiiiissssss repartido en dos sílabas IS-IS.
 
-Con este ejercicio se despierta la clarividencia y el poder de PO-LIVIDENCIA que nos permite a todos estudiar los ARCHIVOS AKHÁSICOS de la naturaleza para conocer la historia de la tierra y de sus razas.
+Con este ejercicio se despierta la clarividencia y el poder de POLIVIDENCIA que nos permite a todos estudiar los ARCHIVOS AKHÁSICOS de la naturaleza para conocer la historia de la tierra y de sus razas.
 
-Es necesario practicar intensamente, diariamente, para magneti-zar la sangre en las arterias femorales. Así se adquiere el poder de estudiar en la memoria de la NATURALEZA.
+Es necesario practicar intensamente, diariamente, para magnetizar la sangre en las arterias femorales. Así se adquiere el poder de estudiar en la memoria de la NATURALEZA.
 
 El CENTAURO con sus dos caras, una mirando hacia adelante y otra hacia atrás, está indicándonos esta preciosa facultad de la CLARIVIDENCIA.
 
 # CAPÍTULO 10
+
+![Imagen 12](Tratado Esoterico de Astrologia Hermetica/Tratado Esoterico de Astrologia Hermetica - 012 - CAPÍTULO 10.jpeg)
 
 Capricornio
 
@@ -1616,7 +1640,7 @@ Capricornio
 
 El SER, el ÍNTIMO, la MONADA, tiene dos ALMAS; la primera es el ALMA ESPIRITUAL. La primera es la BEATRIZ del DANTE, la BELLA HELENA, la SULAMITA del SABIO SALOMÓN, la inefable esposa adorable, el BUDDHI de la TEOSOFÍA.
 
-La segunda es el ALMA HUMANA, el principio CAUSAL, el NO-BLE ESPOSO, el MANAS SUPERIOR de la TEOSOFÍA.
+La segunda es el ALMA HUMANA, el principio CAUSAL, el NOBLE ESPOSO, el MANAS SUPERIOR de la TEOSOFÍA.
 
 Aun cuando parezca raro y extraño; mientras el ALMA HUMANA trabaja, el ALMA ESPIRITUAL juega.
 
@@ -1624,39 +1648,39 @@ ADAM y EVA se INTEGRAN dentro de la MONADA y su VALOR KABALÍSTICO es 10 que nos
 
 La DIVINA TRÍADA ATMAN-BUDDHI-MANAS, el SER, ya dijimos y lo volveremos a repetir, que en los ANIMALES INTELECTUALES comunes y corrientes, NO NACE, NI MUERE, NI SE REENCARNA.
 
-Fuera de toda duda podemos y debemos afirmar, que sólo una FRACCIÓN del ALMA HUMANA vive dentro de los CUERPOS LU-NARES, ésta es la ESENCIA, el material PSÍQUICO para ELABO-RAR ALMA, para desarrollar ALMA HUMANA y por trasfondo al AL-MA ESPIRITUAL.
+Fuera de toda duda podemos y debemos afirmar, que sólo una FRACCIÓN del ALMA HUMANA vive dentro de los CUERPOS LUNARES, ésta es la ESENCIA, el material PSÍQUICO para ELABORAR ALMA, para desarrollar ALMA HUMANA y por trasfondo al ALMA ESPIRITUAL.
 
 La MONADA, el SER, crea, fabrica, desarrolla sus DOS ALMAS y éstas deben servirle y obedecerle.
 
 Debemos distinguir entre MONADAS y ALMAS. UNA MONADA, es decir, un ESPÍRITU se ES; un ALMA se tiene.
 
-Distíngase entre la MONADA de un MUNDO y el ALMA de un MUNDO; entre la MONADA de un HOMBRE y el ALMA de un HOM-BRE; entre la MONADA de una HORMIGA y el ALMA de una HOR-MIGA.
+Distíngase entre la MONADA de un MUNDO y el ALMA de un MUNDO; entre la MONADA de un HOMBRE y el ALMA de un HOMBRE; entre la MONADA de una HORMIGA y el ALMA de una HORMIGA.
 
 El ORGANISMO HUMANO en última síntesis está compuesto por billonadas y trillonadas de infinitesimales MONADAS.
 
-Existen varias clases y órdenes de elementos primarios de toda existencia, de todo organismo, a manera de GÉRMENES de todos los fenómenos de la naturaleza, a éstos podemos llamarlos MONA-DAS empleando el término de LEIBNITZ a falta de otro más expresi-vo para indicar la simplicidad de la más simple existencia.
+Existen varias clases y órdenes de elementos primarios de toda existencia, de todo organismo, a manera de GÉRMENES de todos los fenómenos de la naturaleza, a éstos podemos llamarlos MONADAS empleando el término de LEIBNITZ a falta de otro más expresivo para indicar la simplicidad de la más simple existencia.
 
 A cada uno de estos GÉRMENES o MONADAS, le corresponde un ÁTOMO como vehículo de acción.
 
 Las MONADAS se atraen, se combinan, se transforman, dan forma a todo organismo, a todo mundo, a todo microorganismo, etc.
 
-Entre las MONADAS hay JERARQUÍAS; las MONADAS inferio-res tienen que obedecer a las SUPERIORES, eso es LEY. Las MO-NADAS INFERIORES pertenecen a las SUPERIORES.
+Entre las MONADAS hay JERARQUÍAS; las MONADAS inferiores tienen que obedecer a las SUPERIORES, eso es LEY. Las MONADAS INFERIORES pertenecen a las SUPERIORES.
 
-Todas las trillonadas de MONADAS que animan al organismo humano tienen que obedecer al dueño, al jefe, a la MONADA princi-pal.
+Todas las trillonadas de MONADAS que animan al organismo humano tienen que obedecer al dueño, al jefe, a la MONADA principal.
 
-La MONADA REGULADORA, la MONADA PRIMORDIAL permite la actividad de todas sus subordinadas dentro del organismo huma-no, hasta el tiempo señalado por ley del KARMA.
+La MONADA REGULADORA, la MONADA PRIMORDIAL permite la actividad de todas sus subordinadas dentro del organismo humano, hasta el tiempo señalado por ley del KARMA.
 
 Cuando las billonadas o trillonadas de MONADAS o GÉRMENES VITALES abandonan el CUERPO FÍSICO, la MUERTE es entonces inevitable.
 
-Las MONADAS son en SÍ MISMAS INDESTRUCTIBLES, aban-donan sus antiguas conexiones para realizar en breve otras nuevas.
+Las MONADAS son en SÍ MISMAS INDESTRUCTIBLES, abandonan sus antiguas conexiones para realizar en breve otras nuevas.
 
-El RETORNO a ESTE MUNDO, el REINGRESO, la REINCOR-PORACIÓN serían imposibles sin el trabajo de las MONADAS. Ellas reconstruyen nuevas CÉLULAS con sus percepciones y sensacio-nes, nuevos organismos. Cuando la MONADA PRIMORDIAL está totalmente DESARROLLADA puede darse el lujo de utilizar sus Tri-llonadas de MONADAS para crear un mundo, un SOL, un cometa y convertirse así en la MONADA REGULADORA de un ASTRO CUALQUIERA, pero ya eso es cosa de DIOSES.
+El RETORNO a ESTE MUNDO, el REINGRESO, la REINCORPORACIÓN serían imposibles sin el trabajo de las MONADAS. Ellas reconstruyen nuevas CÉLULAS con sus percepciones y sensaciones, nuevos organismos. Cuando la MONADA PRIMORDIAL está totalmente DESARROLLADA puede darse el lujo de utilizar sus Trillonadas de MONADAS para crear un mundo, un SOL, un cometa y convertirse así en la MONADA REGULADORA de un ASTRO CUALQUIERA, pero ya eso es cosa de DIOSES.
 
-Las MONADAS o GÉRMENES VITALES no son exclusivos del organismo físico, dentro de los ÁTOMOS de los CUERPOS INTER-NOS existen aprisionados muchos órdenes y categorías de MONA-DAS VIVIENTES. La existencia de cualquier cuerpo físico o supra-sensible. Angélico o Diabólico, Solar o Lunar, tiene por fundamento las billonadas y trillonadas de MONADAS. El EGO LUNAR en SÍ MISMO es un compuesto de ÁTOMOS del enemigo secreto. Desafortunadamente dentro de dichos ÁTOMOS están prisioneras las MONADAS o GÉRMENES VITALES.
+Las MONADAS o GÉRMENES VITALES no son exclusivos del organismo físico, dentro de los ÁTOMOS de los CUERPOS INTERNOS existen aprisionados muchos órdenes y categorías de MONADAS VIVIENTES. La existencia de cualquier cuerpo físico o suprasensible. Angélico o Diabólico, Solar o Lunar, tiene por fundamento las billonadas y trillonadas de MONADAS. El EGO LUNAR en SÍ MISMO es un compuesto de ÁTOMOS del enemigo secreto. Desafortunadamente dentro de dichos ÁTOMOS están prisioneras las MONADAS o GÉRMENES VITALES.
 
-Ahora comprenderemos por qué la ciencia oculta dice: “EL DE-MONIO ES DIOS A LA INVERSA”.
+Ahora comprenderemos por qué la ciencia oculta dice: “EL DEMONIO ES DIOS A LA INVERSA”.
 
-A cada ÁTOMO le corresponde un GERMEN VITAL, una MONA-DA. Todas las infinitas modificaciones, todas las innumerables trans-formaciones, son el resultado de las variadas combinaciones de las MONADAS.
+A cada ÁTOMO le corresponde un GERMEN VITAL, una MONADA. Todas las infinitas modificaciones, todas las innumerables transformaciones, son el resultado de las variadas combinaciones de las MONADAS.
 
 La naturaleza deposita en los TRES CEREBROS del ser humano cierto capital de VALORES VITALES, cuando estos se agotan, la muerte es inevitable.
 
@@ -1666,25 +1690,25 @@ Después de la muerte del CUERPO FÍSICO el EGO vestido con sus CUERPOS LUNARES,
 
 Tres cosas van al cementerio, al sepulcro.1- EL CUERPO FÍSIC0. 2- EL CUERPO VITAL. 3- LA PERSONALIDAD.
 
-El cuerpo vital flota cerca del sepulcro y se va desintegrando con-forme el cuerpo físico se va desintegrando, conforme sus MONADAS se van liberando.
+El cuerpo vital flota cerca del sepulcro y se va desintegrando conforme el cuerpo físico se va desintegrando, conforme sus MONADAS se van liberando.
 
-La PERSONALIDAD está entre el sepulcro, pero sale cuando al-guien lleva flores, cuando algún doliente la visita, ambula por el pan-teón y vuelve a su sepulcro.
+La PERSONALIDAD está entre el sepulcro, pero sale cuando alguien lleva flores, cuando algún doliente la visita, ambula por el panteón y vuelve a su sepulcro.
 
-La Personalidad tiene un principio y un fin, lentamente se va des-integrando en el cementerio.
+La Personalidad tiene un principio y un fin, lentamente se va desintegrando en el cementerio.
 
-PROSERPINA, la REINA de los INFIERNOS, es también HÉCA-TE, la BENDITA DIOSA MADRE MUERTE bajo cuya dirección traba-jan los ÁNGELES de la MUERTE.
+PROSERPINA, la REINA de los INFIERNOS, es también HÉCATE, la BENDITA DIOSA MADRE MUERTE bajo cuya dirección trabajan los ÁNGELES de la MUERTE.
 
-LA MADRE ESPACIO convertida en MADRE-MUERTE, ama en-trañablemente a sus hijos y por eso se los lleva.
+LA MADRE ESPACIO convertida en MADRE-MUERTE, ama entrañablemente a sus hijos y por eso se los lleva.
 
-Los ÁNGELES de la MUERTE cuando están trabajando se revis-ten con sus trajes funerales, asumen una figura espectral, empuñan la hoz y con ella cortan el cordón de plata que conecta a los CUER-POS INTERNOS con el CUERPO FÍSICO. Los ÁNGELES de la muerte cortan el hilo de la vida y sacan al EGO fuera del cuerpo físico.
+Los ÁNGELES de la MUERTE cuando están trabajando se revisten con sus trajes funerales, asumen una figura espectral, empuñan la hoz y con ella cortan el cordón de plata que conecta a los CUERPOS INTERNOS con el CUERPO FÍSICO. Los ÁNGELES de la muerte cortan el hilo de la vida y sacan al EGO fuera del cuerpo físico.
 
-Los Ángeles de la Muerte son muy sabios y se desarrollan y des-envuelven bajo el RAYO DE SATURNO.
+Los Ángeles de la Muerte son muy sabios y se desarrollan y desenvuelven bajo el RAYO DE SATURNO.
 
-Los ÁNGELES DE LA MUERTE no solamente conocen lo rela-cionado con la muerte común y corriente del CUERPO FÍSICO, es-tos MINISTROS DE LA MUERTE son, además, profundamente SA-BIOS en todo lo relacionado con la MUERTE del YO PLURALIZA-DO.
+Los ÁNGELES DE LA MUERTE no solamente conocen lo relacionado con la muerte común y corriente del CUERPO FÍSICO, estos MINISTROS DE LA MUERTE son, además, profundamente SABIOS en todo lo relacionado con la MUERTE del YO PLURALIZADO.
 
 Después de la muerte del cuerpo, el DESENCARNADO cae en un desmayo que dura tres y medio días.
 
-EL LIBRO TIBETANO DE LOS MUERTOS dice: «Has estado en un desmayo durante los últimos tres y medio días. Tan pronto como te recobres de este desmayo tendrás el pensamiento, ¿qué ha pa-sado? (pues) en ese momento todo el SAMSARA (UNIVERSO FE-NOMÉNICO) estará en revolución.
+EL LIBRO TIBETANO DE LOS MUERTOS dice: «Has estado en un desmayo durante los últimos tres y medio días. Tan pronto como te recobres de este desmayo tendrás el pensamiento, ¿qué ha pasado? (pues) en ese momento todo el SAMSARA (UNIVERSO FENOMÉNICO) estará en revolución.
 
 El VALOR KABALISTICO del EGO es CINCUENTA Y SEIS; este es el número de TIPHÓN, la MENTE SIN ESPIRITUALIDAD.
 
@@ -1700,35 +1724,35 @@ En esta REGIÓN CELULAR en que vivimos la gestación dura DIEZ meses Lunares; la
 
 En el Mundo Molecular se pueden medir los acontecimientos con escala de tiempo que va del mes a los cuarenta minutos. En el MUNDO ELECTRÓNICO la escala del tiempo oscila entre cuarenta minutos y dos segundos y medio.
 
-La VISIÓN RETROSPECTIVA DE SAMSARA (VIDA QUE ACA-BA DE PASAR), en el instante de la muerte y durante los tres días y medio subsiguientes, es de tipo ELECTRÓNICO y por ello cada su-ceso se puede medir con el patrón de tiempo ELECTRÓNICO.
+La VISIÓN RETROSPECTIVA DE SAMSARA (VIDA QUE ACABA DE PASAR), en el instante de la muerte y durante los tres días y medio subsiguientes, es de tipo ELECTRÓNICO y por ello cada suceso se puede medir con el patrón de tiempo ELECTRÓNICO.
 
 La VISIÓN RETROSPECTIVA DEL SAMSARA en el MUNDO MOLECULAR es menos rápida y por ello cada suceso se mide con el PATRÓN DE TIEMPO MOLECULAR.
 
 El ÍNTIMO, la MONADA, el SER con sus DOS ALMAS, antes de que naciéramos en este valle de lágrimas, MORA en la VÍA LÁCTEA y aún durante la vida del cuerpo físico aquí abajo, continúa viviendo en las estrellas.
 
-Lo fundamental para la ESENCIA después de la muerte es alcan-zar el ESTADO BÚDHICO RELATIVO y la LIBERACIÓN INTERME-DIA, esto sólo es posible para el EMBRIÓN de ALMA que tenemos dentro, subiendo, ascendiendo al MUNDO ELECTRÓNICO.
+Lo fundamental para la ESENCIA después de la muerte es alcanzar el ESTADO BÚDHICO RELATIVO y la LIBERACIÓN INTERMEDIA, esto sólo es posible para el EMBRIÓN de ALMA que tenemos dentro, subiendo, ascendiendo al MUNDO ELECTRÓNICO.
 
 Es URGENTE SABER que en el MUNDO ELECTRÓNICO vive nuestra DIVINA TRÍADA INMORTAL, nuestro SER, nuestro BUDDHA.
 
-Unirse a la TRÍADA INMORTAL después de la muerte, ser uno con ella, significa de hecho convertirse en un BUDDHA RELATIVO, lograr la LIBERACIÓN INTERMEDIA y gozar de unas bellas vaca-ciones antes de retornar a un nuevo organismo humano.
+Unirse a la TRÍADA INMORTAL después de la muerte, ser uno con ella, significa de hecho convertirse en un BUDDHA RELATIVO, lograr la LIBERACIÓN INTERMEDIA y gozar de unas bellas vacaciones antes de retornar a un nuevo organismo humano.
 
-Si en el momento supremo de la muerte, la CLARA LUZ PRI-MORDIAL ha sido debidamente reconocida por el difunto, es señal clara que ha alcanzado la LIBERACIÓN INTERMEDIA.
+Si en el momento supremo de la muerte, la CLARA LUZ PRIMORDIAL ha sido debidamente reconocida por el difunto, es señal clara que ha alcanzado la LIBERACIÓN INTERMEDIA.
 
-Si en el momento supremo de la muerte, el difunto sólo percibe la CLARA LUZ SECUNDARIA, es señal de que tendrá que luchar mu-cho para alcanzar el estado BÚDHICO RELATIVO.
+Si en el momento supremo de la muerte, el difunto sólo percibe la CLARA LUZ SECUNDARIA, es señal de que tendrá que luchar mucho para alcanzar el estado BÚDHICO RELATIVO.
 
 Lo difícil para la ESENCIA es DESEMBOTELLARSE, escaparse de su prisión, salirse de los CUERPOS LUNARES, abandonar el YO PLURALIZADO. En esto el KARMA de cada cual es definitivo.
 
-Cuando el difunto ha revivido en forma retrospectiva toda la vida que acaba de pasar, entonces tiene que presentarse ante los TRI-BUNALES del KARMA para ser juzgado. La leyenda de ZOROASTRO dice: «Todo aquel cuyas buenas obras excedan en tres gramos a su pecado, va al cielo; todo aquel cuyo pecado es mayor, al infierno, en tanto que aquel en el que am-bos sean iguales, permanece en el Hamistikan hasta el cuerpo futuro o resurrección».
+Cuando el difunto ha revivido en forma retrospectiva toda la vida que acaba de pasar, entonces tiene que presentarse ante los TRIBUNALES del KARMA para ser juzgado. La leyenda de ZOROASTRO dice: «Todo aquel cuyas buenas obras excedan en tres gramos a su pecado, va al cielo; todo aquel cuyo pecado es mayor, al infierno, en tanto que aquel en el que ambos sean iguales, permanece en el Hamistikan hasta el cuerpo futuro o resurrección».
 
-Hoy en día, en estos tiempos de perversidad y crudo materialis-mo ateo, la mayor parte de desencarnados ingresan después del Juicio al REINO MINERAL sumergido, a los MUNDOS INFIERNOS.
+Hoy en día, en estos tiempos de perversidad y crudo materialismo ateo, la mayor parte de desencarnados ingresan después del Juicio al REINO MINERAL sumergido, a los MUNDOS INFIERNOS.
 
-Son también muchos los millones que se meten a una nueva ma-triz en forma inmediata o mediata, sin haberse dado el lujo de unas buenas vacaciones en los MUNDOS SUPERIORES.
+Son también muchos los millones que se meten a una nueva matriz en forma inmediata o mediata, sin haberse dado el lujo de unas buenas vacaciones en los MUNDOS SUPERIORES.
 
-Ciertamente el proceso de selección existe en toda la naturaleza y son pocos lo que logran la LIBERACIÓN INTERMEDIA y el ESTA-DO BÚDHICO RELATIVO.
+Ciertamente el proceso de selección existe en toda la naturaleza y son pocos lo que logran la LIBERACIÓN INTERMEDIA y el ESTADO BÚDHICO RELATIVO.
 
-Los DESENCARNADOS ingresan a la ETERNIDAD bajo las in-fluencias de la LUNA y salen de la ETERNIDAD por las puertas de la LUNA.
+Los DESENCARNADOS ingresan a la ETERNIDAD bajo las influencias de la LUNA y salen de la ETERNIDAD por las puertas de la LUNA.
 
-Ya vimos en la lección de CÁNCER que la vida entera de todas las personas se procesa bajo las influencias de la LUNA, MERCU-RIO, VENUS, SOL, MARTE, JÚPITER y SATURNO cerrándose la vida con broche LUNAR.
+Ya vimos en la lección de CÁNCER que la vida entera de todas las personas se procesa bajo las influencias de la LUNA, MERCURIO, VENUS, SOL, MARTE, JÚPITER y SATURNO cerrándose la vida con broche LUNAR.
 
 Realmente la LUNA nos lleva y la LUNA nos trae y los siete tipos de vibraciones planetarias en su orden clásico indicado se repiten también después de la muerte, porque TAL COMO ES ARRIBA ES ABAJO».
 
@@ -1736,115 +1760,117 @@ Las esencias que después de ser juzgadas tengan el derecho a la LIBERACIÓN INT
 
 Afortunadamente distintos grupos de MAESTROS asisten a los desencarnados y les ayudan en este trabajo con los RAYOS de la GRACIA.
 
-Así como en este mundo celular en que vivimos existen Repúbli-cas, Reinos, Presidentes, Reyes, Gobernadores, etc., así también en el mundo molecular existen muchos Paraísos, Regiones y Reinos donde las ESENCIAS gozan de estados indescriptibles de felicidad. Los DESENCARNADOS pueden entrar en REINOS de felicidad paradisíaca como son: el de la DENSA CONCENTRACIÓN; el RE-INO de los CABELLOS LARGOS (VAJRAPANI); o al VIHARA ILIMI-TADO de la RADIACIÓN DEL LOTO; (PADMA SAMBHAVA).
+Así como en este mundo celular en que vivimos existen Repúblicas, Reinos, Presidentes, Reyes, Gobernadores, etc., así también en el mundo molecular existen muchos Paraísos, Regiones y Reinos donde las ESENCIAS gozan de estados indescriptibles de felicidad. Los DESENCARNADOS pueden entrar en REINOS de felicidad paradisíaca como son: el de la DENSA CONCENTRACIÓN; el REINO de los CABELLOS LARGOS (VAJRAPANI); o al VIHARA ILIMITADO de la RADIACIÓN DEL LOTO; (PADMA SAMBHAVA).
 
-Los DESENCARNADOS que marchan hacia la LIBERACIÓN IN-TERMEDIA deben ayudarse a SÍ MISMOS, concentrando la mente en cualquiera de esos REINOS del MUNDO MOLECULAR.
+Los DESENCARNADOS que marchan hacia la LIBERACIÓN INTERMEDIA deben ayudarse a SÍ MISMOS, concentrando la mente en cualquiera de esos REINOS del MUNDO MOLECULAR.
 
 Es realmente muy doloroso vagar de vida en vida, errar por la cloaca horrible del SAMSARA sin gozar del ESTADO BÚDHICO y la LIBERACIÓN INTERMEDIA.
 
-Existen REINOS de inconcebible felicidad donde el DESENCAR-NADO debe esforzarse por entrar, recordemos el REINO DICHOSO del OESTE gobernado por el BUDDHA AMITABHA.
+Existen REINOS de inconcebible felicidad donde el DESENCARNADO debe esforzarse por entrar, recordemos el REINO DICHOSO del OESTE gobernado por el BUDDHA AMITABHA.
 
-Recordemos el REINO DE MAITREYA, los ciclos de TUSHITA, a ese REINO de suprema dicha también pueden ingresar los DESEN-CARNADOS que marchan hacia el MUNDO ELECTRÓNICO.
+Recordemos el REINO DE MAITREYA, los ciclos de TUSHITA, a ese REINO de suprema dicha también pueden ingresar los DESENCARNADOS que marchan hacia el MUNDO ELECTRÓNICO.
 
-Los DESENCARNADOS deben orar mucho al GRAN COMPASI-VO y a su DIVINA TRÍADA, firmes en sus propósitos, sin dejarse desviar por nada, si es que de verdad no quieren caer en una nueva matriz sin haber gozado del ESTADO BÚDHICO INTERMEDIO en el MUNDO DE LOS ELECTRONES.
+Los DESENCARNADOS deben orar mucho al GRAN COMPASIVO y a su DIVINA TRÍADA, firmes en sus propósitos, sin dejarse desviar por nada, si es que de verdad no quieren caer en una nueva matriz sin haber gozado del ESTADO BÚDHICO INTERMEDIO en el MUNDO DE LOS ELECTRONES.
 
-La felicidad en las regiones ELECTRÓNICAS, la LIBERACIÓN INTERMEDIA después de haber pasado por los paraísos molecula-res, es algo imposible de describir con humanas palabras.
+La felicidad en las regiones ELECTRÓNICAS, la LIBERACIÓN INTERMEDIA después de haber pasado por los paraísos moleculares, es algo imposible de describir con humanas palabras.
 
 Los BUDDHAS viajan a través del INALTERABLE INFINITO entre las sinfonías indescriptibles de los mundos que palpitan entre el seno de la MADRE-ESPACIO.
 
 Empero, todo premio, todo capital se agota. Cuando el DHARMA de felicidad se agota, el RETORNO a una nueva matriz es entonces inevitable.
 
-La ESENCIA pierde el ÉXTASIS atraída por el EGO LUNAR y ya embotellada nuevamente entre los CUERPOS LUNARES, RETOR-NA a una nueva matriz.
+La ESENCIA pierde el ÉXTASIS atraída por el EGO LUNAR y ya embotellada nuevamente entre los CUERPOS LUNARES, RETORNA a una nueva matriz.
 
-El instante en que la ESENCIA pierde el ÉXTASIS es aquel en que vuelve a separarse de su BUDDHA INTIMO para quedar embo-tellada entre los CUERPOS LUNARES y el YO PLURALIZADO. El RETORNO a una nueva matriz se realiza de acuerdo con la LEY del KARMA.
+El instante en que la ESENCIA pierde el ÉXTASIS es aquel en que vuelve a separarse de su BUDDHA INTIMO para quedar embotellada entre los CUERPOS LUNARES y el YO PLURALIZADO. El RETORNO a una nueva matriz se realiza de acuerdo con la LEY del KARMA.
 
 El EGO continúa en los descendientes de su pasado o pasadas vidas.
 
-Las MONADAS de su pasado CUERPO FÍSICO tienen el poder de reunir átomos, moléculas y reconstruir células y órganos; así re-gresamos a este mundo celular vestidos con un nuevo cuerpo físico.
+Las MONADAS de su pasado CUERPO FÍSICO tienen el poder de reunir átomos, moléculas y reconstruir células y órganos; así regresamos a este mundo celular vestidos con un nuevo cuerpo físico.
 
-El pobre ANIMAL INTELECTUAL comienza su vida en este mun-do como una simple célula origina], sujeto al veloz tiempo de las células y termina alrededor de los setenta u ochenta años o algo más, cargado de recuerdos y experiencias de toda índole.
+El pobre ANIMAL INTELECTUAL comienza su vida en este mundo como una simple célula origina], sujeto al veloz tiempo de las células y termina alrededor de los setenta u ochenta años o algo más, cargado de recuerdos y experiencias de toda índole.
 
-Es URGENTE saber que en el proceso de REINGRESO o RE-TORNO se realiza también cierta SELECCIÓN.
+Es URGENTE saber que en el proceso de REINGRESO o RETORNO se realiza también cierta SELECCIÓN.
 
-El YO es una SUMA de pequeños YOES y no todos esos peque-ños YOES RETORNAN a un nuevo organismo humano.
+El YO es una SUMA de pequeños YOES y no todos esos pequeños YOES RETORNAN a un nuevo organismo humano.
 
-El YO es una SUMA de ENTIDADES distintas, diversas, sin or-den de ninguna especie y no todas esas ENTIDADES REINGRE-SAN a un nuevo organismo humano, muchas de esas ENTIDADES se REINCORPORAN en CUERPOS de CABALLOS, PERROS, GA-TOS, CERDOS, etc., etc., etc.
+El YO es una SUMA de ENTIDADES distintas, diversas, sin orden de ninguna especie y no todas esas ENTIDADES REINGRESAN a un nuevo organismo humano, muchas de esas ENTIDADES se REINCORPORAN en CUERPOS de CABALLOS, PERROS, GATOS, CERDOS, etc., etc., etc.
 
-Cierta vez en que el MAESTRO PITÁGORAS paseaba con un amigo suyo, éste hubo de pegarle a un perro. El MAESTRO le re-prendió diciendo: «NO LE PEGUÉIS, QUE EN SU LADRIDO LAS-TIMERO HE CONOCIDO LA VOZ DE UN AMIGO MÍO QUE MU-RIÓ».
+Cierta vez en que el MAESTRO PITÁGORAS paseaba con un amigo suyo, éste hubo de pegarle a un perro. El MAESTRO le reprendió diciendo: «NO LE PEGUÉIS, QUE EN SU LADRIDO LASTIMERO HE CONOCIDO LA VOZ DE UN AMIGO MÍO QUE MURIÓ».
 
-Es claro que al llegar a esta parte de nuestro capítulo presente, los fanáticos del DOGMA de la EVOLUCIÓN lanzarán contra noso-tros toda su baba difamatoria y protestarán diciendo: EL EGO NO PUEDE RETROCEDER TODO EVOLUCIONA TODO DEBE LLE-
+Es claro que al llegar a esta parte de nuestro capítulo presente, los fanáticos del DOGMA de la EVOLUCIÓN lanzarán contra nosotros toda su baba difamatoria y protestarán diciendo: EL EGO NO PUEDE RETROCEDER TODO EVOLUCIONA TODO DEBE LLE-
 
 GAR A LA PERFECCIÓN, etc., etc., etc.
 
-Esos FANÁTICOS ignoran que el EGO es una suma de peque-ños YOES animales y que lo semejante atrae a lo semejante.
+Esos FANÁTICOS ignoran que el EGO es una suma de pequeños YOES animales y que lo semejante atrae a lo semejante.
 
-Esos FANÁTICOS ignora que el EGO nada tiene de DIVINO, es una suma de ENTIDADES ANIMALES que la LEY de la EVOLU-CIÓN jamás podrá llevar a la PERFECCIÓN.
+Esos FANÁTICOS ignora que el EGO nada tiene de DIVINO, es una suma de ENTIDADES ANIMALES que la LEY de la EVOLUCIÓN jamás podrá llevar a la PERFECCIÓN.
 
 Las ENTIDADES ANIMALES tienen pleno derecho a ingresar en matrices animales de perros, caballos, cerdos, etc., etc., etc., y eso NO LO PUEDEN PROHIBIR los FANÁTICOS del DOGMA DE LA EVOLUCIÓN, aunque griten y maldigan y truenen y relampagueen.
 
-Esta es la DOCTRINA de la METAMORFOSIS o METEMPSICO-SIS de PITÁGORAS y se fundamenta en las mismas Leyes de la Naturaleza.
+Esta es la DOCTRINA de la METAMORFOSIS o METEMPSICOSIS de PITÁGORAS y se fundamenta en las mismas Leyes de la Naturaleza.
 
-En el ASNO DE ORO de APULEYO encontramos totalmente do-cumentada esta DOCTRINA de PITÁGORAS.
+En el ASNO DE ORO de APULEYO encontramos totalmente documentada esta DOCTRINA de PITÁGORAS.
 
-Dice APULEYO que en la TESALIA de la HECHICERÍA las pie-dras no eran sino hombres petrificados; los pájaros, hombres con alas; los árboles, hombres con follaje; las fuentes, cuerpos humanos que sangraban clara linfa. Admirable manera simbólica de represen-tar el hecho indudable para todo ocultista, de que las DIVERSAS ENTIDADES que constituyen el YO PLURALIZADO, pueden rein-corporarse en organismos de bestias o ingresar al REINO MINERAL, VEGETAL, etc., etc., etc.
+Dice APULEYO que en la TESALIA de la HECHICERÍA las piedras no eran sino hombres petrificados; los pájaros, hombres con alas; los árboles, hombres con follaje; las fuentes, cuerpos humanos que sangraban clara linfa. Admirable manera simbólica de representar el hecho indudable para todo ocultista, de que las DIVERSAS ENTIDADES que constituyen el YO PLURALIZADO, pueden reincorporarse en organismos de bestias o ingresar al REINO MINERAL, VEGETAL, etc., etc., etc.
 
 Los MÍSTICOS CRISTIANOS con justa razón hablan con amor de la hermana planta, el hermano lobo, la hermana piedra.
 
-RUDOLF STEINER el INICIADO ALEMÁN, dice que en la ÉPO-CA POLAR sólo existía el HOMBRE y que los animales existieron más tarde, estaban dentro del HOMBRE, fueron eliminados por el HOMBRE.
+RUDOLF STEINER el INICIADO ALEMÁN, dice que en la ÉPOCA POLAR sólo existía el HOMBRE y que los animales existieron más tarde, estaban dentro del HOMBRE, fueron eliminados por el HOMBRE.
 
-Esos ANIMALES fueron las distintas partes o ENTIDADES del YO PLURALIZADO de los HOMBRES ORIGINALES. Aquellas EN-TIDADES que fueron por ellos eliminadas de su naturaleza interna y que debido al estado PROTOPLASMÁTICO de la tierra en aquella época, marcharon hacia la cristalización física actual.
+Esos ANIMALES fueron las distintas partes o ENTIDADES del YO PLURALIZADO de los HOMBRES ORIGINALES. Aquellas ENTIDADES que fueron por ellos eliminadas de su naturaleza interna y que debido al estado PROTOPLASMÁTICO de la tierra en aquella época, marcharon hacia la cristalización física actual.
 
-Aquellos HOMBRES POLARES e HIPERBÓREOS necesitaron eliminar esas ENTIDADES ANIMALES, ese YO PLURALIZADO, pa-ra convertirse en HOMBRES VERDADEROS, en HOMBRES SOLA-RES.
+Aquellos HOMBRES POLARES e HIPERBÓREOS necesitaron eliminar esas ENTIDADES ANIMALES, ese YO PLURALIZADO, para convertirse en HOMBRES VERDADEROS, en HOMBRES SOLARES.
 
 Algunos sujetos son tan ANIMALES, que si se les quitara todo lo que tienen de ANIMAL, no quedaría nada.
 
-SATURNO es el PLANETA de la MUERTE y se exalta en CA-PRICORNIO. Este signo está simbolizado por un cabrito como para recordarnos la PIEL DE CHIVO, los ANIMALES INTELECTUALES con piel de CHIVO, la necesidad de eliminar lo que tenemos de ANIMAL en nosotros, las ENTIDADES ANIMALES que cargamos dentro.
+SATURNO es el PLANETA de la MUERTE y se exalta en CAPRICORNIO. Este signo está simbolizado por un cabrito como para recordarnos la PIEL DE CHIVO, los ANIMALES INTELECTUALES con piel de CHIVO, la necesidad de eliminar lo que tenemos de ANIMAL en nosotros, las ENTIDADES ANIMALES que cargamos dentro.
 
 La PIEDRA de CAPRICORNIO es el ÓNIX NEGRO y toda piedra negra en general, el metal es el PLOMO y su día el SÁBADO.
 
 En SÁBADO celebraban las BRUJAS de la Edad Media sus horribles AQUELARRES, pero también el SÁBADO es el SÉPTIMO DÍA tan sagrado para los JUDÍOS. SATURNO es VIDA y MUERTE. La senda de la vida está formada con las huellas de los cascos del caballo de la muerte.
 
-Las corrientes magnéticas que suben de la tierra después de pa-sar por los cedazos de los pies continúan por las pantorrillas y al lle-gar a las rodillas se cargan con el PLOMO de SATURNO, así ad-quieren solidez, forma, fuerza.
+Las corrientes magnéticas que suben de la tierra después de pasar por los cedazos de los pies continúan por las pantorrillas y al llegar a las rodillas se cargan con el PLOMO de SATURNO, así adquieren solidez, forma, fuerza.
 
-NO estamos hablando del PLOMO en su estado grosero; habla-mos del PLOMO en estado COLOIDAL, sutil.
+NO estamos hablando del PLOMO en su estado grosero; hablamos del PLOMO en estado COLOIDAL, sutil.
 
-Las rodillas poseen una maravillosa sustancia que les permite el libre movimiento de tan sencillo y maravilloso engranaje óseo. Esa sustancia es la famosa SINOVIA, que viene de la raíz SIN, que signi-fica CON y OVIA, HUEVO Total, SUSTANCIA CON HUEVO.
+Las rodillas poseen una maravillosa sustancia que les permite el libre movimiento de tan sencillo y maravilloso engranaje óseo. Esa sustancia es la famosa SINOVIA, que viene de la raíz SIN, que significa CON y OVIA, HUEVO Total, SUSTANCIA CON HUEVO.
 
 El HUEVO es muy utilizado en la CIENCIA JINAS y ya sobre esto hablamos en el TRATADO ESOTÉRICO de TEÚRGIA, segunda EDICIÓN.
 
-PRÁCTICA de CAPRICORNIO. Durante el signo de CAPRICOR-NIO imaginad un ataúd o caja de muerto en el suelo. Caminad por sobre ese imaginario ataúd, pero imaginándolo en el centro de las piernas; al caminar doblaréis las rodillas, como para salvar el obstá-culo, como para pasar las piernas por sobre el ataúd, pero haciendo girar las rodillas de derecha a izquierda, con la mente concentrada en ellas, teniendo la firme intención de que se carguen del plomo de SATURNO.
+PRÁCTICA de CAPRICORNIO. Durante el signo de CAPRICORNIO imaginad un ataúd o caja de muerto en el suelo. Caminad por sobre ese imaginario ataúd, pero imaginándolo en el centro de las piernas; al caminar doblaréis las rodillas, como para salvar el obstáculo, como para pasar las piernas por sobre el ataúd, pero haciendo girar las rodillas de derecha a izquierda, con la mente concentrada en ellas, teniendo la firme intención de que se carguen del plomo de SATURNO.
 
 Los MAESTROS MASONES podrán entender muy bien esta práctica de SATURNO, porque son los mismos pasos del MAESTRO MASÓN al entrar en la LOGIA.
 
-Los nativos de CAPRICORNIO tienen disposición para la peda-gogía, sufren mucho, tienen un GRAN SENTIDO DEL DEBER, son prácticos por naturaleza y pasan en su vida siempre por un gran su-frimiento, alguien les traiciona. Las mujeres de CAPRICORNIO son magníficas esposas, fieles hasta la muerte, hacendosas, trabajadoras, sufridas hasta lo indeci-ble, pero a pesar de todas estas virtudes, el marido les traiciona, las abandona y muchas veces hasta contra su propia voluntad, es el karma de ellas desgraciadamente.
+Los nativos de CAPRICORNIO tienen disposición para la pedagogía, sufren mucho, tienen un GRAN SENTIDO DEL DEBER, son prácticos por naturaleza y pasan en su vida siempre por un gran sufrimiento, alguien les traiciona. Las mujeres de CAPRICORNIO son magníficas esposas, fieles hasta la muerte, hacendosas, trabajadoras, sufridas hasta lo indecible, pero a pesar de todas estas virtudes, el marido les traiciona, las abandona y muchas veces hasta contra su propia voluntad, es el karma de ellas desgraciadamente.
 
-Algunas mujeres de CAPRICORNIO se meten con otros hom-bres, pero esto es sólo estando ya abandonadas por el marido y después de haber sufrido espantosamente.
+Algunas mujeres de CAPRICORNIO se meten con otros hombres, pero esto es sólo estando ya abandonadas por el marido y después de haber sufrido espantosamente.
 
-Los hombres y mujeres de CAPRICORNIO son bastante EGOÍS-TAS, aun cuando no todos; nos referimos al tipo inferior de CAPRI-CORNIO. Debido a esto, a ese EGOÍSMO, contraen muchos com-promisos y también se llenan de enemigos.
+Los hombres y mujeres de CAPRICORNIO son bastante EGOÍSTAS, aun cuando no todos; nos referimos al tipo inferior de CAPRICORNIO. Debido a esto, a ese EGOÍSMO, contraen muchos compromisos y también se llenan de enemigos.
 
-Los nativos de CAPRICORNIO se apegan muchísimo a las co-sas, al dinero y algunos hasta se tornan muy avaros.
+Los nativos de CAPRICORNIO se apegan muchísimo a las cosas, al dinero y algunos hasta se tornan muy avaros.
 
 CAPRICORNIO es un signo de tierra, fijo, estable. Sin embargo, los nativos de CAPRICORNIO realizan muchos viajes aun cuando sean cortos.
 
-Los dolores morales de los CAPRICORNIANOS son terribles, su-fren demasiado, afortunadamente su sentido práctico de la vida los salva y bien pronto se sobreponen a las peores amarguras de la vi-da.
+Los dolores morales de los CAPRICORNIANOS son terribles, sufren demasiado, afortunadamente su sentido práctico de la vida los salva y bien pronto se sobreponen a las peores amarguras de la vida.
 
 # CAPÍTULO 11
+
+![Imagen 13](Tratado Esoterico de Astrologia Hermetica/Tratado Esoterico de Astrologia Hermetica - 013 - CAPÍTULO 11.jpeg)
 
 Acuario
 
 **(20 de Enero a 19 de Febrero) ACUARIO**
 
-El significado oculto de ACUARIO es SABER. ACUARIO, el signo del aguador, es un signo zodiacal eminentemente REVOLUCIONA-RIO.
+El significado oculto de ACUARIO es SABER. ACUARIO, el signo del aguador, es un signo zodiacal eminentemente REVOLUCIONARIO.
 
-Existen cuatro clases de CONOCIMIENTO o CIENCIA SECRE-TA. Necesitamos saber cuáles son esas cuatro clases de CONOCI-MIENTO.
+Existen cuatro clases de CONOCIMIENTO o CIENCIA SECRETA. Necesitamos saber cuáles son esas cuatro clases de CONOCIMIENTO.
 
-PRIMERO: VAJNA-VIDYA; conocimiento que se adquiere con ciertos poderes ocultos despertados dentro de nuestra propia natura-leza interior, mediante ciertos Rituales Mágicos.
+PRIMERO: VAJNA-VIDYA; conocimiento que se adquiere con ciertos poderes ocultos despertados dentro de nuestra propia naturaleza interior, mediante ciertos Rituales Mágicos.
 
-SEGUNDO: MAHA-VIDYA KABALÍSTICA. La CIENCIA de la KÁBALA con todas sus invocaciones, matemáticas, símbolos y litur-gia, puede ser ANGÉLICA o DIABÓLICA, todo depende del tipo de persona que la use.
+SEGUNDO: MAHA-VIDYA KABALÍSTICA. La CIENCIA de la KÁBALA con todas sus invocaciones, matemáticas, símbolos y liturgia, puede ser ANGÉLICA o DIABÓLICA, todo depende del tipo de persona que la use.
 
 TERCERO: GUPTA-VIDYA; ciencia de los MANTRAM, Magia del VERBO; se fundamenta en los poderes místicos del sonido, en la ciencia de la ARMONÍA.
 
-CUARTO: ATMA-VIDYA o REAL SABIDURÍA del SER, del AT-MAN, de la MONADA SUPERIOR.
+CUARTO: ATMA-VIDYA o REAL SABIDURÍA del SER, del ATMAN, de la MONADA SUPERIOR.
 
 Todas estas formas de CONOCIMIENTO, excepto la CUARTA, la raíz de todas las ciencias ocultas.
 
@@ -1854,61 +1880,61 @@ De todas esas formas de conocimiento de todas estas RAMAS OCULTISTAS, ya la cien
 
 ni puede ser adquirido por esas artes.
 
-El PRESENTE LIBRO ASTROLÓGICO HERMÉTICO ESOTÉRI-CO, nada tiene que ver con la ASTROLOGÍA de feria mencionada en los PERIÓDICOS. En este libro enseñamos CIENCIA del ATM A-VI DYA.
+El PRESENTE LIBRO ASTROLÓGICO HERMÉTICO ESOTÉRICO, nada tiene que ver con la ASTROLOGÍA de feria mencionada en los PERIÓDICOS. En este libro enseñamos CIENCIA del ATM AVI DYA.
 
 Lo fundamental es el ATMA-VIDYA, ella incluye a todas en su aspecto ESENCIAL y hasta puede usar de ellas ocasionalmente; pero sólo utiliza sus extractos sintéticos depurados de toda escoria.
 
-La PUERTA DE ORO de la Sabiduría puede transformarse en la amplia puerta y ancho camino que conduce a la destrucción, la puer-ta de las artes mágicas practicadas con fines egoístas.
+La PUERTA DE ORO de la Sabiduría puede transformarse en la amplia puerta y ancho camino que conduce a la destrucción, la puerta de las artes mágicas practicadas con fines egoístas.
 
-Estamos en la EDAD del KALI-YUGA, la edad de HIERRO, la EDAD NEGRA y todos los estudiantes de OCULTISMO están pre-dispuestos a extraviarse por el camino negro. Asombra ver el con-cepto tan equivocado que tienen los «hermanitos» sobre el OCUL-TISMO y la facilidad con que creen poder llegar hasta la PUERTA y traspasar el UMBRAL del MISTERIO sin un GRAN SACRIFICIO.
+Estamos en la EDAD del KALI-YUGA, la edad de HIERRO, la EDAD NEGRA y todos los estudiantes de OCULTISMO están predispuestos a extraviarse por el camino negro. Asombra ver el concepto tan equivocado que tienen los «hermanitos» sobre el OCULTISMO y la facilidad con que creen poder llegar hasta la PUERTA y traspasar el UMBRAL del MISTERIO sin un GRAN SACRIFICIO.
 
-Resulta imposible lograr el ATMA-VIDYA sin los TRES FACTO-RES de la REVOLUCIÓN DE LA CONCIENCIA.
+Resulta imposible lograr el ATMA-VIDYA sin los TRES FACTORES de la REVOLUCIÓN DE LA CONCIENCIA.
 
 Es imposible el ATMA-VIDYA sin haber llegado al NACIMIENTO SEGUNDO. Es imposible el ATMA-VIDYA sin la muerte del YO PLURALIZADO. Es imposible el ATMA-VIDYA sin el SACRIFICIO por la humanidad.
 
-NO es la Ley de la EVOLUCIÓN la que nos confiere el ATMA-VIDYA. No es la Ley de la INVOLUCIÓN la que nos confiere el AT-MA-VIDYA. Sólo a base de TREMENDAS y ESPANTOSAS REVO-LUCIONES ÍNTIMAS, llegamos al ATMA-VIDYA.
+NO es la Ley de la EVOLUCIÓN la que nos confiere el ATMA-VIDYA. No es la Ley de la INVOLUCIÓN la que nos confiere el ATMA-VIDYA. Sólo a base de TREMENDAS y ESPANTOSAS REVOLUCIONES ÍNTIMAS, llegamos al ATMA-VIDYA.
 
-El CAMINO de la REVOLUCIÓN de la conciencia es la SENDA DEL FILO DE LA NAVAJA; esta senda es TERRIBLEMENTE DIFÍ-CIL; ésta senda está llena de peligros por dentro y por fuera.
+El CAMINO de la REVOLUCIÓN de la conciencia es la SENDA DEL FILO DE LA NAVAJA; esta senda es TERRIBLEMENTE DIFÍCIL; ésta senda está llena de peligros por dentro y por fuera.
 
-Vamos a estudiar ahora en este capítulo cada uno de los TRES FACTORES de la REVOLUCIÓN DE LA CONCIENCIA en forma or-denada y por separado, a fin de que los estudiantes Gnósticos pue-dan orientarse correctamente.
+Vamos a estudiar ahora en este capítulo cada uno de los TRES FACTORES de la REVOLUCIÓN DE LA CONCIENCIA en forma ordenada y por separado, a fin de que los estudiantes Gnósticos puedan orientarse correctamente.
 
-Pongan, pues, nuestros lectores muchísima atención en el estu-dio de cada uno de los TRES FACTORES de la REVOLUCIÓN DE LA CONCIENCIA, porque de la plena COMPRENSIÓN de cada uno de estos TRES FACTORES depende el ÉXITO en este TRABAJO.
+Pongan, pues, nuestros lectores muchísima atención en el estudio de cada uno de los TRES FACTORES de la REVOLUCIÓN DE LA CONCIENCIA, porque de la plena COMPRENSIÓN de cada uno de estos TRES FACTORES depende el ÉXITO en este TRABAJO.
 
 ### NACER
 
-El NACIMIENTO SEGUNDO es un problema totalmente sexual. El Sagrado TORO APIS entre los antiguos EGIPCIOS, debía ser jo-ven, sano y fuerte para simbolizar la PIEDRA FILOSOFAL. (EL SEXO.)
+El NACIMIENTO SEGUNDO es un problema totalmente sexual. El Sagrado TORO APIS entre los antiguos EGIPCIOS, debía ser joven, sano y fuerte para simbolizar la PIEDRA FILOSOFAL. (EL SEXO.)
 
-Los Griegos instruidos por los Hierofantes Egipcios representa-ban así también la PIEDRA FILOSOFAL, con uno o varios TOROS, como se ve también en la fábula del MINOTAURO CRETENSE.
+Los Griegos instruidos por los Hierofantes Egipcios representaban así también la PIEDRA FILOSOFAL, con uno o varios TOROS, como se ve también en la fábula del MINOTAURO CRETENSE.
 
-Igual significación Alquímica tuvieron los TOROS que HÉRCU-LES robó a Gerión el mismo simbolismo lo encontramos en la leyen-da de los SAGRADOS BUEYES del SOL que pacían tranquilos en la ISLA de SICILIA y que fueron robados por Mercurio.
+Igual significación Alquímica tuvieron los TOROS que HÉRCULES robó a Gerión el mismo simbolismo lo encontramos en la leyenda de los SAGRADOS BUEYES del SOL que pacían tranquilos en la ISLA de SICILIA y que fueron robados por Mercurio.
 
-No todos los TOROS sagrados eran negros o blancos; algunos eran ROJOS como los de Gerión y como los sacrificados por el Sa-cerdote Israelita, porque la PIEDRA FILOSOFAL, en cierto momento Alquímico es ROJA y esto lo sabe todo Alquimista.
+No todos los TOROS sagrados eran negros o blancos; algunos eran ROJOS como los de Gerión y como los sacrificados por el Sacerdote Israelita, porque la PIEDRA FILOSOFAL, en cierto momento Alquímico es ROJA y esto lo sabe todo Alquimista.
 
-El famoso buey APIS, tan adorado en los MISTERIOS EGIP-CIOS, era el creador y el fiscal de las ALMAS. El buey APIS SIMBÓ-LICO fue consagrado a ISIS, porque de hecho se halla relacionado con la VACA SAGRADA, la MADRE DIVINA, ISIS, a quien ningún mortal ha levantado el velo.
+El famoso buey APIS, tan adorado en los MISTERIOS EGIPCIOS, era el creador y el fiscal de las ALMAS. El buey APIS SIMBÓLICO fue consagrado a ISIS, porque de hecho se halla relacionado con la VACA SAGRADA, la MADRE DIVINA, ISIS, a quien ningún mortal ha levantado el velo.
 
-Para que un buey tuviese el alto honor de ser ascendido a tal ca-tegoría, era preciso que fuese negro y tuviese en la frente o en una de las paletas, una mancha blanca en forma de creciente Lunar.
+Para que un buey tuviese el alto honor de ser ascendido a tal categoría, era preciso que fuese negro y tuviese en la frente o en una de las paletas, una mancha blanca en forma de creciente Lunar.
 
-Es también cierto y del todo verdad, que dicho buey sagrado deb-ía haber sido concebido bajo la impresión del rayo y tener bajo la lengua la marca del escarabajo sagrado.
+Es también cierto y del todo verdad, que dicho buey sagrado debía haber sido concebido bajo la impresión del rayo y tener bajo la lengua la marca del escarabajo sagrado.
 
-APIS era el SÍMBOLO de la LUNA, tanto a causa de sus cuernos en forma de creciente Lunar, cuanto porque durante, salvo el Pleni-lunio, este astro tiene siempre una parte tenebrosa indicada por el negro de la piel y otra resplandeciente, simbolizada por la mancha blanca.
+APIS era el SÍMBOLO de la LUNA, tanto a causa de sus cuernos en forma de creciente Lunar, cuanto porque durante, salvo el Plenilunio, este astro tiene siempre una parte tenebrosa indicada por el negro de la piel y otra resplandeciente, simbolizada por la mancha blanca.
 
-APIS es la MATERIA FILOSOFAL, el ENS SEMINIS (SEMEN), esa sustancia semisólida, semilíquida, ese VITRIOLO de los ALKI-MISTAS.
+APIS es la MATERIA FILOSOFAL, el ENS SEMINIS (SEMEN), esa sustancia semisólida, semilíquida, ese VITRIOLO de los ALKIMISTAS.
 
 Dentro del ENS SEMINIS se encuentra todo el ENS VIRTUTIS del FUEGO. Es necesario transformar la LUNA en SOL, es decir, fabricar los CUERPOS SOLARES.
 
-Estos son los MISTERIOS DE ISIS, los MISTERIOS del BUEY APIS. Cuando en el viejo Egipto de los FARAONES se estudiaba la RUNA IS, se analizaban sus dos aspectos. MASCULINO-FEMENINO, porque la SAGRADA PALABRA ISIS se descompone en dos sílabas IS-IS; la primera SÍLABA es MASCULINA y la segun-da es FEMENINA.
+Estos son los MISTERIOS DE ISIS, los MISTERIOS del BUEY APIS. Cuando en el viejo Egipto de los FARAONES se estudiaba la RUNA IS, se analizaban sus dos aspectos. MASCULINO-FEMENINO, porque la SAGRADA PALABRA ISIS se descompone en dos sílabas IS-IS; la primera SÍLABA es MASCULINA y la segunda es FEMENINA.
 
-El BUEY APIS es el BUEY de ISIS, la PIEDRA FILOSOFAL. El hombre y la mujer deben trabajar en su LABORATORIUM ORATO-RIUM con esa MATERIA FILOSOFAL, transformar a la LUNA en SOL.
+El BUEY APIS es el BUEY de ISIS, la PIEDRA FILOSOFAL. El hombre y la mujer deben trabajar en su LABORATORIUM ORATORIUM con esa MATERIA FILOSOFAL, transformar a la LUNA en SOL.
 
-Es URGENTE adquirir ese poder MÁGICO que se llama KRIYA-SHAKTI o de la VOLUNTAD y del YOGA, el poder Mágico de los HOMBRES SOLARES, el poder supremo de CREACIÓN, sin Gene-ración y esto sólo es posible con el MAITHUNA. (Véase capitulo ocho.)
+Es URGENTE adquirir ese poder MÁGICO que se llama KRIYA-SHAKTI o de la VOLUNTAD y del YOGA, el poder Mágico de los HOMBRES SOLARES, el poder supremo de CREACIÓN, sin Generación y esto sólo es posible con el MAITHUNA. (Véase capitulo ocho.)
 
 Es necesario aprender a combinar inteligentemente las aguas de la vida entre las dos ÁNFORAS de ACUARIO, el signo zodiacal del AGUADOR.
 
 Es indispensable combinar el ELÍXIR ROJO con el ELÍXIR BLANCO, si se quiere llegar al NACIMIENTO SEGUNDO.
 
-La LUNA simboliza a ISIS, la MADRE DIVINA, la PRAKRITI in-efable y el BUEY APIS representa LA MATERIA FILOSOFAL, la PIEDRA SAGRADA del ALKIMISTA.
+La LUNA simboliza a ISIS, la MADRE DIVINA, la PRAKRITI inefable y el BUEY APIS representa LA MATERIA FILOSOFAL, la PIEDRA SAGRADA del ALKIMISTA.
 
-En el Buey APIS está representada la LUNA, ISIS, la SUSTAN-CIA PRIMORDIAL, LA PIEDRA FILOSOFAL, el MAITHUNA.
+En el Buey APIS está representada la LUNA, ISIS, la SUSTANCIA PRIMORDIAL, LA PIEDRA FILOSOFAL, el MAITHUNA.
 
 ACUARIO está gobernado por URANO y este planeta controla las GLÁNDULAS SEXUALES. Resulta imposible llegar al NACIMIENTO SEGUNDO, al ADEPTADO, a la AUTORREALIZACION ÍNTIMA, si no estudiamos los MISTERIOS de ISIS, si despreciamos el culto al BUEY APIS, si no aprendemos a combinar el ELÍXIR ROJO con el ELIXIR BLANCO entre las dos ÁNFORAS de ACUARIO.
 
@@ -1916,41 +1942,41 @@ En la terminología Cristiana se habla de CUATRO CUERPOS humanos. El primero es 
 
 Hablando en lenguaje Teosófico, diremos que el primero es el CUERPO FÍSICO, el segundo es el CUERPO ASTRAL; el tercero es el CUERPO MENTAL; el cuarto es el CUERPO CAUSAL o CUERPO DE LA VOLUNTAD CONSCIENTE.
 
-Nuestros críticos se molestarán porque no citamos al LINGAM SARIRA o CUERPO VITAL, también llamado DOBLE ETÉRICO. Ciertamente no contamos tal CUERPO, debido al hecho concreto de que éste es sólo la sección superior de CUERPO FÍSICO, el asiento básico fundamental de todas las actividades físicas, químicas, calóri-cas, reproductivas, perceptivas, etc.
+Nuestros críticos se molestarán porque no citamos al LINGAM SARIRA o CUERPO VITAL, también llamado DOBLE ETÉRICO. Ciertamente no contamos tal CUERPO, debido al hecho concreto de que éste es sólo la sección superior de CUERPO FÍSICO, el asiento básico fundamental de todas las actividades físicas, químicas, calóricas, reproductivas, perceptivas, etc.
 
 El ANIMAL INTELECTUAL común y corriente NO NACE con el ASTRAL, ni con el MENTAL, ni mucho menos con el CUERPO CAUSAL; estos cuerpos sólo pueden cultivarse artificialmente en la FRAGUA ENCENDIDA DE VULCANO. (EL SEXO).
 
-EL CUERPO ASTRAL no es un IMPLEMENTO indispensable pa-ra el ANIMAL INTELECTUAL; es un lujo, un gran lujo que muy pocos pueden darse; sin embargo, el ANIMAL INTELECTUAL tiene un CUERPO MOLECULAR, un CUERPO DE DESEOS similar al CUERPO ASTRAL, pero de tipo LUNAR, frío, fantasmal, espectral.
+EL CUERPO ASTRAL no es un IMPLEMENTO indispensable para el ANIMAL INTELECTUAL; es un lujo, un gran lujo que muy pocos pueden darse; sin embargo, el ANIMAL INTELECTUAL tiene un CUERPO MOLECULAR, un CUERPO DE DESEOS similar al CUERPO ASTRAL, pero de tipo LUNAR, frío, fantasmal, espectral.
 
-El ANIMAL INTELECTUAL no tiene CUERPO MENTAL, pero po-see un vehículo intelectual animal, sutil, LUNAR, muy similar al CUERPO MENTAL, pero de naturaleza fría y fantasmal.
+El ANIMAL INTELECTUAL no tiene CUERPO MENTAL, pero posee un vehículo intelectual animal, sutil, LUNAR, muy similar al CUERPO MENTAL, pero de naturaleza fría y fantasmal.
 
-El ANIMAL INTELECTUAL no tiene CUERPO CAUSAL o CUER-PO DE LA VOLUNTAD consciente, pero tiene la ESENCIA, el BUD-HATA, el EMBRIÓN DE ALMA que fácilmente se confunde con el CUERPO CAUSAL.
+El ANIMAL INTELECTUAL no tiene CUERPO CAUSAL o CUERPO DE LA VOLUNTAD consciente, pero tiene la ESENCIA, el BUDHATA, el EMBRIÓN DE ALMA que fácilmente se confunde con el CUERPO CAUSAL.
 
-Los CUERPOS sutiles que LEADBEATER, ANNIE BESANT, STEINER y muchos otros clarividentes estudiaron en el pobre ANI-MAL INTELECTUAL común y corriente, son los vehículos LUNA-RES.
+Los CUERPOS sutiles que LEADBEATER, ANNIE BESANT, STEINER y muchos otros clarividentes estudiaron en el pobre ANIMAL INTELECTUAL común y corriente, son los vehículos LUNARES.
 
-Quien quiera llegar al NACIMIENTO SEGUNDO debe fabricarse los CUERPOS SOLARES, el auténtico CUERPO ASTRAL, el legíti-mo CUERPO MENTAL, el verdadero CUERPO CAUSAL o CUERPO DE LA VOLUNTAD CONSCIENTE.
+Quien quiera llegar al NACIMIENTO SEGUNDO debe fabricarse los CUERPOS SOLARES, el auténtico CUERPO ASTRAL, el legítimo CUERPO MENTAL, el verdadero CUERPO CAUSAL o CUERPO DE LA VOLUNTAD CONSCIENTE.
 
-Hay algo que puede sorprender a los estudiantes GNÓSTICOS: los CUERPOS ASTRAL, MENTAL y CAUSAL son de carne y hueso, y después de haber nacido de entre el vientre inmaculado de la MA-DRE DIVINA, necesitan alimento para su crecimiento y desarrollo.
+Hay algo que puede sorprender a los estudiantes GNÓSTICOS: los CUERPOS ASTRAL, MENTAL y CAUSAL son de carne y hueso, y después de haber nacido de entre el vientre inmaculado de la MADRE DIVINA, necesitan alimento para su crecimiento y desarrollo.
 
-Existen dos tipos de carne: la primera es carne que viene de ADAM; la segunda, es carne que NO viene de ADAM. Los CUER-POS SOLARES son de carne que no viene de ADAM.
+Existen dos tipos de carne: la primera es carne que viene de ADAM; la segunda, es carne que NO viene de ADAM. Los CUERPOS SOLARES son de carne que no viene de ADAM.
 
 Resulta interesante saber que el HIDRÓGENO SEXUAL SI-12, siempre cristaliza en carne y hueso. El cuerpo físico es de carne y hueso, y los cuerpos SOLARES son también de carne y hueso.
 
 El alimento básico del CUERPO FÍSICO es el HIDRÓGENO CUARENTA Y OCHO.
 
-El alimento fundamental del CUERPO ASTRAL es el HIDRÓGE-NO VEINTICUATRO.
+El alimento fundamental del CUERPO ASTRAL es el HIDRÓGENO VEINTICUATRO.
 
-El alimento indispensable del cuerpo MENTAL es el HIDRÓGE-NO DOCE.
+El alimento indispensable del cuerpo MENTAL es el HIDRÓGENO DOCE.
 
 El alimento vital del CUERPO CAUSAL es el HIDRÓGENO SEIS.
 
 Todos los MAESTROS de la LOGIA BLANCA, ÁNGELES, ARCÁNGELES, TRONOS, SERAFINES, VIRTUDES, etc., etc., etc., están vestidos con CUERPOS SOLARES.
 
-Sólo aquellos que tienen CUERPOS SOLARES tiene ENCAR-NADO al SER. Sólo aquel que posee el SER es HOMBRE de VER-DAD.
+Sólo aquellos que tienen CUERPOS SOLARES tiene ENCARNADO al SER. Sólo aquel que posee el SER es HOMBRE de VERDAD.
 
-El CUERPO FÍSICO está controlado por cuarenta y ocho leyes, el CUERPO ASTRAL está gobernado por veinticuatro leyes, el CUER-PO MENTAL está dominado por doce leyes; el CUERPO CAUSAL depende de seis Leyes.
+El CUERPO FÍSICO está controlado por cuarenta y ocho leyes, el CUERPO ASTRAL está gobernado por veinticuatro leyes, el CUERPO MENTAL está dominado por doce leyes; el CUERPO CAUSAL depende de seis Leyes.
 
-Es URGENTE bajar a la FRAGUA ENCENDIDA de VULCANO (EL SEXO), para trabajar con el fuego y el agua, origen de mundos, bestias, hombres y DIOSES; es urgente descender a la novena esfe-ra para fabricar los CUERPOS SOLARES y lograr el NACIMIENTO SEGUNDO.
+Es URGENTE bajar a la FRAGUA ENCENDIDA de VULCANO (EL SEXO), para trabajar con el fuego y el agua, origen de mundos, bestias, hombres y DIOSES; es urgente descender a la novena esfera para fabricar los CUERPOS SOLARES y lograr el NACIMIENTO SEGUNDO.
 
 Causa dolor saber que muchos que presumen de MAESTROS y SANTOS, todavía están vestidos con CUERPOS LUNARES.
 
@@ -1958,29 +1984,29 @@ Causa dolor saber que muchos que presumen de MAESTROS y SANTOS, todavía están 
 
 Se equivoca rotundamente el CONDE GABALIS al decir que las SALAMANDRAS, GNOMOS, SILFOS, NINFAS, necesiten casarse con un hombre para hacerse inmortales.
 
-Es estúpida la afirmación del CONDE GABALIS al decir que no-sotros necesitamos la renunciación por completo a las mujeres para entregarnos a la inmortalización de SÍLFIDES Y NINFAS.
+Es estúpida la afirmación del CONDE GABALIS al decir que nosotros necesitamos la renunciación por completo a las mujeres para entregarnos a la inmortalización de SÍLFIDES Y NINFAS.
 
 Los ELEMENTALES de los ELEMENTOS, de las plantas, de los minerales, animales, serán los hombres del futuro sin necesidad del inmundo coito recomendado por el CONDE GABALIS.
 
 Es lástima que muchos MÉDIUMS del espiritismo estén casados con ELEMENTALES y que muchas personas durante el sueño co-habiten con ÍNCUBOS, SÚBCUBOS y ELEMENTALES de todo tipo.
 
-Los MUNDOS INTERNOS están llenos de toda clase de criatu-ras, algunas buenas, otras malas, otras indiferentes.
+Los MUNDOS INTERNOS están llenos de toda clase de criaturas, algunas buenas, otras malas, otras indiferentes.
 
 Los DEVAS o ÁNGELES, jamás son inferiores al HOMBRE. Los DEVAS o ÁNGELES son HOMBRES SOLARES VERDADEROS y eso es todo. Los DEVAS o ÁNGELES son dos VECES NACIDOS.
 
-Para los Chinos, las dos clases más elevadas de habitantes invi-sibles son los THIEN de naturaleza totalmente celeste y los THI, THU o intermediarios.
+Para los Chinos, las dos clases más elevadas de habitantes invisibles son los THIEN de naturaleza totalmente celeste y los THI, THU o intermediarios.
 
-En los desfiladeros de KUEN-LUN, la región central de la tierra o MONTES LUNARES, la tradición ha colocado todo un mundo extra-ño y misterioso gobernado por DIOSES.
+En los desfiladeros de KUEN-LUN, la región central de la tierra o MONTES LUNARES, la tradición ha colocado todo un mundo extraño y misterioso gobernado por DIOSES.
 
 Esos SERES DIVINOS son los KO-HAN o LOHANES DIOSES GOBERNADORES de millones de criaturas.
 
-Los THI visten ropaje amarillo y habitan en criptas o cavernas subterráneas; se alimentan de sésamo, coriandro y otras flores y fru-tos del árbol de la vida; son DOS VECES NACIDOS, estudian la ALQUIMIA, BOTÁNICA OCULTA, la PIEDRA FILOSOFAL a la ma-nera del MAESTRO ZANONI y su SABIO COMPAÑERO, el GRAN MEJNOUR.
+Los THI visten ropaje amarillo y habitan en criptas o cavernas subterráneas; se alimentan de sésamo, coriandro y otras flores y frutos del árbol de la vida; son DOS VECES NACIDOS, estudian la ALQUIMIA, BOTÁNICA OCULTA, la PIEDRA FILOSOFAL a la manera del MAESTRO ZANONI y su SABIO COMPAÑERO, el GRAN MEJNOUR.
 
-Una tercera clase de habitantes invisible son los fabulosos SHEN o SHAIN, nacidos aquí abajo en el mundo SUBLUNAR, ya para tra-bajar para el bien, ya para pagar su vicio KARMA ANCESTRAL
+Una tercera clase de habitantes invisible son los fabulosos SHEN o SHAIN, nacidos aquí abajo en el mundo SUBLUNAR, ya para trabajar para el bien, ya para pagar su vicio KARMA ANCESTRAL
 
-La cuarta clase de habitantes de los mundos internos citados por los CHINOS, son los TENEBROSOS MAHA-SHAN, gigantes hechi-ceros de la MAGIA NEGRA.
+La cuarta clase de habitantes de los mundos internos citados por los CHINOS, son los TENEBROSOS MAHA-SHAN, gigantes hechiceros de la MAGIA NEGRA.
 
-Los seres más raros y más incomprensibles son los terribles MA-RUT o TURAM; seres mencionados por el RIG VEDA, legiones de HANASMUSSIANOS; esta palabra se pronuncia con j, así: JANAS-MUSSIANOS.
+Los seres más raros y más incomprensibles son los terribles MA-RUT o TURAM; seres mencionados por el RIG VEDA, legiones de HANASMUSSIANOS; esta palabra se pronuncia con j, así: JANASMUSSIANOS.
 
 Estas legiones constan de trescientas cuarenta y tres familias, aun cuando ciertos cálculos elevan la cantidad a 823 ó 543 familias.
 
@@ -1988,67 +2014,67 @@ Es lamentable que estos HANASMUSSEN sean adorados por ciertos musulmanes y BRAHM
 
 Los HANASMUSSIANOS tienen, como ya dijimos en el capítulo nueve de este libro, dos personalidades; una ANGÉLICA y otra DIABÓLICA.
 
-Es claro que la PERSONALIDAD SOLAR, ANGÉLICA, de un HANASMUSSIANO, jamás se aviene a instruir candidato alguno a la INICIACIÓN, sin antes decirle con entera FRANQUEZA: «GUÁRDA-TE, NOSOTROS SOMOS LA TENTACIÓN QUE PUEDE CONVER-TIRSE EN UN INFIEL».
+Es claro que la PERSONALIDAD SOLAR, ANGÉLICA, de un HANASMUSSIANO, jamás se aviene a instruir candidato alguno a la INICIACIÓN, sin antes decirle con entera FRANQUEZA: «GUÁRDATE, NOSOTROS SOMOS LA TENTACIÓN QUE PUEDE CONVERTIRSE EN UN INFIEL».
 
-Sabe muy bien la PERSONALIDAD SOLAR de todo MARUT o TURAM, HANASMUSSIANO, que posee otra PERSONALIDAD LU-NAR, DIABÓLICA, TENEBROSA, capaz de desviar al candidato a la INICIACIÓN.
+Sabe muy bien la PERSONALIDAD SOLAR de todo MARUT o TURAM, HANASMUSSIANO, que posee otra PERSONALIDAD LUNAR, DIABÓLICA, TENEBROSA, capaz de desviar al candidato a la INICIACIÓN.
 
-Ante todo dos veces NACIDO se abren dos caminos, el de la de-recha y el de la siniestra.
+Ante todo dos veces NACIDO se abren dos caminos, el de la derecha y el de la siniestra.
 
-El de la derecha es el de aquellos que se resuelven a MORIR DE MOMENTO EN MOMENTO, el de aquellos que DISUELVEN EL YO. El de la SINIESTRA es el camino negro, camino de aquellos que en vez de MORIR DE MOMENTO EN MOMENTO, en vez de DISOL-VER EL YO, lo FORTIFICAN entre los CUERPOS LUNARES. Quie-nes se van por el camino de la mano izquierda, se convierte en MA-RUT o TURAM, es decir, en HANASMUSSIANOS.
+El de la derecha es el de aquellos que se resuelven a MORIR DE MOMENTO EN MOMENTO, el de aquellos que DISUELVEN EL YO. El de la SINIESTRA es el camino negro, camino de aquellos que en vez de MORIR DE MOMENTO EN MOMENTO, en vez de DISOLVER EL YO, lo FORTIFICAN entre los CUERPOS LUNARES. Quienes se van por el camino de la mano izquierda, se convierte en MA-RUT o TURAM, es decir, en HANASMUSSIANOS.
 
 Quienes quieran llegar a la LIBERACIÓN FINAL, deben MORIR de MOMENTO en MOMENTO. Sólo MURIENDO EL Mí MISMO nos convertimos en ÁNGELES PERFECTOS.
 
-Existen tres clases de TANTRISMO, BLANCO, NEGRO Y GRIS. MAITHUNA con eyaculación del ENS SEMINIS, es NEGRO. MAIT-HUNA a veces con eyaculación del ENS SEMINIS y a veces sin eyaculación, es GRIS.
+Existen tres clases de TANTRISMO, BLANCO, NEGRO Y GRIS. MAITHUNA con eyaculación del ENS SEMINIS, es NEGRO. MAITHUNA a veces con eyaculación del ENS SEMINIS y a veces sin eyaculación, es GRIS.
 
 Con MAITHUNA sin eyaculación sube DEVI KUNDALINI por el canal medular para desarrollar poderes Divinos y convertirnos en ÁNGELES.
 
-Con MAITHUNA con EYACULACIÓN la SERPIENTE ÍGNEA DE NUESTROS MÁGICOS PODERES, en vez de subir, baja. se precipi-ta desde el hueso COXÍGEO, hacia los infiernos atómicos del hom-bre, convirtiéndose en la COLA DE SATÁN.
+Con MAITHUNA con EYACULACIÓN la SERPIENTE ÍGNEA DE NUESTROS MÁGICOS PODERES, en vez de subir, baja. se precipita desde el hueso COXÍGEO, hacia los infiernos atómicos del hombre, convirtiéndose en la COLA DE SATÁN.
 
 MAITHUNA con eyaculación a veces y sin eyaculación a veces, es algo incoherente, morboso, bestial, que sólo sirve para fortalecer al EGO LUNAR.
 
-Los TANTRICOS NEGROS desarrollan el ABOMINABLE ÓRGA-NO KUNDARTIGUADOR. Es necesario saber que dicho ÓRGANO FATAL es la misma COLA DE SATÁN.
+Los TANTRICOS NEGROS desarrollan el ABOMINABLE ÓRGANO KUNDARTIGUADOR. Es necesario saber que dicho ÓRGANO FATAL es la misma COLA DE SATÁN.
 
-En tiempos que se pierden en la noche profunda de todas las edades, el pobre ANIMAL INTELECTUAL comprendió su triste situa-ción de maquinita necesaria para la economía de la naturaleza y de-seó morir; fue entonces necesaria la intervención de ciertos INDIVI-DUOS SAGRADOS que cometieron el error de darle a este triste hormiguero humano, el abominable ÓRGANO KUNDARTIGUADOR.
+En tiempos que se pierden en la noche profunda de todas las edades, el pobre ANIMAL INTELECTUAL comprendió su triste situación de maquinita necesaria para la economía de la naturaleza y deseó morir; fue entonces necesaria la intervención de ciertos INDIVIDUOS SAGRADOS que cometieron el error de darle a este triste hormiguero humano, el abominable ÓRGANO KUNDARTIGUADOR.
 
-Cuando el ANIMAL INTELECTUAL olvidó su triste situación de MAQUINITA y se enamoró de las bellezas de este mundo, el ABO-MINABLE ÓRGANO KUNDARTIGUADOR fue eliminado; desgracia-damente las malas consecuencias de dicho órgano fue algo que no se pudo olvidar, quedaron depositadas en los cinco cilindros de la máquina.
+Cuando el ANIMAL INTELECTUAL olvidó su triste situación de MAQUINITA y se enamoró de las bellezas de este mundo, el ABOMINABLE ÓRGANO KUNDARTIGUADOR fue eliminado; desgraciadamente las malas consecuencias de dicho órgano fue algo que no se pudo olvidar, quedaron depositadas en los cinco cilindros de la máquina.
 
-El primer cilindro es el del INTELECTO y se encuentra en el CE-REBRO; el segundo es el de las EMOCIONES y reside en el PLEXO SOLAR, a la altura del ombligo; el tercero es el del MOVIMIENTO y radica en la parte SUPERIOR DE LA ESPINA DORSAL; el cuarto es el del INSTINTO, y se encuentra en la parte INFERIOR DE LA ES-PINA DORSAL; el quinto es el del SEXO y reside en los órganos SEXUALES.
+El primer cilindro es el del INTELECTO y se encuentra en el CEREBRO; el segundo es el de las EMOCIONES y reside en el PLEXO SOLAR, a la altura del ombligo; el tercero es el del MOVIMIENTO y radica en la parte SUPERIOR DE LA ESPINA DORSAL; el cuarto es el del INSTINTO, y se encuentra en la parte INFERIOR DE LA ESPINA DORSAL; el quinto es el del SEXO y reside en los órganos SEXUALES.
 
-Las malas consecuencias del ABOMINABLE ÓRGANO KUN-DARTIGUADOR están representadas por millares y millones de pe-queños YOES de tipo animal y perverso.
+Las malas consecuencias del ABOMINABLE ÓRGANO KUNDARTIGUADOR están representadas por millares y millones de pequeños YOES de tipo animal y perverso.
 
-En el ANIMAL INTELECTUAL no existe un centro único de co-mando, ni un YO o EGO permanente. Cada IDEA, cada sentimiento, cada sensación, cada deseo, cada YO DESEO tal cosa, YO DESEO TAL OTRA COSA, YO AMO, YO NO AMO, es un YO diferente.
+En el ANIMAL INTELECTUAL no existe un centro único de comando, ni un YO o EGO permanente. Cada IDEA, cada sentimiento, cada sensación, cada deseo, cada YO DESEO tal cosa, YO DESEO TAL OTRA COSA, YO AMO, YO NO AMO, es un YO diferente.
 
-Todos estos pequeños y pendencieros YOES riñen entre sí, se pelean por la supremacía, no están ligados entre sí, ni coordinados de modo alguno. Cada uno de estos pequeños YOES depende de los cambios de circunstancias de la vida y de los cambios de impre-siones.
+Todos estos pequeños y pendencieros YOES riñen entre sí, se pelean por la supremacía, no están ligados entre sí, ni coordinados de modo alguno. Cada uno de estos pequeños YOES depende de los cambios de circunstancias de la vida y de los cambios de impresiones.
 
-Cada pequeño YO tiene sus propias ideas, su propio criterio, no existe verdadera INDIVIDUALIDAD en el pobre ANIMAL INTELEC-TUAL, su concepto, sus actos, sus ideas, dependen del YO que en esos momentos domine la situación.
+Cada pequeño YO tiene sus propias ideas, su propio criterio, no existe verdadera INDIVIDUALIDAD en el pobre ANIMAL INTELECTUAL, su concepto, sus actos, sus ideas, dependen del YO que en esos momentos domine la situación.
 
-Cuando un YO se entusiasma por la GNOSIS, jura lealtad eterna a nuestro MOVIMIENTO GNÓSTICO; este entusiasmo dura hasta que otro YO que es contrario a estos estudios, se adueña del poder, después vemos con asombro que el sujeto se retira y hasta se vuel-ve enemigo nuestro.
+Cuando un YO se entusiasma por la GNOSIS, jura lealtad eterna a nuestro MOVIMIENTO GNÓSTICO; este entusiasmo dura hasta que otro YO que es contrario a estos estudios, se adueña del poder, después vemos con asombro que el sujeto se retira y hasta se vuelve enemigo nuestro.
 
 El YO que hoy jura AMOR ETERNO a una mujer, es después desplazado por otro YO que nada tiene que ver con tal juramento y entonces la mujer sufre la decepción.
 
 Tal YO sigue automáticamente a tal otro y algunos aparecen siempre acompañados de otros, pero no existe entre todos esos YOES ningún orden ni sistema.
 
-Cada uno de esos YOES cree en un momento dado ser el todo, pero no es realmente más que una íntima parte de nuestras funcio-nes, aun cuando él tenga la impresión de ser la totalidad, la realidad, el hombre completo.
+Cada uno de esos YOES cree en un momento dado ser el todo, pero no es realmente más que una íntima parte de nuestras funciones, aun cuando él tenga la impresión de ser la totalidad, la realidad, el hombre completo.
 
-Lo curioso es que nosotros damos crédito al YO de un momento, aun cuando momentos después ese YO sea desplazado por otro YO. EL EGO LUNAR es una suma de YOES que deben ser elimina-dos en forma radical.
+Lo curioso es que nosotros damos crédito al YO de un momento, aun cuando momentos después ese YO sea desplazado por otro YO. EL EGO LUNAR es una suma de YOES que deben ser eliminados en forma radical.
 
-Es necesario saber que cada uno de los cinco cilindros de la máquina posee sus características propias que jamás debemos con-fundir.
+Es necesario saber que cada uno de los cinco cilindros de la máquina posee sus características propias que jamás debemos confundir.
 
-Entre los cinco centros de la máquina existen diferencias de velo-cidad.
+Entre los cinco centros de la máquina existen diferencias de velocidad.
 
-La gente alaba mucho al pensamiento, pero en realidad de ver-dad el CENTRO INTELECTUAL es el más lento. Después, aun cuando mucho más rápido, vienen los CENTROS INSTINTIVO y del MOVIMIENTO o MOTOR, que tienen más o menos la misma veloci-dad. El más rápido de todos es el CENTRO SEXUAL, y le sigue en orden de rapidez, el CENTRO EMOCIONAL Existe enorme diferencia de velocidades entre cada uno de los cinco CENTROS de la máquina.
+La gente alaba mucho al pensamiento, pero en realidad de verdad el CENTRO INTELECTUAL es el más lento. Después, aun cuando mucho más rápido, vienen los CENTROS INSTINTIVO y del MOVIMIENTO o MOTOR, que tienen más o menos la misma velocidad. El más rápido de todos es el CENTRO SEXUAL, y le sigue en orden de rapidez, el CENTRO EMOCIONAL Existe enorme diferencia de velocidades entre cada uno de los cinco CENTROS de la máquina.
 
 Estudiando en nosotros mismos auto-observándonos, veremos a simple vista que el MOVIMIENTO es más veloz que el pensamiento y que la emoción es más rápida que cualquier movimiento y que todo pensamiento.
 
-Los centros MOTOR e INSTINTIVO son TREINTA MIL veces más rápidos que el CENTRO INTELECTUAL. El CENTRO EMOCIONAL cuando trabaja a la velocidad que le es propia, es TREINTA MIL ve-ces más rápido que los centros MOTOR e INSTINTIVO.
+Los centros MOTOR e INSTINTIVO son TREINTA MIL veces más rápidos que el CENTRO INTELECTUAL. El CENTRO EMOCIONAL cuando trabaja a la velocidad que le es propia, es TREINTA MIL veces más rápido que los centros MOTOR e INSTINTIVO.
 
-Los diversos CENTROS tienen cada uno su TIEMPO completa-mente distinto. La velocidad de los centros explica gran número de fenómenos bien conocidos que la ciencia ordinaría común y corriente no puede explicar; basta recordar la asombrosa velocidad de ciertos procesos psicológicos, fisiológicos y mentales.
+Los diversos CENTROS tienen cada uno su TIEMPO completamente distinto. La velocidad de los centros explica gran número de fenómenos bien conocidos que la ciencia ordinaría común y corriente no puede explicar; basta recordar la asombrosa velocidad de ciertos procesos psicológicos, fisiológicos y mentales.
 
-Todo CENTRO está dividido en dos partes: positiva y negativa; esta división es particularmente clara para el CENTRO INTELEC-TUAL y para el CENTRO INSTINTIVO.
+Todo CENTRO está dividido en dos partes: positiva y negativa; esta división es particularmente clara para el CENTRO INTELECTUAL y para el CENTRO INSTINTIVO.
 
 Todo el trabajo del CENTRO INTELECTUAL se divide en dos partes: AFIRMACIÓN y NEGACIÓN; SÍ y NO, TESIS y ANTÍTESIS.
 
-En el CENTRO INSTINTIVO existe la misma lucha entre lo agra-dable y lo desagradable; sensaciones agradables, sensaciones des-agradables y todas esas sensaciones están relacionadas con los cinco sentidos: ver, oír, oler, gustar, palpar.
+En el CENTRO INSTINTIVO existe la misma lucha entre lo agradable y lo desagradable; sensaciones agradables, sensaciones desagradables y todas esas sensaciones están relacionadas con los cinco sentidos: ver, oír, oler, gustar, palpar.
 
 En el CENTRO MOTOR o del MOVIMIENTO, existe lucha entre el MOVIMIENTO y el REPOSO.
 
@@ -2056,35 +2082,35 @@ En el CENTRO EMOCIONAL existen emociones agradables y desagradables: la alegría
 
 Las EMOCIONES desagradables, tales como el aburrimiento, los celos, la envidia, la cólera, la irritabilidad, el miedo, son negativas totalmente.
 
-En el CENTRO SEXUAL existe la atracción y la repulsión, la cas-tidad y la lujuria en eterno conflicto.
+En el CENTRO SEXUAL existe la atracción y la repulsión, la castidad y la lujuria en eterno conflicto.
 
-El ANIMAL INTELECTUAL sacrifica sus placeres si es necesario, pero resulta incapaz de sacrificar sus propios sufrimientos. Quien quiera DISOLVER EL YO PLURALIZADO, debe sacrificar sus propios sufrimientos. Los CELOS producen sufrimientos, si ani-quilamos los celos, muere el sufrimiento, es sacrificado el dolor.
+El ANIMAL INTELECTUAL sacrifica sus placeres si es necesario, pero resulta incapaz de sacrificar sus propios sufrimientos. Quien quiera DISOLVER EL YO PLURALIZADO, debe sacrificar sus propios sufrimientos. Los CELOS producen sufrimientos, si aniquilamos los celos, muere el sufrimiento, es sacrificado el dolor.
 
 La IRA produce DOLOR; si acabamos con la IRA sacrificamos el DOLOR, lo destruimos.
 
-Es necesario AUTO-OBSERVARNOS de momento en momento; el YO PLURALIZADO trabaja en cada uno de los CINCO CENTROS DE LA MÁQUINA. A veces es un YO del CENTRO EMOCIONAL quien reacciona colérico o celoso o envidioso, a veces los prejuicios y calumnias del centro intelectual con toda su furia, atacan violenta-mente, otras los perversos hábitos equivocados nos llevan al fraca-so, etc., etc., etc.
+Es necesario AUTO-OBSERVARNOS de momento en momento; el YO PLURALIZADO trabaja en cada uno de los CINCO CENTROS DE LA MÁQUINA. A veces es un YO del CENTRO EMOCIONAL quien reacciona colérico o celoso o envidioso, a veces los prejuicios y calumnias del centro intelectual con toda su furia, atacan violentamente, otras los perversos hábitos equivocados nos llevan al fracaso, etc., etc., etc.
 
 Cada CENTRO tiene CUARENTA Y NUEVE regiones SUB-CONSCIENTES y en cada una de esas regiones viven millones de YOES que necesitamos DESCUBRIR a través de la MEDITACIÓN de fondo.
 
-Cuando nos AUTO-DESCUBRIMOS, cuando nos hacemos CONSCIENTES de las actividades del YO en los cinco centros de la máquina y en las cuarenta y nueve regiones subconscientes, enton-ces DESPERTAMOS CONCIENCIA.
+Cuando nos AUTO-DESCUBRIMOS, cuando nos hacemos CONSCIENTES de las actividades del YO en los cinco centros de la máquina y en las cuarenta y nueve regiones subconscientes, entonces DESPERTAMOS CONCIENCIA.
 
-Hacerse consciente de todo el PROCESO del YO en los cinco ci-lindros de la máquina, es volver CONSCIENTE al SUBCONSCIEN-TE.
+Hacerse consciente de todo el PROCESO del YO en los cinco cilindros de la máquina, es volver CONSCIENTE al SUBCONSCIENTE.
 
 Resulta imposible eliminar los diferentes YOES si antes no los hemos COMPRENDIDO CONSCIENTEMENTE en las cuarenta y nueve regiones SUBCONSCIENTES.
 
-Podemos trabajar con PROSERPINA la REINA de los INFIER-NOS eliminando YOES, a condición de comprender primero el defec-to que queremos extirpar. (Véase Capítulo Ocho).
+Podemos trabajar con PROSERPINA la REINA de los INFIERNOS eliminando YOES, a condición de comprender primero el defecto que queremos extirpar. (Véase Capítulo Ocho).
 
-PROSERPINA sólo elimina los YOES que personifican los defec-tos que hemos comprendido en forma INTEGRA.
+PROSERPINA sólo elimina los YOES que personifican los defectos que hemos comprendido en forma INTEGRA.
 
-Es imposible llegar al ATMA-VIDYA sin antes habernos CONO-CIDO a sí mismos.
+Es imposible llegar al ATMA-VIDYA sin antes habernos CONOCIDO a sí mismos.
 
-NOSCETE IPSUM; hombre CONÓCETE a TI MISMO y cono-cerás al universo y a los DIOSES.
+NOSCETE IPSUM; hombre CONÓCETE a TI MISMO y conocerás al universo y a los DIOSES.
 
-Conocer la actividad de los cinco cilindros de la máquina en todos los cuarenta y nueve pasillos o regiones SUBCONSCIENTES de JALDABAOTH, significa CONOCERSE a Sí MISMO, volver CONS-CIENTE el SUBCONSCIENTE, AUTO DESCUBRIRNOS.
+Conocer la actividad de los cinco cilindros de la máquina en todos los cuarenta y nueve pasillos o regiones SUBCONSCIENTES de JALDABAOTH, significa CONOCERSE a Sí MISMO, volver CONSCIENTE el SUBCONSCIENTE, AUTO DESCUBRIRNOS.
 
 Quien quiera subir debe primero bajar. Quien quiera el ATMA-VIDYA debe primero bajar a sus propios infiernos atómicos, el error de muchos estudiantes de OCULTISMO es querer primero SUBIR sin antes haber bajado.
 
-En convivencia con las gentes afloran espontáneamente nuestros defectos, y si estamos ALERTAS, descubrimos de qué CENTRO proceden, entonces por medio de la MEDITACIÓN los descubrire-mos en todas y cada una de las cuarenta y nueve regiones SUB-CONSCIENTES.
+En convivencia con las gentes afloran espontáneamente nuestros defectos, y si estamos ALERTAS, descubrimos de qué CENTRO proceden, entonces por medio de la MEDITACIÓN los descubriremos en todas y cada una de las cuarenta y nueve regiones SUB-CONSCIENTES.
 
 SÓLO MURIENDO EL YO en forma total, alcanzamos el ATMA-VIDYA, LA ILUMINACIÓN ABSOLUTA. ***SACRIFICIO***
 
@@ -2092,71 +2118,73 @@ EL SACRIFICIO SATTVICO se hace según los MANDAMIENTOS DIVINOS, concentrándose 
 
 EL SACRIFICIO RAYASICO se hace por tentación y deseando los frutos.
 
-El SACRIFICO TAMÁSICO se hace siempre contra los manda-mientos, sin FE, sin los MANTRAM, sin caridad para con nadie, sin AMOR a la humanidad, sin ofrecer el óbolo sagrado a los SACER-DOTES o Gurús, etc., etc., etc.
+El SACRIFICO TAMÁSICO se hace siempre contra los mandamientos, sin FE, sin los MANTRAM, sin caridad para con nadie, sin AMOR a la humanidad, sin ofrecer el óbolo sagrado a los SACERDOTES o Gurús, etc., etc., etc.
 
-El tercer factor de la REVOLUCIÓN de la CONCIENCIA es el SACRIFICIO, pero el SACRIFICIO SATTVICO, sin desear el fruto de la acción, sin desear recompensa; sacrificio desinteresado, puro, sincero, dando su vida para que otros vivan y sin pedir nada en re-compensa.
+El tercer factor de la REVOLUCIÓN de la CONCIENCIA es el SACRIFICIO, pero el SACRIFICIO SATTVICO, sin desear el fruto de la acción, sin desear recompensa; sacrificio desinteresado, puro, sincero, dando su vida para que otros vivan y sin pedir nada en recompensa.
 
 El lector debe volver a estudiar la lección de VIRGO, capítulo seis, para que comprenda bien lo que son las tres GUNAS de la PRAKRITI, llamadas SATTVA, RAJAS y TAMO.
 
-La LEY del LOGOS SOLAR es sacrificio. El se crucifica en el amanecer de la vida en todo nuevo mundo que surge del CAOS, pa-ra que todos los seres tengan VIDA y la tengan en abundancia. Todo aquel que ha llegado al NACIMIENTO SEGUNDO, debe SACRIFICARSE por la humanidad, levantar la antorcha bien en alto para enseñar a otros el camino que conduce a la LUZ.
+La LEY del LOGOS SOLAR es sacrificio. El se crucifica en el amanecer de la vida en todo nuevo mundo que surge del CAOS, para que todos los seres tengan VIDA y la tengan en abundancia. Todo aquel que ha llegado al NACIMIENTO SEGUNDO, debe SACRIFICARSE por la humanidad, levantar la antorcha bien en alto para enseñar a otros el camino que conduce a la LUZ.
 
-Aquel que se SACRIFICA por la humanidad, alcanza la INICIA-CIÓN VENUSTA. Es urgente saber que la INICIACIÓN VENUSTA es la ENCARNACIÓN del CRISTO en el hombre.
+Aquel que se SACRIFICA por la humanidad, alcanza la INICIACIÓN VENUSTA. Es urgente saber que la INICIACIÓN VENUSTA es la ENCARNACIÓN del CRISTO en el hombre.
 
 Quien ENCARNA AL CRISTO en Sí MISMO, tiene que vivir todo el DRAMA CÓSMICO.
 
-LA INICIACIÓN VENUSTA tiene SIETE grados, comienza con el acontecimiento de BELÉN y termina con la MUERTE y la RESU-RRECCIÓN del SEÑOR.
+LA INICIACIÓN VENUSTA tiene SIETE grados, comienza con el acontecimiento de BELÉN y termina con la MUERTE y la RESURRECCIÓN del SEÑOR.
 
 Quien alcanza la INICIACIÓN VENUSTA se convierte en un CRISTO también. Sólo con los tres factores de la REVOLUCIÓN de la conciencia se llega a la INICIACIÓN VENUSTA.
 
-PRÁCTICA: El signo de ACUARIO gobierna las pantorrillas. Los brasileños llaman a las pantorrillas “VENTRE DAS PERNAS”, “VIENTRE DE LAS PIERNAS”, y no se equivocan, porque seriamen-te las pantorrillas son un vientre magnético maravilloso.
+PRÁCTICA: El signo de ACUARIO gobierna las pantorrillas. Los brasileños llaman a las pantorrillas “VENTRE DAS PERNAS”, “VIENTRE DE LAS PIERNAS”, y no se equivocan, porque seriamente las pantorrillas son un vientre magnético maravilloso.
 
-Las fuerzas que suben de la tierra después de pasar por el ceda-zo de los pies, llegan a las pantorrillas en su camino ascendente y allí se encuentran con las fuerzas que descienden de arriba del cielo, de URANO.
+Las fuerzas que suben de la tierra después de pasar por el cedazo de los pies, llegan a las pantorrillas en su camino ascendente y allí se encuentran con las fuerzas que descienden de arriba del cielo, de URANO.
 
-Las fuerzas que suben y las que bajan, en su encuentro magneti-zan en forma intensa a las pantorrillas; por eso éstas realmente se encuentran cargadas de EROTISMO.
+Las fuerzas que suben y las que bajan, en su encuentro magnetizan en forma intensa a las pantorrillas; por eso éstas realmente se encuentran cargadas de EROTISMO.
 
-Ahora nos explicaremos por qué los ANIMALES INTELECTUA-LES se sienten tan atraídos por las pantorrillas bien formadas de las mujeres.
+Ahora nos explicaremos por qué los ANIMALES INTELECTUALES se sienten tan atraídos por las pantorrillas bien formadas de las mujeres.
 
-Durante el signo de ACUARIO los discípulos y discípulas deben hacer pases magnéticos con sus dos manos sobre sus pantorrillas desde abajo hacia arriba, con el propósito de magnetizar poderosa-mente las pantorrillas, con el vivo anhelo de cargarse con las fuerzas extraordinarias de la CONSTELACIÓN DE ACUARIO.
+Durante el signo de ACUARIO los discípulos y discípulas deben hacer pases magnéticos con sus dos manos sobre sus pantorrillas desde abajo hacia arriba, con el propósito de magnetizar poderosamente las pantorrillas, con el vivo anhelo de cargarse con las fuerzas extraordinarias de la CONSTELACIÓN DE ACUARIO.
 
 Estos pases magnéticos deben combinarse con la siguiente ORACIÓN: «FUERZA PASA, FUERZA PASA, FUERZA PASA, PENETRA
 
-EN Mi ORGANISMO, ASCIENDE A UNIRTE CON TU HERMANA, LA CORRIENTE QUE VIENE DE ARRIBA, DEL CIELO, DE URA-NO».
+EN Mi ORGANISMO, ASCIENDE A UNIRTE CON TU HERMANA, LA CORRIENTE QUE VIENE DE ARRIBA, DEL CIELO, DE URANO».
 
-URANO y SATURNO son los planetas que gobiernan a la conste-lación de ACUARIO. URANO es un planeta totalmente REVOLU-CIONARIO.
+URANO y SATURNO son los planetas que gobiernan a la constelación de ACUARIO. URANO es un planeta totalmente REVOLUCIONARIO.
 
 Entre los minerales de ACUARIO se destaca especialmente el URANIO y el PLOMO.
 
 Piedra de ACUARIO, el ZAFIRO, también la PERLA NEGRA, por cierto muy difícil de encontrar, mas no imposible.
 
-A las mujeres de ACUARIO no podemos aconsejarles que se ca-sen jamás con un hombre TAURINO, porque serán desgraciadas toda su vida.
+A las mujeres de ACUARIO no podemos aconsejarles que se casen jamás con un hombre TAURINO, porque serán desgraciadas toda su vida.
 
-Los nativos de ACUARIO tienen gran disposición para las cien-cias naturales, medicina, química, botánica, Astrología, Biología, As-tronomía, etc., etc.
+Los nativos de ACUARIO tienen gran disposición para las ciencias naturales, medicina, química, botánica, Astrología, Biología, Astronomía, etc., etc.
 
 Los nativos de ACUARIO son cada uno REVOLUCIONARIO a su modo, en su vida, en sus costumbres, en su casa, fuera de su casa, etc., etc., etc.
 
-Los nativos de ACUARIO se destacan como paladines, algunos en grande, otros en pequeño, pero todos tienen una marcada ten-dencia a ser paladines.
+Los nativos de ACUARIO se destacan como paladines, algunos en grande, otros en pequeño, pero todos tienen una marcada tendencia a ser paladines.
 
-ACUARIO es el signo del GENIO, donde SATURNO, el anciano de los cielos, aporta la profundidad que le caracteriza y URANO el planeta REVOLUCIONARIO lanza sus rayos sobre la humana espe-cie.
+ACUARIO es el signo del GENIO, donde SATURNO, el anciano de los cielos, aporta la profundidad que le caracteriza y URANO el planeta REVOLUCIONARIO lanza sus rayos sobre la humana especie.
 
-Los ACUARIANOS de tipo superior son ALTRUISTAS, FI-LANTRÓPICOS, BONDADOSOS, FIELES EN LA AMISTAD, SIN-
+Los ACUARIANOS de tipo superior son ALTRUISTAS, FILANTRÓPICOS, BONDADOSOS, FIELES EN LA AMISTAD, SIN-
 
-CEROS, saben seleccionar sus amistades, por instinto; por INTUI-CIÓN conocen las personas y quieren siempre FRATERNIDAD, HUMANIDAD.
+CEROS, saben seleccionar sus amistades, por instinto; por INTUICIÓN conocen las personas y quieren siempre FRATERNIDAD, HUMANIDAD.
 
 El ACUARIANO de tipo inferior es desconfiado por naturaleza, amante del retiro EXAGERADO, y su inteligencia sólo se dedica a las cosas del mundo físico, a sus problemas, a sus asuntos, a todo lo que es sensible y material.
 
-El ACUARIANO de tipo superior es preciso en sus cosas, con-centrado, profundo, perseverante, maravilloso.
+El ACUARIANO de tipo superior es preciso en sus cosas, concentrado, profundo, perseverante, maravilloso.
 
-Las mujeres de ACUARIO son buenas esposas, buenas madres, pero les gusta estar fuera de casa y esto molesta mucho a los mari-dos, sobre todo si éstos son TAURINOS.
+Las mujeres de ACUARIO son buenas esposas, buenas madres, pero les gusta estar fuera de casa y esto molesta mucho a los maridos, sobre todo si éstos son TAURINOS.
 
 # CAPÍTULO 12
+
+![Imagen 14](Tratado Esoterico de Astrologia Hermetica/Tratado Esoterico de Astrologia Hermetica - 014 - CAPÍTULO 12.jpeg)
 
 Piscis
 
 **(20 de Febrero a 21 de Marzo) PISCIS**
 
-Hemos llegado a la NOCHE-MADRE de la Cosmología Egipcia, el océano profundo de PISCIS, la INICIÁTICA oscuridad sin límites del espacio ABSTRACTO ABSOLUTO; el primer elemento del abis-mo donde las ondinas guardan el ORO del RHIN o FUEGO del PENSAMIENTO DIVINO y GENESIACO.
+Hemos llegado a la NOCHE-MADRE de la Cosmología Egipcia, el océano profundo de PISCIS, la INICIÁTICA oscuridad sin límites del espacio ABSTRACTO ABSOLUTO; el primer elemento del abismo donde las ondinas guardan el ORO del RHIN o FUEGO del PENSAMIENTO DIVINO y GENESIACO.
 
-PISCIS está sabiamente simbolizado por dos PECES; el pesca-do, el Pez, es el SOMA de los MISTERIOS DE ISIS. El PEZ ES EL SÍMBOLO VIVIENTE DEL CRISTIANISMO GNÓSTICO PRIMITIVO.
+PISCIS está sabiamente simbolizado por dos PECES; el pescado, el Pez, es el SOMA de los MISTERIOS DE ISIS. El PEZ ES EL SÍMBOLO VIVIENTE DEL CRISTIANISMO GNÓSTICO PRIMITIVO.
 
 Los DOS PESCADOS de PISCIS enlazados por un guión tienen un profundo significado GNÓSTICO, representan a las dos ALMAS de los ELOHIM PRIMORDIAL sumergidas entre las aguas profundas de la NOCHE-MADRE.
 
@@ -2172,33 +2200,33 @@ Los dos PECES inefables trabajan bajo la dirección de ATMAN, cuando llega la ho
 
 Sin embargo, es bueno recordar que ISIS y OSIRIS no podrían trabajar jamás en la GRAN OBRA, sin el famoso MERCURIO de la FILOSOFÍA SECRETA. En este MERCURIO SEXUAL se encuentra la clave de todo poder.
 
-Un círculo con una línea vertical atravesada simbolismo hierático, es la unión sacratísima del ETERNO FEMENINO con el MASCULI-NO ETERNO; la INTEGRACIÓN de los contrarios en la MONADA ESENCIAL, inefable y Divina. De entre la GRAN MADRE-ESPACIO surge la Mónada, el SER. De entre el GRAN OCÉANO se levantan los ELOHIM para trabajar en la aurora del MAHANVANTARA.
+Un círculo con una línea vertical atravesada simbolismo hierático, es la unión sacratísima del ETERNO FEMENINO con el MASCULINO ETERNO; la INTEGRACIÓN de los contrarios en la MONADA ESENCIAL, inefable y Divina. De entre la GRAN MADRE-ESPACIO surge la Mónada, el SER. De entre el GRAN OCÉANO se levantan los ELOHIM para trabajar en la aurora del MAHANVANTARA.
 
 El AGUA es el elemento femenino de todo lo creado, de donde proviene la MATER LATINA, y la letra M, terriblemente DIVINA.
 
-En el CRISTIANISMO GNÓSTICO es MARÍA la misma ISIS, la MADRE DEL COSMOS, la eterna MADRE-ESPACIO, las aguas pro-fundas del abismo.
+En el CRISTIANISMO GNÓSTICO es MARÍA la misma ISIS, la MADRE DEL COSMOS, la eterna MADRE-ESPACIO, las aguas profundas del abismo.
 
-La palabra MARÍA se divide en dos sílabas; la primera es MAR, que nos recuerda al océano profundo de PISCIS. La segunda es ÍA, que es una variante de IO (iiioooo), el nombre augusto de la MA-DRE-ESPACIO, el círculo de la NADA, de donde todo emana y a donde todo vuelve; el UNO, el UNO ÚNICO del manifestado univer-so, después de la noche del gran Pralaya o aniquilamiento.
+La palabra MARÍA se divide en dos sílabas; la primera es MAR, que nos recuerda al océano profundo de PISCIS. La segunda es ÍA, que es una variante de IO (iiioooo), el nombre augusto de la MADRE-ESPACIO, el círculo de la NADA, de donde todo emana y a donde todo vuelve; el UNO, el UNO ÚNICO del manifestado universo, después de la noche del gran Pralaya o aniquilamiento.
 
-Separadas las Aguas superiores de las inferiores, se hizo la luz, es decir, surgió a la vida el VERBO animador del COSMOS, el HIJO, y esta vida tomó como elemento transmisor al SOL, el cual se en-cuentra en el centro de nuestro sistema solar, como el corazón de-ntro de nuestro organismo.
+Separadas las Aguas superiores de las inferiores, se hizo la luz, es decir, surgió a la vida el VERBO animador del COSMOS, el HIJO, y esta vida tomó como elemento transmisor al SOL, el cual se encuentra en el centro de nuestro sistema solar, como el corazón dentro de nuestro organismo.
 
-Las fecundas Vibraciones del SOL son realmente el vivo FUEGO ELEMENTAL que se condensa en el centro de cada planeta, consti-tuyéndose en el corazón de cada uno de éstos.
+Las fecundas Vibraciones del SOL son realmente el vivo FUEGO ELEMENTAL que se condensa en el centro de cada planeta, constituyéndose en el corazón de cada uno de éstos.
 
 Toda esa LUZ, toda esa VIDA, está representada por los siete espíritus ante el trono, dentro del TEMPLO-CORAZÓN de cada uno de los siete planetas del SISTEMA SOLAR.
 
-EL trabajo de separar las aguas de las aguas, corresponde a la sagrada pareja. Cada uno de los SIETE ESPÍRITUS ante el TRONO, emanó de Sí MISMO, a la sagrada pareja de PECES para que traba-jara en la AURORA de la creación con el poder de KRIYASAKTY, el poder de la palabra perdida, el poder de la VOLUNTAD y el YOGA.
+EL trabajo de separar las aguas de las aguas, corresponde a la sagrada pareja. Cada uno de los SIETE ESPÍRITUS ante el TRONO, emanó de Sí MISMO, a la sagrada pareja de PECES para que trabajara en la AURORA de la creación con el poder de KRIYASAKTY, el poder de la palabra perdida, el poder de la VOLUNTAD y el YOGA.
 
 EL AMOR de los AMORES, la PASIÓN MÍSTICA del último fuego entre el ETERNO ESPOSO y la DIVINA ESPOSA, son vitales para separar las AGUAS SUPERIORES de las AGUAS INFERIORES.
 
-En este TRABAJO existe MAITHUNA TRASCENDENTAL; KRI-YASAKTY, PALABRA CREADORA.
+En este TRABAJO existe MAITHUNA TRASCENDENTAL; KRIYASAKTY, PALABRA CREADORA.
 
 Él aporta el FUEGO y ella transmuta las aguas separando a las SUPERIORES de las INFERIORES.
 
-Los dos Peces proyectan luego aquel fuego y aquella agua supe-rior transmutada sobre las aguas del CAOS sobre la materia cósmica o material para mundos, sobre los dormidos gérmenes de la existen-cia y brota la vida.
+Los dos Peces proyectan luego aquel fuego y aquella agua superior transmutada sobre las aguas del CAOS sobre la materia cósmica o material para mundos, sobre los dormidos gérmenes de la existencia y brota la vida.
 
-Todo el trabajo se realiza con ayuda de la PALABRA y de la VO-LUNTAD y el YOGA.
+Todo el trabajo se realiza con ayuda de la PALABRA y de la VOLUNTAD y el YOGA.
 
-En principio, el UNIVERSO es sutil, después se condensa mate-rialmente, pasando por sucesivos períodos de CRISTALIZACIÓN progresiva.
+En principio, el UNIVERSO es sutil, después se condensa materialmente, pasando por sucesivos períodos de CRISTALIZACIÓN progresiva.
 
 Existen millones de UNIVERSOS en el espacio infinito, entre el seno de la MADRE-ESPACIO.
 
@@ -2206,49 +2234,49 @@ Algunos UNIVERSOS están saliendo del PRALAYA, brotando de entre as aguas profun
 
 Nada podrían hacer ISIS y OSIRIS sin el MERCURIO SEXUAL, los dos peces eternos, se aman, se adoran y viven siempre creando y volviendo nuevamente a crear.
 
-El pez es el símbolo más sagrado del GNOSTICISMO CRISTIA-NO PRIMITIVO. Es lástima que millares de estudiantes de ocultismo hayan olvidado la GNOSIS del pescado.
+El pez es el símbolo más sagrado del GNOSTICISMO CRISTIANO PRIMITIVO. Es lástima que millares de estudiantes de ocultismo hayan olvidado la GNOSIS del pescado.
 
-En nuestro planeta tierra viven siete HUMANIDADES con cuer-pos físicos y de todas las siete, la última es la nuestra, la única que está fracasada por haber perdido la GNOSIS.
+En nuestro planeta tierra viven siete HUMANIDADES con cuerpos físicos y de todas las siete, la última es la nuestra, la única que está fracasada por haber perdido la GNOSIS.
 
 Las otras seis HUMANIDADES viven en estado de JINAS, en la CUARTA DIMENSIÓN, ya dentro del interior de la TIERRA, ya en muchas comarcas y regiones JINAS.
 
-La EDAD de PISCIS no ha debido haber sido un fracaso como realmente fue. La causa causorum del fracaso PISCIANO se debió a ciertos elementos tenebrosos que traicionaron a la GNOSIS y predi-caron ciertas DOCTRINAS AGNÓSTICAS o ANTI-GNÓSTICAS, subestimando el PEZ, desechando la RELIGIÓN SABIDURÍA y su-miendo a la humanidad en el materialismo.
+La EDAD de PISCIS no ha debido haber sido un fracaso como realmente fue. La causa causorum del fracaso PISCIANO se debió a ciertos elementos tenebrosos que traicionaron a la GNOSIS y predicaron ciertas DOCTRINAS AGNÓSTICAS o ANTI-GNÓSTICAS, subestimando el PEZ, desechando la RELIGIÓN SABIDURÍA y sumiendo a la humanidad en el materialismo.
 
-Recordemos a LUCIO llegando a la ciudad de HYPATIA, hos-pedándose luego en casa de MILON, cuya esposa PANFILA es una perversa hechicera. Sale a poco LUCIO a comprar pescado (EL IC-TUS, SÍMBOLO DEL NACIENTE CRISTIANISMO GNÓSTICO, EL
+Recordemos a LUCIO llegando a la ciudad de HYPATIA, hospedándose luego en casa de MILON, cuya esposa PANFILA es una perversa hechicera. Sale a poco LUCIO a comprar pescado (EL IC-TUS, SÍMBOLO DEL NACIENTE CRISTIANISMO GNÓSTICO, EL
 
 PEZ, PESCADO, SOMA, de los MISTERIOS DE ISIS).
 
-Los pescadores le venden por infelices veinte denarios y con cier-to desdén espantoso, lo que antes pretendían vender por cien escu-dos, terrible sátira en el que va envuelto el mayor desprecio para el NACIENTE y ya infatuado CRISTIANISMO GNÓSTICO.
+Los pescadores le venden por infelices veinte denarios y con cierto desdén espantoso, lo que antes pretendían vender por cien escudos, terrible sátira en el que va envuelto el mayor desprecio para el NACIENTE y ya infatuado CRISTIANISMO GNÓSTICO.
 
 El resultado del CRISTIANISMO AGNÓSTICO o ANTI-GNÓSTICO, fue la DIALÉCTICA MATERIALISTA MARXISTA.
 
 La REACCIÓN contra el GNOSTICISMO fue el MATERIALISMO repugnante sin DIOS y sin ley.
 
-Puede asegurarse que la edad de PISCIS fracasó por el AG-NOSTICISMO. La traición a la GNOSIS fue el crimen más grave de la edad de PISCIS.
+Puede asegurarse que la edad de PISCIS fracasó por el AGNOSTICISMO. La traición a la GNOSIS fue el crimen más grave de la edad de PISCIS.
 
 JESÚS el CRISTO y sus doce pescadores, INICIARON una edad que bien podría haber sido de grandes esplendores.
 
-JESÚS y sus DOCE APÓSTOLES GNÓSTICOS indicaron el ca-mino preciso para la edad de PISCIS, el GNOSTICISMO, la sabidur-ía del PESCADO.
+JESÚS y sus DOCE APÓSTOLES GNÓSTICOS indicaron el camino preciso para la edad de PISCIS, el GNOSTICISMO, la sabiduría del PESCADO.
 
-Es lamentable que todos los libros sagrados de la SANTA GNO-SIS hubieran sido quemados y que se hubiera olvidado el sagrado símbolo del pez.
+Es lamentable que todos los libros sagrados de la SANTA GNOSIS hubieran sido quemados y que se hubiera olvidado el sagrado símbolo del pez.
 
 PRÁCTICA. Durante el signo de PISCIS hay que vocalizar una hora diaria. Recordemos que en el principio era el VERBO y que el VERBO estaba con DIOS y que el VERBO era DIOS.
 
-En los antiguos tiempos las siete vocales de la naturaleza reso-naban en todo el organismo humano desde la cabeza hasta los pies, y ahora es necesario restaurar las siete notas en el arpa maravillosa de nuestro organismo, para restaurar los poderes perdidos.
+En los antiguos tiempos las siete vocales de la naturaleza resonaban en todo el organismo humano desde la cabeza hasta los pies, y ahora es necesario restaurar las siete notas en el arpa maravillosa de nuestro organismo, para restaurar los poderes perdidos.
 
-La vocal “I” hace vibrar las glándulas PINEAL y PITUITARIA; es-tas dos glandulitas de la cabeza están unidas por un canalillo o capi-lar sumamente sutil, ya desaparecido en los cadáveres.
+La vocal “I” hace vibrar las glándulas PINEAL y PITUITARIA; estas dos glandulitas de la cabeza están unidas por un canalillo o capilar sumamente sutil, ya desaparecido en los cadáveres.
 
-La PINEAL se encuentra en la parte superior del cerebro y la pi-tuitaria en el plexo cavernario entre las dos cejas.
+La PINEAL se encuentra en la parte superior del cerebro y la pituitaria en el plexo cavernario entre las dos cejas.
 
-Cada una de estas dos glandulitas tiene su AURA VITAL y cuan-do las dos AURAS se mezclan, se desarrolla el SENTIDO ESPA-CIAL y vemos el ULTRA de todas las cosas.
+Cada una de estas dos glandulitas tiene su AURA VITAL y cuando las dos AURAS se mezclan, se desarrolla el SENTIDO ESPACIAL y vemos el ULTRA de todas las cosas.
 
 La vocal “E” hace vibrar la glándula tiroides que secreta el YODO BIOLÓGICO. Esta Glándula se encuentra en la garganta y en ella reside el chacra del oído mágico.
 
 La vocal “O” hace vibrar el CHACRA del corazón, centro de la INTUICIÓN, y toda clase de poderes para salir en ASTRAL, estado JINAS, etc.
 
-La vocal “U” hace vibrar el PLEXO SOLAR, situado en la región del ombligo. Este PLEXO SOLAR es el Centro Telepático y el Cere-bro emocional.
+La vocal “U” hace vibrar el PLEXO SOLAR, situado en la región del ombligo. Este PLEXO SOLAR es el Centro Telepático y el Cerebro emocional.
 
-La vocal “A” hace vibrar las chacras pulmonares que nos permi-ten recordar nuestras pasadas vidas.
+La vocal “A” hace vibrar las chacras pulmonares que nos permiten recordar nuestras pasadas vidas.
 
 La vocal “M”, tenida profundamente por consonante se vocaliza con los labios cerrados, sin abrirla boca, el sonido que sale entonces por la nariz es la “M”.
 
@@ -2256,7 +2284,7 @@ La vocal “M”, hace vibrar el ENS SEMINIS, las aguas de la vida, el MERCURIO 
 
 La vocal “S” es un silbo dulce y apacible que hace vibrar el fuego dentro de nosotros.
 
-Sentados en un cómodo sillón hay que vocalizar I.E.O.U.A.M.S. Llevando el sonido de cada una de estas siete vocales desde la ca-beza hasta los pies.
+Sentados en un cómodo sillón hay que vocalizar I.E.O.U.A.M.S. Llevando el sonido de cada una de estas siete vocales desde la cabeza hasta los pies.
 
 Es necesario inhalar exhalando luego el aire junto con el sonido vocal bien prolongado, hasta agotar la exhalación.
 
@@ -2264,31 +2292,31 @@ Esta práctica hay que hacerla diariamente para desarrollar los Eternos poderes 
 
 PISCIS está gobernado por NEPTUNO, el planeta del ocultismo práctico y por JÚPITER TONANTE, el Padre de los DIOSES.
 
-El metal de Piscis es el ESTAÑO de Júpiter; piedras, la AMATIS-TA, los CORALES. Piscis gobierna los PIES.
+El metal de Piscis es el ESTAÑO de Júpiter; piedras, la AMATISTA, los CORALES. Piscis gobierna los PIES.
 
-Los nativos de Piscis por lo común tienen dos esposas, varios hijos. Son de naturaleza dual y tienen disposición para dos profesio-nes u oficios. Los nativos de Piscis son muy difíciles de comprender, viven como el pez, en todo, pero separados de todo por el líquido elemento. Se adaptan a todo, pero en el fondo desprecian todas las cosas del mundo. Son exquisitamente sensitivos, intuitivos, profun-dos y la gente no los puede comprender.
+Los nativos de Piscis por lo común tienen dos esposas, varios hijos. Son de naturaleza dual y tienen disposición para dos profesiones u oficios. Los nativos de Piscis son muy difíciles de comprender, viven como el pez, en todo, pero separados de todo por el líquido elemento. Se adaptan a todo, pero en el fondo desprecian todas las cosas del mundo. Son exquisitamente sensitivos, intuitivos, profundos y la gente no los puede comprender.
 
 Los nativos de Piscis tienen gran disposición para el ocultismo, debido a que Piscis está gobernado por NEPTUNO, el planeta del ESOTERISMO.
 
 Las mujeres de PISCIS son muy nerviosas, sensitivas como una delicadísima flor; intuitivas, impresionables.
 
-Los Piscianos tienen buenos sentimientos sociales, alegres, pací-ficos, hospitalarios por naturaleza.
+Los Piscianos tienen buenos sentimientos sociales, alegres, pacíficos, hospitalarios por naturaleza.
 
-El peligro de los Piscianos es el caer en la pereza, negligencia, pasividad e indiferencia por la vida. Los Piscianos pueden llegar has-ta a la falta de responsabilidad moral. La mente de los Piscianos os-cila entre comprensión rápida o fatal, pereza y desprecio por las co-sas más necesarias para la vida. Son dos extremos y tan pronto ca-en en un extremo como en el otro. La voluntad de los Piscianos a veces es fuerte, pero cambiante en otras ocasiones.
+El peligro de los Piscianos es el caer en la pereza, negligencia, pasividad e indiferencia por la vida. Los Piscianos pueden llegar hasta a la falta de responsabilidad moral. La mente de los Piscianos oscila entre comprensión rápida o fatal, pereza y desprecio por las cosas más necesarias para la vida. Son dos extremos y tan pronto caen en un extremo como en el otro. La voluntad de los Piscianos a veces es fuerte, pero cambiante en otras ocasiones.
 
-Cuando caen los Piscianos en la indiferencia y pasividad extre-ma, se dejan llevar por la corriente del río de la vida, pero cuando ya ven la gravedad de su conducta, ponen en juego su voluntad de ace-ro y entonces cambian radicalmente todo el curso de su existencia.
+Cuando caen los Piscianos en la indiferencia y pasividad extrema, se dejan llevar por la corriente del río de la vida, pero cuando ya ven la gravedad de su conducta, ponen en juego su voluntad de acero y entonces cambian radicalmente todo el curso de su existencia.
 
-Los Piscianos de tipo superior son GNÓSTICOS en un ciento por ciento, poseen una voluntad de acero inquebrantable y un elevadí-simo sentido de responsabilidad moral.
+Los Piscianos de tipo superior son GNÓSTICOS en un ciento por ciento, poseen una voluntad de acero inquebrantable y un elevadísimo sentido de responsabilidad moral.
 
-El tipo superior de PISCIS da grandes ILUMINADOS, MAES-TROS, AVATARAS, REYES, INICIADOS, etc., etc.
+El tipo superior de PISCIS da grandes ILUMINADOS, MAESTROS, AVATARAS, REYES, INICIADOS, etc., etc.
 
-El tipo inferior de PISCIS tiene una marcada tendencia a la LU-JURIA, alcoholismo, glotonería, pereza, orgullo.
+El tipo inferior de PISCIS tiene una marcada tendencia a la LUJURIA, alcoholismo, glotonería, pereza, orgullo.
 
-Los Piscianos gustan de los viajes, mas no todos pueden viajar. Los Piscianos tienen una gran imaginación y una tremenda sensibili-dad.
+Los Piscianos gustan de los viajes, mas no todos pueden viajar. Los Piscianos tienen una gran imaginación y una tremenda sensibilidad.
 
-Resulta muy difícil comprender a los PISCIANOS, sólo los PIS-CIANOS pueden comprender a los Piscianos.
+Resulta muy difícil comprender a los PISCIANOS, sólo los PISCIANOS pueden comprender a los Piscianos.
 
-Todo lo que para la gente común y corriente tiene gran importan-cia, para los Piscianos no vale nada, pero es diplomático, se adapta a las gentes, aparenta que está de acuerdo con ellas. Lo más grave para los nativos de Piscis, es tener que definirse en la cuestión conyugal, pues casi siempre dos amores básicos funda-mentales, les meten en un callejón sin salida.
+Todo lo que para la gente común y corriente tiene gran importancia, para los Piscianos no vale nada, pero es diplomático, se adapta a las gentes, aparenta que está de acuerdo con ellas. Lo más grave para los nativos de Piscis, es tener que definirse en la cuestión conyugal, pues casi siempre dos amores básicos fundamentales, les meten en un callejón sin salida.
 
 El tipo SUPERIOR de PISCIS ya trasciende a estas debilidades y es CASTO en forma ABSOLUTA.
 
@@ -2296,7 +2324,7 @@ Por lo común suelen sufrir mucho los Piscianos con la familia en sus primeros a
 
 Es difícil encontrar un Pisciano que haya sido feliz con la familia durante sus primeros años.
 
-El tipo muy inferior de las mujeres de PISCIS, cae en la prostitu-ción y en el alcoholismo.
+El tipo muy inferior de las mujeres de PISCIS, cae en la prostitución y en el alcoholismo.
 
 El tipo superior de las mujeres de PISCIS nunca cae así, es como una flor muy delicada, como una bella flor de LOTO.
 
@@ -2304,16 +2332,16 @@ El tipo superior de las mujeres de PISCIS nunca cae así, es como una flor muy d
 
 #### AÑO OBRAS ESCRITAS O COMPILADAS DEL V. M. SAMAEL AUN WEOR
 
-**1950- El Matrimonio Perfecto de Kinder** (esta obra fue luego ampliada y corregida por el Maestro Samael y la llamó: “El Matrimonio Perfecto”), **La Revolución de Bel-cebú**. **1952- Curso Zodiacal, Apuntes Secretos de un Gurú, Tratado de Medicina Oculta y Magia Pratica, Conciencia Cristo, Libro de la Virgen del Carmen, Catecismo Gnóstico, El Poder está en la Cruz, Mensaje de Navidad 1952-1953.**
+**1950- El Matrimonio Perfecto de Kinder** (esta obra fue luego ampliada y corregida por el Maestro Samael y la llamó: “El Matrimonio Perfecto”), **La Revolución de Belcebú**. **1952- Curso Zodiacal, Apuntes Secretos de un Gurú, Tratado de Medicina Oculta y Magia Pratica, Conciencia Cristo, Libro de la Virgen del Carmen, Catecismo Gnóstico, El Poder está en la Cruz, Mensaje de Navidad 1952-1953.**
 
 **1953- Las Siete Palabras, Rosa Ígnea, Tratado de Alquimia Sexual, Mensaje de Navidad 1953-1954. 1954- Mensaje de navidad 1954-1955.**
 
-**1955 Mensaje de navidad 1955-1956, Manual de Magia Práctica, Los Platillos Vola-dores, Significado Oculto de los Sueños. 1956- Los Misterios Mayores, Mensaje de Navidad 1956-1957. 1957- Nociones Fundamentales de la Endocrinología y Criminología, Mensaje de Navidad de 1957-1958. 1958- Mensaje de Navidad de 1958-1959.**
+**1955 Mensaje de navidad 1955-1956, Manual de Magia Práctica, Los Platillos Voladores, Significado Oculto de los Sueños. 1956- Los Misterios Mayores, Mensaje de Navidad 1956-1957. 1957- Nociones Fundamentales de la Endocrinología y Criminología, Mensaje de Navidad de 1957-1958. 1958- Mensaje de Navidad de 1958-1959.**
 
-**1959- Tratado Esotérico de Teurgia, Voluntad Cristo, La Montaña de la Juratena, Logos-Mantram Teurgia, El Libro Amarillo, Mensaje de Navidad 1959-1960.** **1960- Introducción a la Gnosis, El Mensaje de Acuario, Mensaje de Navidad 1960- 1961. 1961- La Caridad Universal, Mensaje de Navidad 1961-1962. 1962- Magia Crística Azteca, El Libro de los Muertos, Los Misterios de la Vida y de la Muerte, Los Misterios del Fuego, Mensaje de Navidad 1962-1963. 1963- El Matrimonio Perfecto** (edición ampliada y corregida), **Mensaje de Navidad 1963-1964, Manifiesto Gnóstico Nº 1 y 2.** **1964- El Cristo Social, Las Naves Cósmicas, Mensaje de Navidad 1964-1965** *(Lla-mado la Liberación de la Conciencia, Eliminación del Yo),* **Gnosis en el siglo XX** *(Recopilación de doce Mensajes de Navidad: 1952 a 1963*), **Manifiesto Gnóstico Nº3**. **1965- Transformación Social de la Humanidad, Mensaje de Navidad 1965-1966** *(Llamado la Ciencia de la Música).* **1966- Educación Fundamental, Mensaje de Navidad 1966-1967** *(Llamado El Collar de Buddha).* **1967- Plataforma del Socialismo Cristiano, Tratado Esotérico de Astrología Hermé-tica, Mensaje de Navidad 1967-1968** (*Llamado Los cuerpos Solares y Sabiduria*
+**1959- Tratado Esotérico de Teurgia, Voluntad Cristo, La Montaña de la Juratena, Logos-Mantram Teurgia, El Libro Amarillo, Mensaje de Navidad 1959-1960.** **1960- Introducción a la Gnosis, El Mensaje de Acuario, Mensaje de Navidad 1960- 1961. 1961- La Caridad Universal, Mensaje de Navidad 1961-1962. 1962- Magia Crística Azteca, El Libro de los Muertos, Los Misterios de la Vida y de la Muerte, Los Misterios del Fuego, Mensaje de Navidad 1962-1963. 1963- El Matrimonio Perfecto** (edición ampliada y corregida), **Mensaje de Navidad 1963-1964, Manifiesto Gnóstico Nº 1 y 2.** **1964- El Cristo Social, Las Naves Cósmicas, Mensaje de Navidad 1964-1965** *(Llamado la Liberación de la Conciencia, Eliminación del Yo),* **Gnosis en el siglo XX** *(Recopilación de doce Mensajes de Navidad: 1952 a 1963*), **Manifiesto Gnóstico Nº3**. **1965- Transformación Social de la Humanidad, Mensaje de Navidad 1965-1966** *(Llamado la Ciencia de la Música).* **1966- Educación Fundamental, Mensaje de Navidad 1966-1967** *(Llamado El Collar de Buddha).* **1967- Plataforma del Socialismo Cristiano, Tratado Esotérico de Astrología Hermética, Mensaje de Navidad 1967-1968** (*Llamado Los cuerpos Solares y Sabiduria*
 
-*Gnostica*), **Manifiesto Gnóstico Nº4**. **1968- A los Mil llegamos pero a los Dos Mil no, Constitución y Liturgia del Movi-miento Gnóstico** *(Rituales de Primer y Segundo Grado)*​**, Mensaje de Navidad 1968-1969** *(Llamado Tratado Esotérico de Magia Rúnica).* **1969- Curso Esotérico de Cabala, Mensaje de Navidad 1969-1970** *(Llamado Mi Re-greso al Tibet)* **1970- Mas allá de la Muerte, Mensaje de Navidad 1970-1971** *(Llamado El Parsifal develado)* **1971- Mensaje de Navidad de 1971-1972** *(Llamado El Misterio del Áureo Florecer),* **Manifiesto Gnóstico Nº5.**
+*Gnostica*), **Manifiesto Gnóstico Nº4**. **1968- A los Mil llegamos pero a los Dos Mil no, Constitución y Liturgia del Movimiento Gnóstico** *(Rituales de Primer y Segundo Grado)*​**, Mensaje de Navidad 1968-1969** *(Llamado Tratado Esotérico de Magia Rúnica).* **1969- Curso Esotérico de Cabala, Mensaje de Navidad 1969-1970** *(Llamado Mi Regreso al Tibet)* **1970- Mas allá de la Muerte, Mensaje de Navidad 1970-1971** *(Llamado El Parsifal develado)* **1971- Mensaje de Navidad de 1971-1972** *(Llamado El Misterio del Áureo Florecer),* **Manifiesto Gnóstico Nº5.**
 
-**1972- Mirando al Misterio, Mensaje de Navidad 1973-1974** *(Llamado Las Tres Monta-ñas),* **Manifiesto Gnóstico Nº6.** **1973- Mensaje de Navidad 1973-1974** *(Llamado Sí, Hay Infierno, Sí, Hay Diablo, Sí, Hay Karma)* **1974- La Gran Rebelión, Los Planetas Metálicos de la Alquimia, Mensaje de Navi-dad 1974-1975** *(Llamado La Doctrina Secreta de Anahuác).* **1975- Liturgia del Movimiento Gnóstico** *(Ritual del Tercer y Cuarto grado)*, **Mensaje de Navidad 1975-1976** *(Llamado Psicología Revolucionaria)* **1976- Tarot y Cabala** *(conjunto de cátedras dictadas en Terceras Cámaras)*, **Libro Sa-grado de Liturgia** *(Rituales de Quinto, Sexto y Séptimo Grado).* **1977- Misterios Mayas, Antropología Gnóstica** *(7 Cátedras dictadas por el Maestro en tercera cámara)*, **Pistis Sophia** *(en cuya develación estaba trabajando en el mo-mento en que desencarnó y que fue publicada en 1981)* **Las Respuestas que dio un Lama.** Recopilación de temas dados por el V.M. Samael Aun Weor: **Para los Pocos, La Revolución de la Dialéctica, La Piedra Filosofal, Didactica del Autoconoci-miento, El Despertar del Hombre, Las Escuelas Esotericas, Ejercicios de Lamaseria, El Quinto Evangelio, El Verbo de Oro** *(Tomos I - II)*.
+**1972- Mirando al Misterio, Mensaje de Navidad 1973-1974** *(Llamado Las Tres Montañas),* **Manifiesto Gnóstico Nº6.** **1973- Mensaje de Navidad 1973-1974** *(Llamado Sí, Hay Infierno, Sí, Hay Diablo, Sí, Hay Karma)* **1974- La Gran Rebelión, Los Planetas Metálicos de la Alquimia, Mensaje de Navidad 1974-1975** *(Llamado La Doctrina Secreta de Anahuác).* **1975- Liturgia del Movimiento Gnóstico** *(Ritual del Tercer y Cuarto grado)*, **Mensaje de Navidad 1975-1976** *(Llamado Psicología Revolucionaria)* **1976- Tarot y Cabala** *(conjunto de cátedras dictadas en Terceras Cámaras)*, **Libro Sagrado de Liturgia** *(Rituales de Quinto, Sexto y Séptimo Grado).* **1977- Misterios Mayas, Antropología Gnóstica** *(7 Cátedras dictadas por el Maestro en tercera cámara)*, **Pistis Sophia** *(en cuya develación estaba trabajando en el momento en que desencarnó y que fue publicada en 1981)* **Las Respuestas que dio un Lama.** Recopilación de temas dados por el V.M. Samael Aun Weor: **Para los Pocos, La Revolución de la Dialéctica, La Piedra Filosofal, Didactica del Autoconocimiento, El Despertar del Hombre, Las Escuelas Esotericas, Ejercicios de Lamaseria, El Quinto Evangelio, El Verbo de Oro** *(Tomos I - II)*.
 
 Debemos, hacer un llamado a todo el estudiantado gnóstico para que se luche por la integridad doctrinaria del Avatara de Acuario. Vemos con asombro y estupor cómo algunos, por una razón, han modificado en alguna manera el legado escrito de nuestro Maestro, lo cual debe ser rechazado por todo aquel, que verdaderamente se considere “Samaeliano”.

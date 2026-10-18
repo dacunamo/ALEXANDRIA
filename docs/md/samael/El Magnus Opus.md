@@ -1,3 +1,5 @@
+![Imagen 1](El Magnus Opus/El Magnus Opus - 001 - SAMAEL AUN WEOR.png)
+
 # SAMAEL AUN WEOR
 
 # CAPITULO I
@@ -178,11 +180,11 @@ Todo aquel que ha recibido el Elixir de Larga Vida, muere pero no muere. El áng
 
 Todo Iniciado que recibe el Elixir de Larga Vida, muere pero no muere. Al tercer día es levantado del sepulcro.
 
-Aprovechando el hiper-espacio logran los Maestros escaparse del sepulcro con su cuerpo de carne y hueso. Esa es la Resurrección.
+Aprovechando el hiperespacio logran los Maestros escaparse del sepulcro con su cuerpo de carne y hueso. Esa es la Resurrección.
 
 Cuando resucita un Maestro el Magnus Opus se ha consumado. Al tercer día el Gran Maestro Jesús llegóse en cuerpo astral ante su santo sepulcro. La tradición esotérica sabe que el Maestro vino acompañado por las santas mujeres (Ellas vinieron en cuerpo astral) También acompañaron al Maestro los Ángeles de la Muerte, los Señores del Karma, los Señores del Movimiento Cósmico, etc., etc.
 
-El Gran Maestro invocó a su cuerpo físico con gran voz. Aquel cuerpo animado por el verbo, penetrando dentro del hiper-espacio se levantó sumergiéndose absolutamente dentro del plano astral. El sepulcro quedó vacío y los lienzos echados.
+El Gran Maestro invocó a su cuerpo físico con gran voz. Aquel cuerpo animado por el verbo, penetrando dentro del hiperespacio se levantó sumergiéndose absolutamente dentro del plano astral. El sepulcro quedó vacío y los lienzos echados.
 
 En el plano astral las Santas Mujeres trataron el cuerpo de Jesús con drogas y ungüentos aromáticos.
 
@@ -200,7 +202,7 @@ Luego dice a Tomás: "mete tu dedo aquí, y ve mis manos; y alarga acá tu mano,
 
 "Entonces Tomás respondió, y díjole: Señor mío y Dios mío..." "Dísele Jesús: porque me has visto, Tomás, creíste. Bienaventurados los que no vieron y creyeron".
 
-Jesús resucitó de entre los muertos, Jesús se levantó del sepulcro utilizando el hiper-espacio. Jesús atravesaba cualquier muro, y penetró en el recinto de los Apóstoles utilizando el hiper-espacio. La astrofísica descubrirá muy pronto la existencia del hiper-espacio. El hiper-espacio puede ser demostrado con la hiper-geometría.
+Jesús resucitó de entre los muertos, Jesús se levantó del sepulcro utilizando el hiperespacio. Jesús atravesaba cualquier muro, y penetró en el recinto de los Apóstoles utilizando el hiperespacio. La astrofísica descubrirá muy pronto la existencia del hiperespacio. El hiperespacio puede ser demostrado con la hiper-geometría.
 
 Aquellos que reciben el Elixir de Larga Vida, tienen que atravesar en el panteón o cementerio, las terribles pruebas funerales del Arcano 13 de la Kábala. Las pruebas del Arcano 13 son más espantosas que la muerte misma. Muy pocos son los seres humanos que han podido pasar las pruebas del Arcano 13 de la Kábala.
 

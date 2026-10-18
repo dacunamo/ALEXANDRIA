@@ -30,7 +30,7 @@ Quiero pues que los grupos en discordia olvidándose por un momento de sus valio
 
 En modo alguno estoy en favor o en contra de ninguna persona o grupo pues solo veo la necesidad de no destruir con los pies lo que hemos hecho con las manos. Pienso que mediante el amor es posible establecer la verdadera fraternidad en los corazones.
 
-Al escribir este manifiesto lo hago mediante la auto-reflexión evidente del SER y no mediante compulsión, presión o coacción de alguien sobre mi entendimiento.
+Al escribir este manifiesto lo hago mediante la autoreflexión evidente del SER y no mediante compulsión, presión o coacción de alguien sobre mi entendimiento.
 
 CONSIDERANDO los hondos sufrimientos existentes en el pueblo Gnóstico Colombiano debido a las actitudes divisionistas existentes, DECRETO el armisticio Inmediato entre las fuerzas opuestas que habrá de realizarse con pláticas el 27 de Junio del año en curso en el SUMUM SUPREMUM SANTUARIUM de Santa Marta, Colombia, Sur América. Hora de reunión 7 de la noche con ritual de 4º grado a cargo del V. M. Gargha Kuichines.
 

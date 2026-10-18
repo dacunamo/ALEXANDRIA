@@ -1,5 +1,9 @@
 ### BUDDA MAITREYA KALKI AVATARA DE LA NUEVA ERA DEACUARIO
 
+![Imagen 1](Rosa Ignea/Rosa Ignea - 001 - KALKI AVATARA DE LA NUEVA ERA DEACUARIO.jpeg)
+
+![Imagen 2](Rosa Ignea/Rosa Ignea - 002 - KALKI AVATARA DE LA NUEVA ERA DEACUARIO.jpeg)
+
 V.M. Samael Aun Weor
 
 # INTRODUCCIÓN
@@ -8,7 +12,7 @@ Yo AUN WEOR, el Gran Avatara de la Nueva Era Acuaria, escribo este libro ardient
 
 Vamos a penetrar ahora entre las ígneas entrañas de la Diosa Madre del Mundo.
 
-¡AGNI! ¡AGNI! ¡AGNI! Dios del Fuego, ayúdanos, inspíra-nos y condúcenos a través de estos laberintos ígneos de la gran naturaleza.
+¡AGNI! ¡AGNI! ¡AGNI! Dios del Fuego, ayúdanos, inspíranos y condúcenos a través de estos laberintos ígneos de la gran naturaleza.
 
 Vamos a estudiar ahora los delicados pétalos de esta ROSA ÍGNEA del universo.
 
@@ -28,29 +32,29 @@ Reyes y reinas del fuego, criaturas de los bosques..; ¡os conjuro!
 
 No hay selva que no tenga su genio... No hay árbol que no tenga su criatura, sus poderes y su inteligencia... No hay árbol sin alma... Todo vegetal es el cuerpo físico de una criatura elemental de la naturaleza...
 
-Las plantas tienen alma, y las almas de las plantas encie-rran todos los poderes de la Diosa Madre del Mundo...
+Las plantas tienen alma, y las almas de las plantas encierran todos los poderes de la Diosa Madre del Mundo...
 
-Las almas de las plantas, son los elementales de la Natura-leza. Estas criaturas inocentes todavía no han sido del Edén, y por lo tanto aún no han perdido sus poderes ígneos...
+Las almas de las plantas, son los elementales de la Naturaleza. Estas criaturas inocentes todavía no han sido del Edén, y por lo tanto aún no han perdido sus poderes ígneos...
 
-Los elementales de las plantas, juguetean como niños ino-centes entre las melodías inefables de este gran Edén de la Diosa Madre del Mundo.
+Los elementales de las plantas, juguetean como niños inocentes entre las melodías inefables de este gran Edén de la Diosa Madre del Mundo.
 
 Los aromas del fuego nos embriagan, y llenos de éxtasis nos elevamos a la dicha inefable del NIRVANA…
 
 No hay nada que no tenga alma en esta creación ardiente...
 
-Si observamos con los ojos del Espíritu el fondo ardiente de una roca milenaria, vemos que cada átomo es el cuerpo físico de una criatura elemental mineral, que lucha, ama y trabaja entre el crepitar ardiente de las llamas universales, anhelando intensamente subir las gradas ardientes del carbón y del dia-mante, para tener la dicha de ingresar al reino sublime de los vegetales...
+Si observamos con los ojos del Espíritu el fondo ardiente de una roca milenaria, vemos que cada átomo es el cuerpo físico de una criatura elemental mineral, que lucha, ama y trabaja entre el crepitar ardiente de las llamas universales, anhelando intensamente subir las gradas ardientes del carbón y del diamante, para tener la dicha de ingresar al reino sublime de los vegetales...
 
 Este libro huele a bosque, este libro huele a montaña... este libro se lo arrancamos a las llamas del universo, y cada una de sus palabras está escrita con ascuas ardientes...
 
 Ahora queremos arrancarle a los gigantes de los bosques, y a los niños inocentes de las aguas, de los aires, de las rocas y de las llamas abrasadoras, todos los secretos de la sabiduría antigua, para restaurar la sabiduría esotérica sobre la faz de la tierra, e iniciar la Edad de MAITREYA entre el crepitar de nuestros poderes que flamean.
 
-Toda la magia elemental de los antiguos Hierofantes, chis-porrotea abrasadoramente entre el Cáliz sagrado de las flores, y entre las entrañas mismas de los árboles augustos de la gran naturaleza. Hay que buscar la vieja sabiduría de los Hierofantes del Egipto y de la Grecia, entre las rocas milenarias que desafían el tiempo, y entre las cavernas subterráneas de las entrañas de la tierra, donde el fuego abrasador chisporrotea, quemando con sus llamas las escorias...
+Toda la magia elemental de los antiguos Hierofantes, chisporrotea abrasadoramente entre el Cáliz sagrado de las flores, y entre las entrañas mismas de los árboles augustos de la gran naturaleza. Hay que buscar la vieja sabiduría de los Hierofantes del Egipto y de la Grecia, entre las rocas milenarias que desafían el tiempo, y entre las cavernas subterráneas de las entrañas de la tierra, donde el fuego abrasador chisporrotea, quemando con sus llamas las escorias...
 
 Vamos a separar el humo de las llamas, vamos a elaborar, con el aroma del incentivo ardiente, el cuerpo de la LIBERACIÓN, hecho del más puro almizcle.
 
-Necesitamos una mente fogosa: Necesitamos pensamien-tos que flameen... Necesitamos de la Mente-Cristo del ARHAT, para penetrar en el incendio espantoso de estas lla-mas universales, donde crepitan terriblemente los secretos de la ROSA ÍGNEA de la naturaleza.
+Necesitamos una mente fogosa: Necesitamos pensamientos que flameen... Necesitamos de la Mente-Cristo del ARHAT, para penetrar en el incendio espantoso de estas llamas universales, donde crepitan terriblemente los secretos de la ROSA ÍGNEA de la naturaleza.
 
-Elevemos nuestro cáliz flameante, entre el chisporrotear ardiente de la Diosa Madre del Mundo. AGNI, ilumínanos, por ti levanto mi cáliz. Encendamos una hoguera, y cantemos los himnos ardientes del FUEGO entre la ROSA ÍGNEA del uni-verso. Levantemos nuestro cáliz augusto, y brindemos por las jerarquías de las llamas... ¡AGNI! ¡AGNI! ¡AGNI!
+Elevemos nuestro cáliz flameante, entre el chisporrotear ardiente de la Diosa Madre del Mundo. AGNI, ilumínanos, por ti levanto mi cáliz. Encendamos una hoguera, y cantemos los himnos ardientes del FUEGO entre la ROSA ÍGNEA del universo. Levantemos nuestro cáliz augusto, y brindemos por las jerarquías de las llamas... ¡AGNI! ¡AGNI! ¡AGNI!
 
 ## CAPÍTULO I
 
@@ -60,11 +64,11 @@ Elevemos nuestro cáliz flameante, entre el chisporrotear ardiente de la Diosa M
 
 2. El niño sube una escala; nosotros debemos volvernos niños para subir la escala de la sabiduría.
 
-3. En este viejo palacio, vive una reina del fuego. Es la re-ina elemental del Enebro, encarnada en cuerpo físico, en una vieja corte medieval.
+3. En este viejo palacio, vive una reina del fuego. Es la reina elemental del Enebro, encarnada en cuerpo físico, en una vieja corte medieval.
 
-4. Es una maga sobria, es una maga austera, vestida al es-tilo medioeval. Esta reina elemental, tiene una bella apariencia juvenil, vive una vida ejemplar en este antiguo palacio feudal.
+4. Es una maga sobria, es una maga austera, vestida al estilo medioeval. Esta reina elemental, tiene una bella apariencia juvenil, vive una vida ejemplar en este antiguo palacio feudal.
 
-5. Sumidos en profunda meditación interna, penetramos en un salón subterráneo de esta vieja mansión, y ante nuestros ojos espirituales se presenta un lecho humilde, una dama su-blime y algunos santos Maestros que asisten a esta reina ele-mental del Enebro, encarnada en plena Edad Media en cuerpo físico.
+5. Sumidos en profunda meditación interna, penetramos en un salón subterráneo de esta vieja mansión, y ante nuestros ojos espirituales se presenta un lecho humilde, una dama sublime y algunos santos Maestros que asisten a esta reina elemental del Enebro, encarnada en plena Edad Media en cuerpo físico.
 
 6. Este extraño aposento aparece iluminado por una vieja araña de vidrio, donde se respira el polvo de los siglos.
 
@@ -76,13 +80,13 @@ Elevemos nuestro cáliz flameante, entre el chisporrotear ardiente de la Diosa M
 
 10. El líquido de aquella vasija, es el agua pura de la vida, entre la cual aparece el árbol del Enebro.
 
-11. Esta es la planta de los reyes Divinos. Tres Zipas Chib-chas de Bacatá, practicaron el culto del Enebro. 12- Todos los reyes divinos de la antigüedad, practicaron el arte regio del Enebro.
+11. Esta es la planta de los reyes Divinos. Tres Zipas Chibchas de Bacatá, practicaron el culto del Enebro. 12- Todos los reyes divinos de la antigüedad, practicaron el arte regio del Enebro.
 
 13. El Mantram del elemental del Enebro, es KEM-LEM.
 
 14. El elemental del Enebro, parece una bella niña. Cada árbol tiene su elemental.
 
-15. Todos los elementales del Enebro obedecen a esta re-ina elemental encarnada en este viejo palacio medioeval.
+15. Todos los elementales del Enebro obedecen a esta reina elemental encarnada en este viejo palacio medioeval.
 
 16. La reina suplica a AGNI que le ayude, y este niño del fuego flota en aquel extraño aposento.
 
@@ -96,7 +100,7 @@ Elevemos nuestro cáliz flameante, entre el chisporrotear ardiente de la Diosa M
 
 21. Los Chakras entran en actividad, con el rito del Enebro.
 
-22. Cada árbol tiene su elemental; estos elementos de los Enebros obedecen a esta reina del Fuego, que estuvo encar-nada en la Edad Media en una corte fastuosa.
+22. Cada árbol tiene su elemental; estos elementos de los Enebros obedecen a esta reina del Fuego, que estuvo encarnada en la Edad Media en una corte fastuosa.
 
 23. Ahora la reina del Enebro, cultiva sus misterios en un templo subterráneo de la Tierra.
 
@@ -104,15 +108,15 @@ Elevemos nuestro cáliz flameante, entre el chisporrotear ardiente de la Diosa M
 
 25. El INICIADO debe revestirse con su traje sacerdotal, para oficiar en el templo con el elemental del Enebro.
 
-26. Durante el tiempo que dure el oficio sagrado del En-ebro, el árbol del que se hubieran cogido las ramas y bayas, permanecerá cubierto con paños negros y se colgarán en él algunas piedras.
+26. Durante el tiempo que dure el oficio sagrado del Enebro, el árbol del que se hubieran cogido las ramas y bayas, permanecerá cubierto con paños negros y se colgarán en él algunas piedras.
 
 27. Durante la santa invocación del elemental del Enebro, el INICIADO hará sonar una trompeta de cuerno de carnero.
 
 28. El elemental del Enebro forma con el humo un cuerpo gaseoso que sirva de instrumento al ángel invocado.
 
-29. Si la invocación es digna de respuesta, el ángel invoca-do concurrirá al llamado y se hará visible y tangible en el mun-do físico para conversar con quien lo llama.
+29. Si la invocación es digna de respuesta, el ángel invocado concurrirá al llamado y se hará visible y tangible en el mundo físico para conversar con quien lo llama.
 
-30. Mil veces podrá llamar el indigno, y no será escuchado, porque para el indigno todas las puertas están cerradas, me-nos la del arrepentimiento.
+30. Mil veces podrá llamar el indigno, y no será escuchado, porque para el indigno todas las puertas están cerradas, menos la del arrepentimiento.
 
 ## CAPÍTULO II
 
@@ -120,17 +124,17 @@ Elevemos nuestro cáliz flameante, entre el chisporrotear ardiente de la Diosa M
 
 # ARHAT
 
-1. Escuchadme, hermanos de Tercera Iniciación de Miste-rios Mayores, a vosotros me dirijo.
+1. Escuchadme, hermanos de Tercera Iniciación de Misterios Mayores, a vosotros me dirijo.
 
 2. Ha llegado la hora de encender los siete candeleros del cuerpo mental.
 
-3. “Antes que la llama de oro pueda arder con luz serena, la lámpara debe estar bien cuidada, en lugar libre de todo vien-to”.
+3. “Antes que la llama de oro pueda arder con luz serena, la lámpara debe estar bien cuidada, en lugar libre de todo viento”.
 
 4. Los pensamientos terrenales deben caer muertos ante las puertas del templo.
 
 5. “La mente que es esclava de los sentidos, hace al alma tan inválida, como el bote que el viento lleva sobre las aguas”.
 
-6. Así nos hablan los preceptos de la sabiduría oriental. 7- Escuchadme, oh Maestros de Tercera Iniciación de Mis-terios Mayores, a vosotros me dirijo.
+6. Así nos hablan los preceptos de la sabiduría oriental. 7- Escuchadme, oh Maestros de Tercera Iniciación de Misterios Mayores, a vosotros me dirijo.
 
 8. Necesitáis ahora del más puro esfuerzo ígneo.
 
@@ -144,9 +148,9 @@ Elevemos nuestro cáliz flameante, entre el chisporrotear ardiente de la Diosa M
 
 13. Este es el templo ígneo del ARHAT.
 
-14. Vuestra mente debe volverse completamente incandes-cente en el crepitar del fuego.
+14. Vuestra mente debe volverse completamente incandescente en el crepitar del fuego.
 
-15. Hay que separar cuidadosamente el humo de las lla-mas.
+15. Hay que separar cuidadosamente el humo de las llamas.
 
 16. El humo es tiniebla; las llamas son luz.
 
@@ -182,17 +186,17 @@ Elevemos nuestro cáliz flameante, entre el chisporrotear ardiente de la Diosa M
 
 33. Hay que expulsar a los demonios tentadores de nuestro templo, con el látigo terrible de la voluntad.
 
-34. Hay que libertar la mente de toda clase de escuelas, re-ligiones, sectas, partidos políticos, conceptos de patria y de bandera, prejuicios, apetencias y temores.
+34. Hay que libertar la mente de toda clase de escuelas, religiones, sectas, partidos políticos, conceptos de patria y de bandera, prejuicios, apetencias y temores.
 
-35. Hay que libertar la mente de los procesos del razona-miento.
+35. Hay que libertar la mente de los procesos del razonamiento.
 
-36. Hay que cambiar el proceso del razonamiento por com-prensión.
+36. Hay que cambiar el proceso del razonamiento por comprensión.
 
 37. No te identifiques con la mente, ¡oh! ARHAT.
 
 38. Tú no eres la mente. Tú eres el SER, tú eres el INTIMO.
 
-39. La mente es un potro cerrero, dómalo con el látigo de la voluntad, para que no lance tu carro al abismo. 40- ¡Ay! del cochero que pierde su carro, habrá de reco-menzar su camino.
+39. La mente es un potro cerrero, dómalo con el látigo de la voluntad, para que no lance tu carro al abismo. 40- ¡Ay! del cochero que pierde su carro, habrá de recomenzar su camino.
 
 41. La ROSA ÍGNEA de tu corazón, es tu sol de justicia.
 
@@ -210,11 +214,11 @@ Elevemos nuestro cáliz flameante, entre el chisporrotear ardiente de la Diosa M
 
 48. Entre el incienso de la oración se esconde el delito.
 
-49. Persevera, hijo mío, la serpiente de tu mente va su-biendo poco a poco por la médula de tu cuerpo mental. Se abren tus alas ígneas, tus alas eternas.
+49. Persevera, hijo mío, la serpiente de tu mente va subiendo poco a poco por la médula de tu cuerpo mental. Se abren tus alas ígneas, tus alas eternas.
 
 50. Resplandece tu mente con el fuego sagrado.
 
-51. Persevera y no desmayes, y enciende tus siete cande-leros eternos.
+51. Persevera y no desmayes, y enciende tus siete candeleros eternos.
 
 52. Adquiere la vista del águila y el oído ardiente.
 
@@ -226,29 +230,29 @@ Elevemos nuestro cáliz flameante, entre el chisporrotear ardiente de la Diosa M
 
 1. Entremos ahora, ¡Oh ARHAT!, para oficiar en el templo con la calabacera.
 
-2. Revístete con tu túnica y manto blanco, y acércate ante el altar, ¡Oh ARHAT! 3- Con los poderes del elemental de la calabacera, pode-mos trabajar con las multitudes.
+2. Revístete con tu túnica y manto blanco, y acércate ante el altar, ¡Oh ARHAT! 3- Con los poderes del elemental de la calabacera, podemos trabajar con las multitudes.
 
-4. El elemental de la calabacera tiene poderes terribles so-bre las multitudes.
+4. El elemental de la calabacera tiene poderes terribles sobre las multitudes.
 
 5. Por medio de la magia elemental de la calabacera, Jonás hizo arrepentir a Nínive de sus pecados.
 
-6. El elemental de la calabacera tiene sobre su glándula Pi-neal una corona minúscula, que le da un poder terrible sobre las masas humanas.
+6. El elemental de la calabacera tiene sobre su glándula Pineal una corona minúscula, que le da un poder terrible sobre las masas humanas.
 
-7. Aprende, ¡Oh ARHAT!, a luchar contra las abominacio-nes de los hombres, por medio de la calabacera. Así ayudarás a las multitudes humanas y al ayudar a los hombres, te ayudas a ti mismo. Tú lo sabes.
+7. Aprende, ¡Oh ARHAT!, a luchar contra las abominaciones de los hombres, por medio de la calabacera. Así ayudarás a las multitudes humanas y al ayudar a los hombres, te ayudas a ti mismo. Tú lo sabes.
 
-8. Acuérdate que el elemental de la calabacera, es de túni-ca rosada, como el amor desinteresado. Parece una bella niña vestida con esta túnica de amor.
+8. Acuérdate que el elemental de la calabacera, es de túnica rosada, como el amor desinteresado. Parece una bella niña vestida con esta túnica de amor.
 
 9. Jonás estuvo tres días en el vientre de un pez, y al tercer día fue vomitado por el pez en las plazas de Nínive.
 
-10. Y Jonás se sentó debajo de una calabacera, y se arre-pintieron los habitantes de Nínive, y rasgaron sus vestiduras y ayunaron, y llevaron saco y cilicios sobre sus cuerpos.
+10. Y Jonás se sentó debajo de una calabacera, y se arrepintieron los habitantes de Nínive, y rasgaron sus vestiduras y ayunaron, y llevaron saco y cilicios sobre sus cuerpos.
 
-11. Yo quiero que comprendas ahora, ¡Oh ARHAT!, la ínti-ma relación existente entre los peces de la mar y la calabace-ra.
+11. Yo quiero que comprendas ahora, ¡Oh ARHAT!, la íntima relación existente entre los peces de la mar y la calabacera.
 
 12. Hay un ángel poderoso que gobierna a los peces del mar, y a los elementales de la calabacera.
 
 13. La corriente de vida que pasa por los peces del mar, es la misma que pasa por la familia vegetal de la calabacera.
 
-14. El ángel ígneo que gobierna a la calabacera, es la mis-ma llama ardiente que gobierna a todos los peces del inmenso mar. 15- El oficiante echará la calabaza entre una vasija con agua, la cual deberá hervir entre las llamas de una hornilla.
+14. El ángel ígneo que gobierna a la calabacera, es la misma llama ardiente que gobierna a todos los peces del inmenso mar. 15- El oficiante echará la calabaza entre una vasija con agua, la cual deberá hervir entre las llamas de una hornilla.
 
 16. Habrá de ser partida en pedazos la fruta, antes de ser echada en la vasija con agua.
 
@@ -260,25 +264,25 @@ Elevemos nuestro cáliz flameante, entre el chisporrotear ardiente de la Diosa M
 
 20. El colegio de Iniciados colaborará contigo en esta gran obra del PADRE.
 
-21. Los poderes ígneos de esta criatura elemental, flamean intensamente entre el chisporrotear ardiente de las llamas uni-versales.
+21. Los poderes ígneos de esta criatura elemental, flamean intensamente entre el chisporrotear ardiente de las llamas universales.
 
 22. Durante esta ceremonia de magia elemental, la blanca paloma del Espíritu Santo entrará en ti, ¡Oh ARHAT!
 
-23. Ahora, sumido en profunda meditación, podréis escu-char la palabra de Jehová, ¡Oh ARHAT!
+23. Ahora, sumido en profunda meditación, podréis escuchar la palabra de Jehová, ¡Oh ARHAT!
 
-24. No olvides hermano mío, no olvides ¡Oh ARHAT! que a cada una de las vértebras espinales del cuerpo mental corres-ponde una caverna sagrada, escondida entre las entrañas de la tierra.
+24. No olvides hermano mío, no olvides ¡Oh ARHAT! que a cada una de las vértebras espinales del cuerpo mental corresponde una caverna sagrada, escondida entre las entrañas de la tierra.
 
 25. Conforme tu culebra ígnea va subiendo por la médula incandescente de tu cuerpo mental, vas penetrando en cada una de las cavernas correspondientes a cada vértebra.
 
-26. Aquellas cavernas iluminadas por el fuego de tu cande-lero resplandecen abrasadoramente.
+26. Aquellas cavernas iluminadas por el fuego de tu candelero resplandecen abrasadoramente.
 
 27. Aquellas cavernas, en las cuales todavía no flamea tu antorcha encendida, están llenas de tinieblas, de humo, y solo tú, ¡Oh ARHAT!, puedes disipar esas tinieblas con el fuego sagrado de tu candelero. 28- En cada una de las treinta y tres cavernas del ARHAT chisporrotea el fuego abrasador de la mente cósmica de la Naturaleza.
 
-29. En cada una de las treinta y tres cavernas del ARHAT, situadas entre las entrañas de la tierra, se cultivan los miste-rios sagrados del fuego.
+29. En cada una de las treinta y tres cavernas del ARHAT, situadas entre las entrañas de la tierra, se cultivan los misterios sagrados del fuego.
 
 30. Conforme el ARHAT va iluminando sus cavernas con la antorcha de su candelero, la luz y el fuego van convirtiendo su mente-materia en mente-Cristo.
 
-31. Después de que Jonás fue vomitado por un pez, pre-dicó en Nínive, y se sentó debajo de una calabacera para tra-bajar con los poderes de la mente, que flamea entre el crepitar de las ascuas ardientes de la Mente Cósmica.
+31. Después de que Jonás fue vomitado por un pez, predicó en Nínive, y se sentó debajo de una calabacera para trabajar con los poderes de la mente, que flamea entre el crepitar de las ascuas ardientes de la Mente Cósmica.
 
 32. Las gentes no entienden el símbolo de Jonás a pesar de que el Cristo resucitó después de tres días.
 
@@ -286,7 +290,7 @@ Elevemos nuestro cáliz flameante, entre el chisporrotear ardiente de la Diosa M
 
 34. Desvístete de tus vestimentas viles, porque están llenas de gusanos de toda podredumbre.
 
-35. El gusano de la podredumbre seca y mata a la calaba-cera.
+35. El gusano de la podredumbre seca y mata a la calabacera.
 
 36. Con el rito de la calabacera solo pueden oficiar los ARHAT.
 
@@ -296,7 +300,7 @@ Elevemos nuestro cáliz flameante, entre el chisporrotear ardiente de la Diosa M
 
 39. Ahora comprenderás que la planta de la calabacera pertenece al plano mental. 40- Ahora entenderás todo el símbolo de Jonás el profeta, sentado debajo de una calabacera.
 
-41. El momentáneo apagar de las luces durante el rito sim-boliza el paso de las tinieblas a la luz.
+41. El momentáneo apagar de las luces durante el rito simboliza el paso de las tinieblas a la luz.
 
 42. Debemos arrojar de nosotros todas aquellas bajezas de naturaleza animal.
 
@@ -308,23 +312,23 @@ Elevemos nuestro cáliz flameante, entre el chisporrotear ardiente de la Diosa M
 
 # EL TERCER GUARDIÁN
 
-1. La mente vive reaccionando contra los impactos que provienen del mundo exterior, tú debes controlar las reaccio-nes de la mente por medio de la voluntad.
+1. La mente vive reaccionando contra los impactos que provienen del mundo exterior, tú debes controlar las reacciones de la mente por medio de la voluntad.
 
-2. Si arrojáis una piedra a un lago, veréis salir ondas crista-linas que van del centro hacia la periferia, esas ondas vienen a ser la reacción del agua contra la piedra.
+2. Si arrojáis una piedra a un lago, veréis salir ondas cristalinas que van del centro hacia la periferia, esas ondas vienen a ser la reacción del agua contra la piedra.
 
 3. Si alguien nos insulta, sentimos ira; esa ira viene a ser la reacción de nuestra mente contra las palabras duras del que insulta.
 
-4. Una imagen pornográfica hiere los sentidos externos y va a la mente. Entonces la mente reacciona como el lago de nuestro ejemplo, con ondas de pasión animal que van del cen-tro a la periferia.
+4. Una imagen pornográfica hiere los sentidos externos y va a la mente. Entonces la mente reacciona como el lago de nuestro ejemplo, con ondas de pasión animal que van del centro a la periferia.
 
 5. Debemos subyugar los sentidos y dominar la mente con el látigo terrible de la voluntad.
 
 6. Nuestra mente vive reaccionando contra los impactos del mundo exterior. 7- Las reacciones incesantes de la mente nos acarrean placer y dolor.
 
-8. El gusto y el disgusto, no son sino el resultado de las re-acciones del entendimiento.
+8. El gusto y el disgusto, no son sino el resultado de las reacciones del entendimiento.
 
 9. Hay que controlar las reacciones del entendimiento para pasar más allá del placer y del dolor.
 
-10. Debemos volvernos serenos, indiferentes ante la ala-banza y el vituperio, ante el triunfo y la derrota.
+10. Debemos volvernos serenos, indiferentes ante la alabanza y el vituperio, ante el triunfo y la derrota.
 
 11. Todas las tempestades de nuestra existencia, no son sino el resultado de las reacciones del entendimiento, ante los impactos provenientes del mundo exterior.
 
@@ -334,15 +338,15 @@ Elevemos nuestro cáliz flameante, entre el chisporrotear ardiente de la Diosa M
 
 14. El Guardián del Umbral de la mente, es como el humo de la llama.
 
-15. El Guardián del Umbral de la mente, es una criatura te-rriblemente demoníaca que vive reaccionando hacia el mundo exterior con ondas de placer y de dolor, con ondas de gusto y de disgusto, con ondas de odio, envidia, codicia, maledicencia, egoísmo, etc.
+15. El Guardián del Umbral de la mente, es una criatura terriblemente demoníaca que vive reaccionando hacia el mundo exterior con ondas de placer y de dolor, con ondas de gusto y de disgusto, con ondas de odio, envidia, codicia, maledicencia, egoísmo, etc.
 
-16. Nosotros mismos hemos creado ese Guardián, con to-das las maldades de nuestro entendimiento.
+16. Nosotros mismos hemos creado ese Guardián, con todas las maldades de nuestro entendimiento.
 
 17. Hay necesidad de separar cuidadosamente el humo de las llamas.
 
 18. Es urgente despojamos del Guardián del Umbral de la mente, para libertarnos de nuestro pasado animal.
 
-19. Ahora el ARHAT, después de haber abierto sus alas ígneas, tendrá que pasar la prueba del Guardián del Umbral del mundo mental. 20- Ten valor, ¡oh guerrero! ¡oh luchador! Este es un instan-te supremo.
+19. Ahora el ARHAT, después de haber abierto sus alas ígneas, tendrá que pasar la prueba del Guardián del Umbral del mundo mental. 20- Ten valor, ¡oh guerrero! ¡oh luchador! Este es un instante supremo.
 
 21. Desenvaina tu espada ígnea, y lánzate intrépido hacia el Guardián del Umbral de la mente.
 
@@ -350,7 +354,7 @@ Elevemos nuestro cáliz flameante, entre el chisporrotear ardiente de la Diosa M
 
 23. Cuando aspirabais al chelado, pasasteis por la prueba del Guardián del Umbral y por la prueba del Gran Guardián del Umbral mundial.
 
-24. Ahora ya Maestro, os sale al encuentro el tercer Guar-dián. Véncelo, y tu mente se libertará de los sentidos externos.
+24. Ahora ya Maestro, os sale al encuentro el tercer Guardián. Véncelo, y tu mente se libertará de los sentidos externos.
 
 25. Se abren tus alas eternas entre el fuego de la mente que chisporrotea.
 
@@ -358,11 +362,11 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 26. Controla tu mente con el látigo de la voluntad.
 
-27. Cuando la mente te acose con representaciones per-versas, de odio o de pasión, de envidia o de egoísmo, etc., háblale a la mente así:
+27. Cuando la mente te acose con representaciones perversas, de odio o de pasión, de envidia o de egoísmo, etc., háblale a la mente así:
 
-28. Cuerpo Mental, no te acepto esa representación, retí-ramela, no te la admito, tu debes obedecerme porque yo soy tu señor.
+28. Cuerpo Mental, no te acepto esa representación, retíramela, no te la admito, tu debes obedecerme porque yo soy tu señor.
 
-29. Solo por medio de la voluntad puede el INTIMO contro-lar la Mente, no hay otro camino...
+29. Solo por medio de la voluntad puede el INTIMO controlar la Mente, no hay otro camino...
 
 30. Afirmemos nuestro ser.
 
@@ -370,9 +374,9 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 32. Yo soy el INTIMO.
 
-33. Romperé todas las cadenas del mundo. Soy el Dios vi-vo. Soy el Ser. Soy la Vida. Soy el pan de vida. Soy el Vino. 34- Entre el crepitar del fuego universal, las rosas ígneas de nuestro entendimiento flamean abrasadoras cuando afir-mamos la majestad del SER.
+33. Romperé todas las cadenas del mundo. Soy el Dios vivo. Soy el Ser. Soy la Vida. Soy el pan de vida. Soy el Vino. 34- Entre el crepitar del fuego universal, las rosas ígneas de nuestro entendimiento flamean abrasadoras cuando afirmamos la majestad del SER.
 
-35. Cuando el Guardián del Umbral de la mente huye ven-cido, se rompen los tres enigmas del tiempo, y entonces nues-tra mente chisporrotea abrasadora entre los grandes ritmos del fuego.
+35. Cuando el Guardián del Umbral de la mente huye vencido, se rompen los tres enigmas del tiempo, y entonces nuestra mente chisporrotea abrasadora entre los grandes ritmos del fuego.
 
 ## CAPÍTULO V
 
@@ -384,7 +388,7 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 3. Tu cáliz es tu cerebro, y el cerebro es el instrumento del cuerpo mental.
 
-4. Llena tu cáliz, hermano mío con la sangre del Mártir del Calvario, para que tu mente se cristifique entre el crepitar ar-diente de las llamas universales.
+4. Llena tu cáliz, hermano mío con la sangre del Mártir del Calvario, para que tu mente se cristifique entre el crepitar ardiente de las llamas universales.
 
 5. La sangre del Cordero es el vino de luz del alquimista. La sangre del Cordero es tu semen.
 
@@ -392,7 +396,7 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 7. Cuando el cáliz está vacío, es el Graal negro, es el Graal de la sombra, es el Graal de las tinieblas.
 
-8. Llena tu cáliz hermano mío, con la sangre del Cordero, para que se convierta en Santo Graal, y tu mente se Cristifi-que. 9- Ningún fornicario, ningún adúltero, podrá jamás convertir su mente-materia en mente-Cristo.
+8. Llena tu cáliz hermano mío, con la sangre del Cordero, para que se convierta en Santo Graal, y tu mente se Cristifique. 9- Ningún fornicario, ningún adúltero, podrá jamás convertir su mente-materia en mente-Cristo.
 
 10. Los Maestros que sean casados, cristificarán su mente por medio de la magia-sexual.
 
@@ -406,7 +410,7 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 15. Si queréis cristificar tu mente, discípulo de la rocallosa senda, tendréis que jurar castidad eterna.
 
-16. Tendréis que llenar tu cáliz sagrado del vino de luz, pa-ra que el fuego haga resplandecer tu mente cósmica entre el augusto tronar del pensamiento.
+16. Tendréis que llenar tu cáliz sagrado del vino de luz, para que el fuego haga resplandecer tu mente cósmica entre el augusto tronar del pensamiento.
 
 ## CAPÍTULO VI
 
@@ -424,15 +428,15 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 6. Para el indigno todas las puertas están cerradas, menos la del arrepentimiento.
 
-7. Aunque el hombre hiciera penitencias, y ayunara y lleva-ra saco y cilicios sobre su cuerpo, no por ello entraría al Edén.
+7. Aunque el hombre hiciera penitencias, y ayunara y llevara saco y cilicios sobre su cuerpo, no por ello entraría al Edén.
 
-8. Aunque el hombre estudiara toda la sabiduría de los cie-los y de la tierra, no por ello entraría al Edén.
+8. Aunque el hombre estudiara toda la sabiduría de los cielos y de la tierra, no por ello entraría al Edén.
 
 9. Al Edén no se puede entrar sino por una sola puerta, por la puerta por donde se salió.
 
 10. El hombre salió del Paraíso, por la puerta del sexo, y sólo por esa puerta puede el hombre entrar al Paraíso.
 
-11. Todo el secreto se halla en el Lingam-Yoni de los miste-rios griegos.
+11. Todo el secreto se halla en el Lingam-Yoni de los misterios griegos.
 
 12. En la unión del Phalo y del U00tero se encierran los grandes secretos del fuego universal de vida.
 
@@ -446,7 +450,7 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 18. La abstención sexual es un tremendo sacrificio.
 
-19. En los mundos internos existe un sagrado templo don-de oficia el ángel elemental que gobierna a este árbol maravi-lloso.
+19. En los mundos internos existe un sagrado templo donde oficia el ángel elemental que gobierna a este árbol maravilloso.
 
 20. Este templo está iluminado por tres lámparas eternas.
 
@@ -458,55 +462,55 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 24. Toda planta, todo árbol, tiene cuerpo, alma y espíritu como los hombres.
 
-25. Cada planta, cada árbol, tiene su alma propia y su espí-ritu propio.
+25. Cada planta, cada árbol, tiene su alma propia y su espíritu propio.
 
-26. Las almas de las plantas son los elementales que ju-guetean entre la rosa ígnea del universo.
+26. Las almas de las plantas son los elementales que juguetean entre la rosa ígnea del universo.
 
 27. El elemental del árbol manzano, tiene poderes ígneos que chisporrotean entre el aura del universo.
 
-28. Todos los hermanos que caminan por la rocallosa sen-da de las llamas abrasadoras, deben aprender la magia ele-mental de este árbol sagrado, para ayudar a la humanidad doliente.
+28. Todos los hermanos que caminan por la rocallosa senda de las llamas abrasadoras, deben aprender la magia elemental de este árbol sagrado, para ayudar a la humanidad doliente.
 
 29. Con los poderes elementales de esté árbol, podemos sembrar armonía en los hogares.
 
-30. Con los poderes elementales de este árbol, podemos hacer justicia a muchos infelices. 31- Una mujer abandonado por un mal hombre, una donce-lla caída, una infeliz martirizada por un malvado, etc., son ca-sos que podemos remediar con los poderes elementales de este árbol prodigio, cuando la ley del karma lo permite.
+30. Con los poderes elementales de este árbol, podemos hacer justicia a muchos infelices. 31- Una mujer abandonado por un mal hombre, una doncella caída, una infeliz martirizada por un malvado, etc., son casos que podemos remediar con los poderes elementales de este árbol prodigio, cuando la ley del karma lo permite.
 
-32. Aquellos que piensan que con la sola fuerza de la men-te pueden realizar maravillas, se equivocan totalmente, porque todo en la naturaleza es dual.
+32. Aquellos que piensan que con la sola fuerza de la mente pueden realizar maravillas, se equivocan totalmente, porque todo en la naturaleza es dual.
 
-33. Pensar que con la sola fuerza de la mente se pueden realizar todos los trabajos de magia práctica, es tanto como pensar que un hombre pueda engendrar un hijo sin tocar mu-jer.
+33. Pensar que con la sola fuerza de la mente se pueden realizar todos los trabajos de magia práctica, es tanto como pensar que un hombre pueda engendrar un hijo sin tocar mujer.
 
 34. Pensar que con la sola fuerza mental se pueda realizar toda clase de trabajos ocultos, es tanto como creer que con la sola pluma podemos escribir una carta sin tener papel, o con la sola electricidad podamos iluminarnos sin usar bombillas.
 
-35. Todo es dual en esta creación ardiente, a cada pensa-miento corresponde una planta.
+35. Todo es dual en esta creación ardiente, a cada pensamiento corresponde una planta.
 
-36. El elemental del manzano es de una belleza extraordi-naria, parece una novia vestida de blanco.
+36. El elemental del manzano es de una belleza extraordinaria, parece una novia vestida de blanco.
 
 37. Con el elemental del manzano podemos salvarnos de muchos peligros y arreglar muchos hogares.
 
-38. Se pondrá un tapete en el suelo junto al árbol, para ofi-ciar con el elemental manzano.
+38. Se pondrá un tapete en el suelo junto al árbol, para oficiar con el elemental manzano.
 
-39. “EBNICO ABNICAR ON”. Estos son los Mantrams del elemental del manzano, tal como me los enseñó el señor Je-hová.
+39. “EBNICO ABNICAR ON”. Estos son los Mantrams del elemental del manzano, tal como me los enseñó el señor Jehová.
 
 40. Mandarás al elemental con el imperio de tu voluntad y con el filo de la espada, hacia la persona o personas sobre las cuales necesitéis ejercer influencia.
 
-41. Y mostrome el señor Jehová el esoterismo del manza-no. 42- El manzano es la flor encarnada que la bestia devora. El manzano es el cordero y es el cerdo de la pasión animal.
+41. Y mostrome el señor Jehová el esoterismo del manzano. 42- El manzano es la flor encarnada que la bestia devora. El manzano es el cordero y es el cerdo de la pasión animal.
 
 43. Y mostrome el señor el manzano, y en sus raíces la ponzoña del escorpión.
 
 44. Y mostrome el señor Jehová una columna de luz blanca purísima e inmaculada, que se levantaba hacia el cielo sobre un plato de ascuas.
 
-45. El manzano es el GLORIAN, y a su alrededor chisporro-tean los siete grados de poder del fuego.
+45. El manzano es el GLORIAN, y a su alrededor chisporrotean los siete grados de poder del fuego.
 
 46. Y mostrome el señor Jehová un gran monte, y muchos Maestros de la LOGIA BLANCA, cada maestro al pie de su manzano.
 
 47. Y díjome el señor Jehová: “Sólo tú sabes lo que hemos podido completar los maestros”.
 
-48. Y mostrome el señor Jehová a un niño inocente, des-nudo y lleno de belleza y díjome: “Así volvemos a ser cuando llegamos al cuarto grado de poder del fuego”.
+48. Y mostrome el señor Jehová a un niño inocente, desnudo y lleno de belleza y díjome: “Así volvemos a ser cuando llegamos al cuarto grado de poder del fuego”.
 
 49. Entonces yo entendí las enseñanzas del señor Jehová, llenas de luz y de sabiduría.
 
 50. Estas son las santas enseñanzas del Salvador del mundo.
 
-51. Estas son las santas enseñanzas de Jehová y del Mes-ías príncipe, al cual amamos los Gnósticos.
+51. Estas son las santas enseñanzas de Jehová y del Mesías príncipe, al cual amamos los Gnósticos.
 
 52. El ARHAT se convierte en un niño, así he aprendido del señor Jehová.
 
@@ -514,29 +518,29 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 54. Cierto día, estando yo AUN WEOR sumido en profunda meditación, dije al señor Jehová: ¡Oh Jehová! ayúdame; y el señor Jehová respondió:
 
-55. “Yo siempre te he ayudado, yo siempre ayudaré a todos aquellos que ya pasaron por las escuelas de los Baales”. 56- Y tenía el señor Jehová una corona triangular en su ca-beza. Y su rostro era como un relámpago, y sus ojos como antorchas de fuego ardiente, y sus brazos y sus piernas como metal incandescente.
+55. “Yo siempre te he ayudado, yo siempre ayudaré a todos aquellos que ya pasaron por las escuelas de los Baales”. 56- Y tenía el señor Jehová una corona triangular en su cabeza. Y su rostro era como un relámpago, y sus ojos como antorchas de fuego ardiente, y sus brazos y sus piernas como metal incandescente.
 
-57. Abandonad todas esas escuelas de los Baales, y sen-taos debajo de vuestros manzanos.
+57. Abandonad todas esas escuelas de los Baales, y sentaos debajo de vuestros manzanos.
 
 ## CAPÍTULO VII
 
 # EL CUERPO DE LA LIBERACIÓN
 
-1. Hay dos clases de carne, una que viene de Adán y otra que no viene de Adán. La carne que viene de Adán es grosera y corruptible, y la carne que no viene de Adán es eterna e in-corruptible.
+1. Hay dos clases de carne, una que viene de Adán y otra que no viene de Adán. La carne que viene de Adán es grosera y corruptible, y la carne que no viene de Adán es eterna e incorruptible.
 
-2. Cuando la serpiente ígnea del cuerpo mental llega a cier-to cañón de nuestra columna espinal, entonces el Maestro muere y nace en vida.
+2. Cuando la serpiente ígnea del cuerpo mental llega a cierto cañón de nuestra columna espinal, entonces el Maestro muere y nace en vida.
 
 3. El Divino Rabí de Galilea montado en un pollino, entra a la Jerusalén celestial con el nuevo liberado.
 
 4. Y el nuevo liberado entra también montado en un burro a la ciudad triunfante y victorioso, donde se le recibe con palmas y alabanzas.
 
-5. El Maestro contempla su cuerpo de arcilla vuelto peda-zos, y el divino Rabí de Galilea le dice al nuevo liberado: “Tú ya no necesitas de eso”.
+5. El Maestro contempla su cuerpo de arcilla vuelto pedazos, y el divino Rabí de Galilea le dice al nuevo liberado: “Tú ya no necesitas de eso”.
 
 6. Desde estos instantes el Maestro se ha liberado de la rueda de nacimientos y de muertes.
 
-7. Con los mejores átomos del cuerpo físico, se ha formado un nuevo cuerpo físico ultrasensible, lleno de belleza y de mi-lenarias perfecciones; tiene la semblanza majestuosa del cris-to-cósmico, y es eterno e incorruptible. 8- Este vehículo que viene a reemplazar al cuerpo físico de arcilla, se ha formado entre el fondo vital de nuestro cuerpo de arcilla, en la misma forma en que el polluelo se forma entre el huevo.
+7. Con los mejores átomos del cuerpo físico, se ha formado un nuevo cuerpo físico ultrasensible, lleno de belleza y de milenarias perfecciones; tiene la semblanza majestuosa del cristo-cósmico, y es eterno e incorruptible. 8- Este vehículo que viene a reemplazar al cuerpo físico de arcilla, se ha formado entre el fondo vital de nuestro cuerpo de arcilla, en la misma forma en que el polluelo se forma entre el huevo.
 
-9. Cuando Franz Harttmann visitó el templo de Bohemia se encontró con Paracelso, Juana de Arco y muchos otros adep-tos, viviendo en carne y hueso en ese monasterio sagrado.
+9. Cuando Franz Harttmann visitó el templo de Bohemia se encontró con Paracelso, Juana de Arco y muchos otros adeptos, viviendo en carne y hueso en ese monasterio sagrado.
 
 10. Comió con los Hermanos Mayores en el refectorio de los Hermanos y Paracelso lo instruyó dentro de su laboratorio y transmutó plomo en oro, en su presencia.
 
@@ -546,11 +550,11 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 13. Desde entonces ella vive en ese templo con su cuerpo físico ultrasensible, en presencia de todos los otros Hermanos Mayores.
 
-14. Este nuevo cuerpo físico tiene el poder de hacerse visi-ble y tangible en cualquier parte, y se alimenta con frutas y agua pura. La miel de abejas es el alimento de los maestros de la Fraternidad Universal Blanca.
+14. Este nuevo cuerpo físico tiene el poder de hacerse visible y tangible en cualquier parte, y se alimenta con frutas y agua pura. La miel de abejas es el alimento de los maestros de la Fraternidad Universal Blanca.
 
 15. Fuera del cuerpo de arcilla, “Nosotros” los miembros del Sagrado Colegio de Iniciados, funcionamos con este cuerpo de la liberación, hecho del más puro almizcle.
 
-16. Empero cuando estamos encarnados cumpliendo mi-sión en favor de la humanidad doliente, pasamos inadvertidos por todas partes como cualquier transeúnte de la calle, vesti-dos con el traje de paisano, viviendo y trabajando para ganar el pan de cada día como cualquier otro ciudadano.
+16. Empero cuando estamos encarnados cumpliendo misión en favor de la humanidad doliente, pasamos inadvertidos por todas partes como cualquier transeúnte de la calle, vestidos con el traje de paisano, viviendo y trabajando para ganar el pan de cada día como cualquier otro ciudadano.
 
 17. El cuerpo de la liberación nos convierte en ciudadanos del Edén. 18- Así es como el CRISTO nos entra por las puertas de la ciudad triunfante y victoriosa.
 
@@ -558,7 +562,7 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 # LA DIOSA MADRE DEL MUNDO
 
-1. La estrella de cinco puntas, y la cruz estrellada, resplan-decen ahora en el cielo azul del ARHAT.
+1. La estrella de cinco puntas, y la cruz estrellada, resplandecen ahora en el cielo azul del ARHAT.
 
 2. Entre el chisporrotear ardiente de las llamas universales, vamos a celebrar ahora la fiesta de la Virgen, la bendita Diosa Madre del mundo.
 
@@ -568,17 +572,17 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 5. Cuando penetramos en nuestros mundos internos nos encontramos a la Madre de todos los vivientes, oficiando en su templo.
 
-6. Toda la inmensa naturaleza, no es sino el cuerpo gran-dioso de la reina del cielo.
+6. Toda la inmensa naturaleza, no es sino el cuerpo grandioso de la reina del cielo.
 
-7. La Diosa Madre del Mundo es un Gurú-Deva, de perfec-ciones eternales...
+7. La Diosa Madre del Mundo es un Gurú-Deva, de perfecciones eternales...
 
-8. En el templo de la bendita Diosa Madre del mundo ve-mos dos altares, y en medio de ellos al León de la Ley.
+8. En el templo de la bendita Diosa Madre del mundo vemos dos altares, y en medio de ellos al León de la Ley.
 
 9. Esta Diosa del Fuego ha sido personificada por las vírgenes de todas las religiones: Isis, María, Maya, Adonía, Astarté, Insoberta, etc.
 
 10. Ella es la Madre de todos los vivientes. 11- Celebremos la fiesta de la Virgen Madre del Mundo, ¡Oh ARHAT!
 
-12. La estrella de cinco puntas y la cruz estrellada resplan-decen en los cielos eternos del ARHAT.
+12. La estrella de cinco puntas y la cruz estrellada resplandecen en los cielos eternos del ARHAT.
 
 13. ¡Qué bella es la Madre del Mundo! Miradla allí en su templo inefable, gobernando la naturaleza entera.
 
@@ -594,37 +598,37 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 2. Las puertas de los templos cósmicos están hechas con maderas de cedro.
 
-3. El cedro está íntimamente relacionado con las abrasado-ras llamas de nuestra columna espinal.
+3. El cedro está íntimamente relacionado con las abrasadoras llamas de nuestra columna espinal.
 
-4. Los Devas que gobiernan a los elementales de los ce-dros de los bosques, tienen el poder de abrir la puerta incan-descente de nuestro canal de Susumá.
+4. Los Devas que gobiernan a los elementales de los cedros de los bosques, tienen el poder de abrir la puerta incandescente de nuestro canal de Susumá.
 
-5. Este canal es como un pasillo subterráneo con sus trein-ta y tres cámaras abrasadoras de nuestra médula sagrada, donde chisporrotean las llamas entre el crepitar de este gran incendio universal.
+5. Este canal es como un pasillo subterráneo con sus treinta y tres cámaras abrasadoras de nuestra médula sagrada, donde chisporrotean las llamas entre el crepitar de este gran incendio universal.
 
-6. La entrada a este pasillo incandescente está íntimamen-te relacionada con la vida de los cedros del bosque. 7- Nosotros aconsejamos a nuestros discípulos, que se acuesten sobre tablones de cedro.
+6. La entrada a este pasillo incandescente está íntimamente relacionada con la vida de los cedros del bosque. 7- Nosotros aconsejamos a nuestros discípulos, que se acuesten sobre tablones de cedro.
 
-8. La columna espinal debe ser puesta en contacto desnu-do con madera de cedro.
+8. La columna espinal debe ser puesta en contacto desnudo con madera de cedro.
 
 9. El elemental de este árbol está envuelto en blanca túnica y blanco manto.
 
-10. El elemental del cedro tiene el poder de hacernos invi-sibles ante nuestros enemigos.
+10. El elemental del cedro tiene el poder de hacernos invisibles ante nuestros enemigos.
 
-11. El elemental de este árbol nos permite profetizar acon-tecimientos para el futuro.
+11. El elemental de este árbol nos permite profetizar acontecimientos para el futuro.
 
-12. Los cedros del Líbano sirvieron para construir las puer-tas del templo de Jerusalém.
+12. Los cedros del Líbano sirvieron para construir las puertas del templo de Jerusalém.
 
 13. Los jueves y viernes santos, los cedros de los bosques se comunican entre sí por lúgubres sonidos, que resuenan en los ámbitos solitarios de las montañas.
 
 14. Los cetros de los patriarcas están hechos de cedro.
 
-15. Meditando en el cedro, se descorre ante nuestra vista interna todo el panorama de las cosas futuras, y entonces po-demos profetizar.
+15. Meditando en el cedro, se descorre ante nuestra vista interna todo el panorama de las cosas futuras, y entonces podemos profetizar.
 
-16. Rogando al elemental del cedro que nos haga invisi-bles, él concede nuestra petición, y así quedamos invisibles ante la vista de nuestros enemigos.
+16. Rogando al elemental del cedro que nos haga invisibles, él concede nuestra petición, y así quedamos invisibles ante la vista de nuestros enemigos.
 
-17. El orificio inferior de nuestra médula espinal, es la puer-ta de nuestro horno ardiente.
+17. El orificio inferior de nuestra médula espinal, es la puerta de nuestro horno ardiente.
 
 18. El guardián de esa puerta, es el ángel que gobierna a todos los elementales de los cedros.
 
-19. Todas las puertas de los templos están hechas con madera de Cedro. “Oh Líbano, abre tus puertas, y queme fue-go tus cedros” (Vers. 1, Cap. 11: Zacarías). 20- Por ello es que la puerta de entrada al canal de Su-sumá, está gobernada por el ángel regente de los elementales de los cedros de los bosques.
+19. Todas las puertas de los templos están hechas con madera de Cedro. “Oh Líbano, abre tus puertas, y queme fuego tus cedros” (Vers. 1, Cap. 11: Zacarías). 20- Por ello es que la puerta de entrada al canal de Susumá, está gobernada por el ángel regente de los elementales de los cedros de los bosques.
 
 ## CAPÍTULO X
 
@@ -632,21 +636,21 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 1. “Y miré la altura de la casa alrededor: los cimientos de las cámaras eran una caña entera de seis codos de grandor”. (Vers. 8, Cap. 41, Ezequiel).
 
-2. “Y el que hablaba conmigo, tenía una medida de una ca-ña de oro para medir la ciudad, y sus puertas, y su muro”. (Vers. 15, Cap. 21, Apocalipsis).
+2. “Y el que hablaba conmigo, tenía una medida de una caña de oro para medir la ciudad, y sus puertas, y su muro”. (Vers. 15, Cap. 21, Apocalipsis).
 
-3. “Y llevome allí, y he aquí un varón, cuyo aspecto era co-mo aspecto de metal, y tenía un cordel de lino en su mano, y una caña de medir: y él estaba a la puerta”. (Vers. 3; Cap. 40; Ezequiel).
+3. “Y llevome allí, y he aquí un varón, cuyo aspecto era como aspecto de metal, y tenía un cordel de lino en su mano, y una caña de medir: y él estaba a la puerta”. (Vers. 3; Cap. 40; Ezequiel).
 
 4. La caña es el cetro de los maestros de la Fraternidad Blanca.
 
-5. En la caña se registra el ascenso o el descenso del fue-go sagrado.
+5. En la caña se registra el ascenso o el descenso del fuego sagrado.
 
 6. Dentro de la caña está toda la sabiduría del río Eufrates.
 
 7. Dentro de la caña está toda la sabiduría de los cuatro ríos del Edén.
 
-8. La caña representa exactamente nuestra columna espi-nal.
+8. La caña representa exactamente nuestra columna espinal.
 
-9. En el centro de nuestra médula espinal existe un fino ca-nal medular. Ese fino canal medular es el canal de Susumná.
+9. En el centro de nuestra médula espinal existe un fino canal medular. Ese fino canal medular es el canal de Susumná.
 
 10. En el centro del canal de Susumná existe un hilo que corre a lo largo de la médula espinal. 11- Por ese fino hilo nervioso asciende el Kundalini, desde el coxis hasta el entrecejo siguiendo el curso medular.
 
@@ -658,71 +662,71 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 15. El Kundalini es el fuego sagrado.
 
-16. El Kundalini se halla encerrado en una bolsa membra-nosa, situada en el hueso coxígeo.
+16. El Kundalini se halla encerrado en una bolsa membranosa, situada en el hueso coxígeo.
 
-17. Con la magia-sexual, el Kundalini entra en actividad, rompe la bolsa membranosa en que se halla encerrado, y en-tra en el canal medular por un orificio o puerta situada en la parte inferior de la médula.
+17. Con la magia-sexual, el Kundalini entra en actividad, rompe la bolsa membranosa en que se halla encerrado, y entra en el canal medular por un orificio o puerta situada en la parte inferior de la médula.
 
 18. Esta puerta medular permanece cerrada en personas comunes y corrientes.
 
-19. Los vapores seminales permiten entonces al ángel go-bernador de los elementales de los cedros, abrir esa puerta, para que nuestra culebra ígnea entre por allí...
+19. Los vapores seminales permiten entonces al ángel gobernador de los elementales de los cedros, abrir esa puerta, para que nuestra culebra ígnea entre por allí...
 
 20. El fuego va subiendo lentamente, de acuerdo con los méritos del corazón.
 
 21. Cada una de nuestras treinta y tres cámaras sagradas representa determinados poderes cósmicos, y determinadas sumas de valores de santidad.
 
-22. El ángel gobernador de todos los elementales de los manzanos, va abriendo las cámaras santas de nuestra colum-na espinal, conforme practicamos magia-sexual y nos santifi-camos.
+22. El ángel gobernador de todos los elementales de los manzanos, va abriendo las cámaras santas de nuestra columna espinal, conforme practicamos magia-sexual y nos santificamos.
 
-23. En el semen existe un átomo Angélico que gobierna a nuestros vapores seminales. 24- Ese átomo angélico eleva los vapores de nuestro se-men hacia el canal medular; para que el ángel de los cedros del bosque lo utilice para abrir la puerta inferior de la médula, a fin de que la divina princesa del Kundalini entre por allí.
+23. En el semen existe un átomo Angélico que gobierna a nuestros vapores seminales. 24- Ese átomo angélico eleva los vapores de nuestro semen hacia el canal medular; para que el ángel de los cedros del bosque lo utilice para abrir la puerta inferior de la médula, a fin de que la divina princesa del Kundalini entre por allí.
 
-25. Por ello las puertas del templo de Salomón se constru-yeron con cedros del Líbano.
+25. Por ello las puertas del templo de Salomón se construyeron con cedros del Líbano.
 
 26. En la palabra LÍBANO se halla encerrada el I.A.O., que permite al ángel de los cedros del bosque abrir la puerta de la médula espinal, cuando practicamos magia-sexual.
 
 27. I.A.O. es el Mantram de la magia-sexual.
 
-28. La pronunciación correcta de este Mantram es vocali-zando cada letra por separado y alargando el sonido de cada vocal.
+28. La pronunciación correcta de este Mantram es vocalizando cada letra por separado y alargando el sonido de cada vocal.
 
 29. El Mantram I.A.O. se debe vocalizar durante los trances de la magia-sexual para despertar nuestro fuego sagrado.
 
 30. En nuestra columna espinal existen siete “NADIS”, o centros ocultos, simbolizados por los siete nudos de la caña de bambú.
 
-31. Nuestra columna espinal, verdaderamente tiene la for-ma de una caña de bambú con sus siete nudos.
+31. Nuestra columna espinal, verdaderamente tiene la forma de una caña de bambú con sus siete nudos.
 
 32. Los rituales del primero, segundo y hasta tercer grado, con los cuales oficiamos los Gnósticos, pertenecen a la caña.
 
 33. Nuestra columna espinal tiene dos orificios, uno inferior y uno superior.
 
-34. El orificio inferior, es la puerta de entrada a la médula, y el superior, situado en la parte superior del cráneo, es la puer-ta de salida de la médula. Por allí desciende la fuerza terrible de las Jerarquías, junto con el silbido del FOAT, por entre las profundidades de nuestra caña, para hacer subir el fuego sa-grado cuando nos ganamos un cañón espinal.
+34. El orificio inferior, es la puerta de entrada a la médula, y el superior, situado en la parte superior del cráneo, es la puerta de salida de la médula. Por allí desciende la fuerza terrible de las Jerarquías, junto con el silbido del FOAT, por entre las profundidades de nuestra caña, para hacer subir el fuego sagrado cuando nos ganamos un cañón espinal.
 
-35. Entonces se abre una puerta ante nosotros y un Maes-tro nos dice: entra. 36- Y entramos en un patio, y en un templo para recibir el grado, los símbolos y la fiesta.
+35. Entonces se abre una puerta ante nosotros y un Maestro nos dice: entra. 36- Y entramos en un patio, y en un templo para recibir el grado, los símbolos y la fiesta.
 
 37. Estas son las fiestas de los templos y las fiestas de los dioses.
 
 38. Y así, por este camino de fuego ardiente y abrasador, vamos entrando en cada una de nuestras cámaras ígneas que chisporrotean entre el fuego del universo.
 
-39. Cuando el hombre se deja caer, es decir, cuando de-rrama su semen, es el ángel del manzano, gobernador de to-dos los elementales de los manzanos, cierra la puerta de una o más cámaras de nuestra columna espinal, y el fuego sagra-do desciende uno o más cañones, según la magnitud de la falta.
+39. Cuando el hombre se deja caer, es decir, cuando derrama su semen, es el ángel del manzano, gobernador de todos los elementales de los manzanos, cierra la puerta de una o más cámaras de nuestra columna espinal, y el fuego sagrado desciende uno o más cañones, según la magnitud de la falta.
 
 40. Cuando el fuego sagrado ha penetrado en todas las treinta y tres cámaras ardientes, viene la alta iniciación.
 
 41. El INTIMO tiene dos almas: una divina y otra humana.
 
-42. En la alta iniciación, el Alma-Divina se fusiona totalmen-te con el INTIMO, y entonces el INTIMO nace en los mundos internos como un nuevo Maestro de misterios mayores de la Fraternidad Universal Blanca.
+42. En la alta iniciación, el Alma-Divina se fusiona totalmente con el INTIMO, y entonces el INTIMO nace en los mundos internos como un nuevo Maestro de misterios mayores de la Fraternidad Universal Blanca.
 
-43. Las siete rosas ardientes de nuestra columna espinal flamean entonces victoriosas entre el aura abrasadora del uni-verso.
+43. Las siete rosas ardientes de nuestra columna espinal flamean entonces victoriosas entre el aura abrasadora del universo.
 
-44. El nuevo Maestro surge entonces de entre las profundi-dades vivas de la conciencia, y se abre paso a través del cuerpo de la voluntad, y a través de los cuerpos mental, astral y vital, para expresarse por último, a través de nuestra laringe creadora.
+44. El nuevo Maestro surge entonces de entre las profundidades vivas de la conciencia, y se abre paso a través del cuerpo de la voluntad, y a través de los cuerpos mental, astral y vital, para expresarse por último, a través de nuestra laringe creadora.
 
-45. Ahora el Maestro debe extraer de sus vehículos inferio-res, todos sus extractos anímicos.
+45. Ahora el Maestro debe extraer de sus vehículos inferiores, todos sus extractos anímicos.
 
 46. Esta labor se realiza mediante el fuego.
 
-47. El fuego tiene siete grados de poder. 48- Los siete grados de poder del fuego pertenecen a nues-tros siete cuerpos.
+47. El fuego tiene siete grados de poder. 48- Los siete grados de poder del fuego pertenecen a nuestros siete cuerpos.
 
 49. Tenemos siete culebras sagradas, dos grupos de a tres, con la coronación sublime de la séptima serpiente de fuego ardiente, que nos une con la ley y con el PADRE.
 
 50. Estas son las siete escalas del conocimiento.
 
-51. Estos son los siete portales de las siete grandes inicia-ciones de misterios mayores.
+51. Estos son los siete portales de las siete grandes iniciaciones de misterios mayores.
 
 52. A través de estos siete portales, solo reina el terror de amor y ley.
 
@@ -736,7 +740,7 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 57. La médula de cada uno de nuestros siete cuerpos está simbolizada por cada una de nuestras siete cañas.
 
-58. El Vino sagrado (semen), reside en cada una de nues-tras siete copas.
+58. El Vino sagrado (semen), reside en cada una de nuestras siete copas.
 
 59. El plano físico, el plano etérico, el plano astral, el plano mental, el plano causal, el plano concientivo (Buddhico) y el plano del INTIMO (ÁTMICO), son los siete montes eternos.
 
@@ -744,7 +748,7 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 61. Debemos convertirnos en reyes ardientes sobre la cumbre majestuosa de los siete montes eternos.
 
-62. Debemos empuñar cada una de nuestras siete cañas. 63- El ángel que gobierna la vida elemental de los bamb-úes, tiene también el poder de recibirnos en los grandes miste-rios del fuego, o de arrojarnos de los santos templos.
+62. Debemos empuñar cada una de nuestras siete cañas. 63- El ángel que gobierna la vida elemental de los bambúes, tiene también el poder de recibirnos en los grandes misterios del fuego, o de arrojarnos de los santos templos.
 
 64. En nuestra caña están registrados todos nuestros actos buenos y malos.
 
@@ -756,19 +760,19 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 68. Cristo, que soportó todas las tentaciones, es el único que puede damos poder y fortaleza para no caer en tentación.
 
-69. Hay que formar a Cristo en nosotros para adquirir forta-leza y no caer en tentación.
+69. Hay que formar a Cristo en nosotros para adquirir fortaleza y no caer en tentación.
 
 70. Hay que formar en nosotros al Cristo.
 
 71. El Cristo se forma en nosotros, practicando magia-sexual intensamente con la mujer, o absteniéndose totalmente con el terrible sacrificio de la abstención.
 
-72. La sustancia CRISTO, está difundida por todos los es-pacios infinitos, y conforme practicamos magia-sexual va sien-do absorbida en cada uno de nuestros siete cuerpos, hasta formar en nosotros el Cristo.
+72. La sustancia CRISTO, está difundida por todos los espacios infinitos, y conforme practicamos magia-sexual va siendo absorbida en cada uno de nuestros siete cuerpos, hasta formar en nosotros el Cristo.
 
 73. Estos siete portales ardientes, son algo muy propio, muy íntimo, muy particular, y muy profundo...
 
-74. El camino de la Iniciación es algo muy interno y delica-do.
+74. El camino de la Iniciación es algo muy interno y delicado.
 
-75. Para poseer la caña, debe libertarse el discípulo, de to-da clase de escuelas, religiones, sectas, partidos políticos, conceptos de patria y de bandera, dogmatismos, intelectualis-mos, miedos, apetencias, ansias de acumulación, prejuicios, convencionalismos, egoísmos, odios, cóleras, opiniones, polémicas de aulas, autoritarismos, etc.
+75. Para poseer la caña, debe libertarse el discípulo, de toda clase de escuelas, religiones, sectas, partidos políticos, conceptos de patria y de bandera, dogmatismos, intelectualismos, miedos, apetencias, ansias de acumulación, prejuicios, convencionalismos, egoísmos, odios, cóleras, opiniones, polémicas de aulas, autoritarismos, etc.
 
 76. Hay que buscar un Gurú, para que nos conduzca por este camino interno y delicado...
 
@@ -778,11 +782,11 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 ### ADENTRO... ADENTRO...
 
-79. El Maestro se encuentra en las profundidades de nues-tra conciencia.
+79. El Maestro se encuentra en las profundidades de nuestra conciencia.
 
-80. Si queréis buscar al Maestro, abandonad la erudición li-bresca y las escuelas seudo-espiritualistas...
+80. Si queréis buscar al Maestro, abandonad la erudición libresca y las escuelas seudo-espiritualistas...
 
-81. Cuando el discípulo está preparado, el maestro apare-ce.
+81. Cuando el discípulo está preparado, el maestro aparece.
 
 82. El peligro más grave que tiene el ocultista, es la cultura libresca.
 
@@ -790,11 +794,11 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 84. Entonces el estudiante, envanecido por el intelecto, se siente amo de la sabiduría mundial, y no solamente pierde el tiempo lamentablemente de escuela en escuela, sino que se cierra a sí mismo la puerta de la Iniciación y cae en la magia negra.
 
-85. Debemos volvernos como niños para penetrar en la sa-biduría del fuego, que está muy dentro de nosotros, en las profundidades vivas de nuestra conciencia interna.
+85. Debemos volvernos como niños para penetrar en la sabiduría del fuego, que está muy dentro de nosotros, en las profundidades vivas de nuestra conciencia interna.
 
 86. Hay que ser humildes para alcanzar la sabiduría, y después de alcanzada la sabiduría, debemos ser mucho más humildes.
 
-87. Hablando esotéricamente, la caña de bambú de siete nudos, es la raíz de nuestros pies. 88- Cuando comprendemos que las raíces más íntimas de nuestra existencia se esconden en las profundidades de nues-tra médula espinal y de nuestro semen, entonces entendemos este símbolo de la sabiduría ardiente.
+87. Hablando esotéricamente, la caña de bambú de siete nudos, es la raíz de nuestros pies. 88- Cuando comprendemos que las raíces más íntimas de nuestra existencia se esconden en las profundidades de nuestra médula espinal y de nuestro semen, entonces entendemos este símbolo de la sabiduría ardiente.
 
 89. Sobre lo ignoto se posan nuestros pies espirituales, y lo ignoto reside en nuestra caña, por ello la caña es la raíz de nuestros pies, hablando en lengua esotérica.
 
@@ -808,25 +812,25 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 94. Si el hombre no tuviera una columna espinal, de nada le servirían los pies, porque no podría sostenerse sobre ellos, le faltaría la caña para permanecer erecto.
 
-95. Si el hombre puede sostenerse sobre sus pies es por la caña. Ahora comprendemos el símbolo de la sabiduría ardien-te, cuando afirma que la caña es la raíz de nuestros pies.
+95. Si el hombre puede sostenerse sobre sus pies es por la caña. Ahora comprendemos el símbolo de la sabiduría ardiente, cuando afirma que la caña es la raíz de nuestros pies.
 
 96. Sin esas raíces, nuestros pies no podrían sostener el cuerpo físico, y no servirían para nada.
 
 97. Todo el poder del hombre reside en el semen y en la médula.
 
-98. Los pies de los grandes monarcas del fuego se sostie-nen bajo el poder ajestuoso de su caña, por ello es que la ca-ña es la raíz de nuestros pies.
+98. Los pies de los grandes monarcas del fuego se sostienen bajo el poder ajestuoso de su caña, por ello es que la caña es la raíz de nuestros pies.
 
-99. ¡Ay! del Maestro que pierde el poder de su caña, por-que sus pies rodarán al abismo... 100- Cada uno de los elementales de las cañas de bambú es un niño inocente de túnica blanca.
+99. ¡Ay! del Maestro que pierde el poder de su caña, porque sus pies rodarán al abismo... 100- Cada uno de los elementales de las cañas de bambú es un niño inocente de túnica blanca.
 
 101. Uno se queda anonadado cuando entra en el templo del ángel que gobierna a esta población elemental de los bambúes.
 
-102. En el templo de este ángel vemos a estos niños ele-mentales viviendo una vida paradisíaca.
+102. En el templo de este ángel vemos a estos niños elementales viviendo una vida paradisíaca.
 
 103. El templo está lleno de flores de inmaculada belleza, y estos niños inocentes juegan felices entre los jardines del templo.
 
 104. El ángel que los gobierna, los educa e instruye en la sabiduría de la naturaleza.
 
-105. En ese templo del ángel de los bambúes, sólo hay sa-biduría, niños que juegan, música y flores...
+105. En ese templo del ángel de los bambúes, sólo hay sabiduría, niños que juegan, música y flores...
 
 106. Así fuimos nosotros los humanos en el pasado, niños elementales jugueteando en el Edén...
 
@@ -846,19 +850,19 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 115. Si por comer la fruta prohibida, salimos del Paraíso, no comiéndola volvemos al Paraíso.
 
-116. Empuñemos nuevamente nuestra caña de siete nu-dos, para que nos convirtamos en monarcas omnipotentes de los siete montes.
+116. Empuñemos nuevamente nuestra caña de siete nudos, para que nos convirtamos en monarcas omnipotentes de los siete montes.
 
 ## CAPÍTULO XI
 
 # ELÍAS EL PROFETA
 
-1. En el abismo, el hombre fundó las escuelas de los Baa-les.
+1. En el abismo, el hombre fundó las escuelas de los Baales.
 
-2. Las escuelas de los Baales son todas las escuelas seu-do-espiritualistas que actualmente existen en el mundo.
+2. Las escuelas de los Baales son todas las escuelas seudo-espiritualistas que actualmente existen en el mundo.
 
 3. Todas esas escuelas externas son del abismo, y si el hombre quiere salir del abismo, tiene que libertar su mente de todas esas “Jaulas”.
 
-4. Cuando penetramos a los mundos internos, vemos a to-dos los estudiantes de esas escuelas de los Baales sumergi-dos en las profundas tinieblas de la magia negra.
+4. Cuando penetramos a los mundos internos, vemos a todos los estudiantes de esas escuelas de los Baales sumergidos en las profundas tinieblas de la magia negra.
 
 5. Todos esos pobres seres andan buscando afuera lo que tenemos dentro.
 
@@ -868,13 +872,13 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 8. Los Baales son los magos negros.
 
-9. Todas esas escuelas espiritualistas están llenas de forni-caciones y adulterios. 10- Todas esas escuelas espiritualistas, son las escuelas de los Baales.
+9. Todas esas escuelas espiritualistas están llenas de fornicaciones y adulterios. 10- Todas esas escuelas espiritualistas, son las escuelas de los Baales.
 
 11. Cierto día, estando sumergido en profunda meditación y oración, hablé al señor Jehová así: ¡Oh! Jehová, Dios mío, estoy solo luchando contra todas las escuelas, contra todas las religiones y contra todas las sectas del mundo.
 
 12. Mis enemigos son tan numerosos como las arenas del mar, y estoy solo contra el mundo. ¿En qué vendrá a parar todo esto?
 
-13. Entonces vi en visión de Dios la época de Elías el pro-feta. Un Maestro tenía entre sus brazos un cuadro luminoso, en el que aparecía la imagen del venerable anciano.
+13. Entonces vi en visión de Dios la época de Elías el profeta. Un Maestro tenía entre sus brazos un cuadro luminoso, en el que aparecía la imagen del venerable anciano.
 
 14. Este era Elías el profeta. Su cabello era como lana blanca, su frente amplia y fuerte como los muros invictos de Sión.
 
@@ -882,57 +886,57 @@ Entre el crepitar de las llamas, los tenebrosos del mundo de la mente te atacan;
 
 16. Sus ojos resplandecían como antorchas encendidas, y su barba blanca y patriarcal, estaba aureolada por un nimbo de luz blanca y resplandeciente...
 
-17. El mundo entonces era semejante a nuestra época ac-tual; las escuelas de los Baales eran tan numerosas como las actuales, y Elías estaba solo ante todas las escuelas espiritua-listas, y todos esos hermanos de la sombra lo miraban con desprecio y buscaban matarlo.
+17. El mundo entonces era semejante a nuestra época actual; las escuelas de los Baales eran tan numerosas como las actuales, y Elías estaba solo ante todas las escuelas espiritualistas, y todos esos hermanos de la sombra lo miraban con desprecio y buscaban matarlo.
 
-18. Pero Elías triunfó ante los cuatrocientos cincuenta pro-fetas de los Baales.
+18. Pero Elías triunfó ante los cuatrocientos cincuenta profetas de los Baales.
 
-19. Entonces yo AUN WEOR, entendí la declaración de es-ta visión, y anoté la suma de los “negocios”.
+19. Entonces yo AUN WEOR, entendí la declaración de esta visión, y anoté la suma de los “negocios”.
 
 20. Abro la Biblia, y encuentro allí el capítulo 18, que a la letra dice:
 
 “Y como Achab vio a Elías, díjole Achab: ¿Eres tú el que alborota a Israel?”
 
-“Y él respondió: Yo no he alborotado a Israel, sino tú y la casa de tu padre, dejando los mandamientos de Jehová y si-guiendo a los Baales”.
+“Y él respondió: Yo no he alborotado a Israel, sino tú y la casa de tu padre, dejando los mandamientos de Jehová y siguiendo a los Baales”.
 
 “Envía, pues, ahora y júntame a todo Israel en el monte Carmelo, y los cuatrocientos cincuenta profetas de Baal, y los cuatrocientos profetas de los bosques, que comen de la mesa de Jezabel”.
 
 “Entonces Achab envió a todos los hijos de Israel, y juntó a los profetas en el Monte Carmelo”.
 
-“Y acercándose Elías a todo el pueblo, dijo. ¿Hasta cuándo claudicaréis vosotros entre dos pensamientos? Si Jehová es Dios, seguidme; y si Baal, id en pos de él. Y el pueblo no res-pondió palabra.”
+“Y acercándose Elías a todo el pueblo, dijo. ¿Hasta cuándo claudicaréis vosotros entre dos pensamientos? Si Jehová es Dios, seguidme; y si Baal, id en pos de él. Y el pueblo no respondió palabra.”
 
 Y Elías tornó a decir al pueblo: “Sólo yo he quedado profeta de Jehová; mas de los profetas de Baal hay cuatrocientos y cincuenta hombres”.
 
 “Densenos, pues, dos bueyes, y escójanse ellos el uno, y córtenlo en pedazos, y pónganlo sobre leña, mas no pongan fuego debajo; y yo aprestaré el otro buey, y pondrelo sobre leña y ningún fuego pondré debajo”.
 
-“Invocad luego vosotros en el nombre de vuestros dioses, y yo invocaré en el nombre de Jehová; y el Dios que respondie-ra por fuego, ese sea Dios. Y todo el pueblo respondió, dicien-do: bien dicho.”
+“Invocad luego vosotros en el nombre de vuestros dioses, y yo invocaré en el nombre de Jehová; y el Dios que respondiera por fuego, ese sea Dios. Y todo el pueblo respondió, diciendo: bien dicho.”
 
-Entonces Elías dijo a los profetas de Baal: “Escogeos un buey, y haced primero, pues que vosotros sois los más, e in-vocad en el nombre de vuestros dioses, mas no pongáis fuego debajo”.
+Entonces Elías dijo a los profetas de Baal: “Escogeos un buey, y haced primero, pues que vosotros sois los más, e invocad en el nombre de vuestros dioses, mas no pongáis fuego debajo”.
 
 “Y ellos tomaron el buey que les fue dado, y aprestáronlo, e invocaron en el nombre de Baal desde la mañana hasta el medio día, diciendo: ¡Baal, respóndenos! Mas no había voz, ni quien respondiese; entre tanto, ellos andaban saltando cerca del altar que habían hecho”.
 
-“Y aconteció al medio día, que Elías se burlaba de ellos, di-ciendo: gritad en alta voz, que Dios es, quizás está conver-sando, o tiene algún empeño, o va de camino; acaso duerme, y despertará”.
+“Y aconteció al medio día, que Elías se burlaba de ellos, diciendo: gritad en alta voz, que Dios es, quizás está conversando, o tiene algún empeño, o va de camino; acaso duerme, y despertará”.
 
-“Y Ellos clamaban a grandes voces, y sajábanse con cuchi-llos y con lancetas conforme a su costumbre, hasta chorrear la sangre sobre ellos”.
+“Y Ellos clamaban a grandes voces, y sajábanse con cuchillos y con lancetas conforme a su costumbre, hasta chorrear la sangre sobre ellos”.
 
-“Y como pasó el medio día, y ellos profetizaran hasta el tiempo del sacrificio del presente, y no había voz, ni quién res-pondiese ni escuchase”.
+“Y como pasó el medio día, y ellos profetizaran hasta el tiempo del sacrificio del presente, y no había voz, ni quién respondiese ni escuchase”.
 
-“Elías dijo entonces a todo el pueblo. Acercaos a mí. Y todo el pueblo se llegó a él, y él reparó el altar de Jehová que esta-ba arruinado”.
+“Elías dijo entonces a todo el pueblo. Acercaos a mí. Y todo el pueblo se llegó a él, y él reparó el altar de Jehová que estaba arruinado”.
 
-“Y tomando Elías doce piedras, conforme al número de las tribus de los hijos de Jacob, el cual había sido palabra de Je-hová, diciendo: Israel será tu nombre”.
+“Y tomando Elías doce piedras, conforme al número de las tribus de los hijos de Jacob, el cual había sido palabra de Jehová, diciendo: Israel será tu nombre”.
 
 “Edificó con las piedras un altar en el nombre de Jehová; después hizo un reguero alrededor del altar, cuanto cupieran dos sacos de simiente”.
 
 “Compuso luego la leña, y cortó el buey en pedazos, y púsolo sobre la leña”.
 
-“Y dijo: Henchid cuatro cántaros de agua, y derramadla so-bre el holocausto y sobre la leña. Y dijo: hacedlo otra vez, y otra vez lo hicieron. Dijo aún: hacedlo la tercera vez”.
+“Y dijo: Henchid cuatro cántaros de agua, y derramadla sobre el holocausto y sobre la leña. Y dijo: hacedlo otra vez, y otra vez lo hicieron. Dijo aún: hacedlo la tercera vez”.
 
 “De manera que las aguas corrían alrededor del altar; y había también henchido de agua la reguera”.
 
 “Y como llegó la hora de ofrecerse el holocausto, llegose el profeta Elías, y dijo: Jehová, Dios de Abraham, de Isaac y de Israel, sea hoy manifiesto que tú eres Dios en Israel, y que yo soy tu siervo, y que por mandato tuyo he hecho todas estas cosas”. “Respóndeme Jehová, respóndeme, para que conozca este pueblo que tú, oh Jehová, eres el Dios, y que tú volviste atrás el corazón de ellos”.
 
-“Entonces cayó fuego de Jehová, el cual consumió el holo-causto, y la leña, y las piedras, y el polvo, y aún lamió las aguas que estaban en la reguera”.
+“Entonces cayó fuego de Jehová, el cual consumió el holocausto, y la leña, y las piedras, y el polvo, y aún lamió las aguas que estaban en la reguera”.
 
-“Y viéndolo todo el pueblo, cayeron sobre sus rostros, y di-jeron. ¡Jehová es el Dios!”.
+“Y viéndolo todo el pueblo, cayeron sobre sus rostros, y dijeron. ¡Jehová es el Dios!”.
 
 “Y díjoles Elías: Prended a todos los profetas de Baal, que no escape ninguno. Y ellos los prendieron; y llevolos Elías al arroyo de Cisón, y allí los degolló”.
 
@@ -952,45 +956,45 @@ Entonces Elías dijo a los profetas de Baal: “Escogeos un buey, y haced primer
 
 4. Los poderes ígneos del elemental del pino flamean entre las llamas abrasadoras del universo.
 
-5. El ángel que gobierna a estas poblaciones elementales de los pinos, trabaja con la generación humana. 6- Este ángel está encargado de hacer llegar las almas humanas al ambiente que les corresponde en cada reencar-nación, de acuerdo con las leyes Kármicas.
+5. El ángel que gobierna a estas poblaciones elementales de los pinos, trabaja con la generación humana. 6- Este ángel está encargado de hacer llegar las almas humanas al ambiente que les corresponde en cada reencarnación, de acuerdo con las leyes Kármicas.
 
-7. Estos elementales de los pinos, tienen el poder de mos-trarnos en el agua las cosas del futuro.
+7. Estos elementales de los pinos, tienen el poder de mostrarnos en el agua las cosas del futuro.
 
-8. El oficiante vestido con su túnica, hará que un niño ino-cente mire fijamente en un recipiente con agua.
+8. El oficiante vestido con su túnica, hará que un niño inocente mire fijamente en un recipiente con agua.
 
 9. En la puerta del templo, se pondrá una piedra durante todo el tiempo que dure el oficio.
 
 10. El niño estará vestido con túnica blanca.
 
-11. Este rito del pino, se realiza en nuestros templos sub-terráneos, o en cualquier cueva del bosque.
+11. Este rito del pino, se realiza en nuestros templos subterráneos, o en cualquier cueva del bosque.
 
 12. Todo niño es clarividente, entre la edad de los primeros cuatro años.
 
-13. Si nuestros discípulos quieren despertar la divina clari-videncia, deben reconquistar la infancia perdida.
+13. Si nuestros discípulos quieren despertar la divina clarividencia, deben reconquistar la infancia perdida.
 
 14. Los átomos de la infancia viven sumergidos en nuestro universo interior, y es menester auto-despertarlos para una nueva actividad.
 
-15. Cuando esos átomos infantiles surgen de las profundi-dades de la conciencia para reaparecer en nuestro sistema objetivo y secundario, entonces reconquistamos la infancia perdida, y viene el despertar de la divina clarividencia.
+15. Cuando esos átomos infantiles surgen de las profundidades de la conciencia para reaparecer en nuestro sistema objetivo y secundario, entonces reconquistamos la infancia perdida, y viene el despertar de la divina clarividencia.
 
 16. Por medio del verbo, podemos hacer subir esos átomos infantiles desde las profundidades de la conciencia hasta la superficie exterior.
 
 17. Ya el bendito y venerable Gurú Huiracocha, nos habló en su libro «Logos, Mantram, Magia», sobre el verbo sagrado de la luz, y nos dijo que teníamos que empezarlo a deletrear poco a poco, como hace el niño cuando comienza a silabear la palabra MAMA. 18- En ese libro nos hablo el Maestro Huiracocha del poder maravilloso de la vocal M, pero como el gran Maestro habló en clave, sólo pudieron entender los Iniciados.
 
-19. El que quiera reconquistar la infancia perdida, debe re-comenzar vocalizando las sílabas infantiles.
+19. El que quiera reconquistar la infancia perdida, debe recomenzar vocalizando las sílabas infantiles.
 
-20. Vocalícense las palabras MA-MA, PA-PA, subiendo la voz en la primera sílaba de cada palabra, bajándola en la se-gunda sílaba de cada palabra.
+20. Vocalícense las palabras MA-MA, PA-PA, subiendo la voz en la primera sílaba de cada palabra, bajándola en la segunda sílaba de cada palabra.
 
 21. Durante esta práctica, la mente debe asumir una actitud totalmente infantil.
 
-22. Así despertará la divina clarividencia en nuestros discí-pulos, a condición de la más perfecta castidad.
+22. Así despertará la divina clarividencia en nuestros discípulos, a condición de la más perfecta castidad.
 
 23. Durante el rito del pino, el sacerdote se acostará en el suelo, mientras el niño esté observando la superficie del agua cristalina.
 
-24. Luego el sacerdote vocalizará la sílaba AU varias ve-ces.
+24. Luego el sacerdote vocalizará la sílaba AU varias veces.
 
-25. Sobre el niño se pondrá una rama de pino. Esta rama hará sombra sobre la cabeza del niño, pero no tocara la cabe-za del niño.
+25. Sobre el niño se pondrá una rama de pino. Esta rama hará sombra sobre la cabeza del niño, pero no tocara la cabeza del niño.
 
-26. Entonces el niño vera clarividentemente el sitio desea-do.
+26. Entonces el niño vera clarividentemente el sitio deseado.
 
 27. Bastará ordenarle al niño ver, y el niño verá.
 
@@ -998,7 +1002,7 @@ Entonces Elías dijo a los profetas de Baal: “Escogeos un buey, y haced primer
 
 29. Debe implorarse también la ayuda del Espíritu Santo durante este trabajo ritual del pino.
 
-30. Nuestros discípulos deben cambiar el proceso del razo-namiento, por la belleza de la comprensión. 31- El proceso del razonamiento, divorcia a la mente, del INTIMO.
+30. Nuestros discípulos deben cambiar el proceso del razonamiento, por la belleza de la comprensión. 31- El proceso del razonamiento, divorcia a la mente, del INTIMO.
 
 32. Una mente divorciada del INTIMO, cae en el abismo de la magia negra.
 
@@ -1006,23 +1010,23 @@ Entonces Elías dijo a los profetas de Baal: “Escogeos un buey, y haced primer
 
 34. Todos los grandes razonadores son habitantes del abismo.
 
-35. La razón divide a la mente entre el batallar de las antí-tesis.
+35. La razón divide a la mente entre el batallar de las antítesis.
 
 36. Los conceptos antitéticos convierten a la mente en un campo de batalla.
 
-37. La lucha antitética de conceptos fracciona el entendi-miento, convirtiéndolo en un instrumento inútil.
+37. La lucha antitética de conceptos fracciona el entendimiento, convirtiéndolo en un instrumento inútil.
 
-38. Una mente fraccionada no puede servirle de instrumen-to al INTIMO.
+38. Una mente fraccionada no puede servirle de instrumento al INTIMO.
 
 Cuando la mente no puede servirle de instrumento al INTIMO, convierte al hombre en un ser ciego y torpe, esclavo de las pasiones y de las percepciones sensoriales del mundo exterior.
 
 39. “La mente que es esclava de los sentidos hace al alma tan invalida como el bote que el viento extravía sobre las aguas”.
 
-40. Los seres más torpes y pasionarios que existen sobre la tierra, son precisamente los grandes razonadores, e intelec-tuales.
+40. Los seres más torpes y pasionarios que existen sobre la tierra, son precisamente los grandes razonadores, e intelectuales.
 
 41. El intelectual, por falta de un punto o de una coma, pierde el sentido de una oración.
 
-42. El intuitivo sabe leer donde el Maestro no escribe, y es-cuchar donde el Maestro no habla. 43- El razonador es totalmente esclavo de los sentidos ex-ternos, y su alma es tan inválida como el bote que el viento extravía sobre las aguas.
+42. El intuitivo sabe leer donde el Maestro no escribe, y escuchar donde el Maestro no habla. 43- El razonador es totalmente esclavo de los sentidos externos, y su alma es tan inválida como el bote que el viento extravía sobre las aguas.
 
 44. El proceso de la opción, divide a la mente en el batallar de las antítesis.
 
@@ -1030,13 +1034,13 @@ Cuando la mente no puede servirle de instrumento al INTIMO, convierte al hombre 
 
 46. Cuando la mente no sirve de instrumento al INTIMO, entonces sirve de instrumento al “yo animal”.
 
-47. Los razonadores espiritualistas son los seres más infe-lices que existen sobre la tierra.
+47. Los razonadores espiritualistas son los seres más infelices que existen sobre la tierra.
 
 48. Tienen la mente totalmente atiborrada de teorías y más teorías, y sufren horriblemente al no poder realizar nada de lo que han leído.
 
 49. Esos pobres seres tienen un orgullo terrible, y por lo común terminan separándose del INTIMO y convirtiéndose en personalidades tántricas del abismo.
 
-50. El proceso del razonamiento rompe las delicadas mem-branas del cuerpo mental.
+50. El proceso del razonamiento rompe las delicadas membranas del cuerpo mental.
 
 51. El pensamiento debe fluir silenciosa y serenamente con el dulce fluir del pensamiento.
 
@@ -1046,9 +1050,9 @@ Cuando la mente no puede servirle de instrumento al INTIMO, convierte al hombre 
 
 54. El discernimiento es percepción directa de la verdad, sin el proceso del razonamiento.
 
-55. El discernimiento es comprensión, sin necesidad de ra-zonamientos.
+55. El discernimiento es comprensión, sin necesidad de razonamientos.
 
-56. Debemos cambiar el proceso del razonamiento por la belleza de la comprensión. 57- Debemos libertar la mente de toda clase de preconcep-tos, deseos, temores, odios, escuelas, etc.
+56. Debemos cambiar el proceso del razonamiento por la belleza de la comprensión. 57- Debemos libertar la mente de toda clase de preconceptos, deseos, temores, odios, escuelas, etc.
 
 58. Todos esos defectos son trabas que anclan la mente a los sentidos externos.
 
@@ -1062,7 +1066,7 @@ Cuando la mente no puede servirle de instrumento al INTIMO, convierte al hombre 
 
 63. Hay que controlar la mente por medio de la voluntad.
 
-64. Cuando la mente nos asedie con representaciones in-útiles, hablémosle a la mente así. Cuerpo mental, retírame esa representación, no la acepto, tú eres mi esclava, yo soy tu señor.
+64. Cuando la mente nos asedie con representaciones inútiles, hablémosle a la mente así. Cuerpo mental, retírame esa representación, no la acepto, tú eres mi esclava, yo soy tu señor.
 
 65. Y entonces, como por encanto, desaparecen de nuestro entendimiento las representaciones inútiles que nos asedian.
 
@@ -1072,9 +1076,9 @@ Cuando la mente no puede servirle de instrumento al INTIMO, convierte al hombre 
 
 68. El rostro del cuerpo mental de casi todos los seres humanos, tiene apariencia animal.
 
-69. Cuando observamos todas las costumbres y hábitos de la especie humana, entonces comprendemos por qué el cuer-po mental de la gente tiene fisonomía animal.
+69. Cuando observamos todas las costumbres y hábitos de la especie humana, entonces comprendemos por qué el cuerpo mental de la gente tiene fisonomía animal.
 
-70. El Kundalini del cuerpo mental convierte la mente-materia en mente-Cristo. 71- Cuando la ROSA ÍGNEA de la laringe del cuerpo men-tal, chisporrotea ardientemente entre las llamas universales, entonces el ARHAT parla el gran verbo de la luz, entre el au-gusto brillar del pensamiento.
+70. El Kundalini del cuerpo mental convierte la mente-materia en mente-Cristo. 71- Cuando la ROSA ÍGNEA de la laringe del cuerpo mental, chisporrotea ardientemente entre las llamas universales, entonces el ARHAT parla el gran verbo de la luz, entre el augusto brillar del pensamiento.
 
 72. La mente debe volverse completamente infantil.
 
@@ -1096,25 +1100,25 @@ Cuando la mente no puede servirle de instrumento al INTIMO, convierte al hombre 
 
 # EL SEÑOR JEHOVÁ
 
-1. Cuando estudiamos el Génesis, leemos que el señor Je-hová creó toda hierba, toda simiente, toda bestia de la tierra, todo pez del mar y todo ser viviente.
+1. Cuando estudiamos el Génesis, leemos que el señor Jehová creó toda hierba, toda simiente, toda bestia de la tierra, todo pez del mar y todo ser viviente.
 
 2. Esto lo han leído todos los seres humanos, pero no lo han comprendido.
 
-3. Ni los mismos ocultistas han sabido darnos una explica-ción satisfactoria sobre el Génesis.
+3. Ni los mismos ocultistas han sabido darnos una explicación satisfactoria sobre el Génesis.
 
-4. Al señor Jehová le han dado todos los ocultistas las más variadas interpretaciones, pero ninguno de ellos ha podido explicarnos satisfactoriamente, quién es Jehová, y cómo y de qué manera creó a todos los seres vivientes que pueblan la faz de la tierra. 5- Cuando penetramos en los mundos internos compren-demos que el señor Jehová es un Gurú-Deva, es el jefe de toda la evolución angélica o Dévica.
+4. Al señor Jehová le han dado todos los ocultistas las más variadas interpretaciones, pero ninguno de ellos ha podido explicarnos satisfactoriamente, quién es Jehová, y cómo y de qué manera creó a todos los seres vivientes que pueblan la faz de la tierra. 5- Cuando penetramos en los mundos internos comprendemos que el señor Jehová es un Gurú-Deva, es el jefe de toda la evolución angélica o Dévica.
 
 6. Sólo así podemos explicarnos la creación de todas las cosas, según nos cuenta el Génesis.
 
-7. Todos los elementales de la creación entera están go-bernados por los ángeles, o DEVAS, y todos los Devas con todos los elementales de toda la creación están gobernados por el jefe supremo de la evolución angélica o Dévica. Este Jefe es el señor Jehová.
+7. Todos los elementales de la creación entera están gobernados por los ángeles, o DEVAS, y todos los Devas con todos los elementales de toda la creación están gobernados por el jefe supremo de la evolución angélica o Dévica. Este Jefe es el señor Jehová.
 
 8. No hay planta que no tenga alma, y todas estas almas de las plantas están gobernadas por los ángeles y éstos a su vez gobernados por el señor Jehová.
 
-9. Lo mismo sucede con los elementales minerales y ani-males, todos ellos obedecen las órdenes de los ángeles, y todo ángel obedece al señor Jehová.
+9. Lo mismo sucede con los elementales minerales y animales, todos ellos obedecen las órdenes de los ángeles, y todo ángel obedece al señor Jehová.
 
-10. Los elementales de tierra, agua, aire y fuego, están en-carnados en las plantas, y ninguna simiente podría brotar sin la presencia de un elemental.
+10. Los elementales de tierra, agua, aire y fuego, están encarnados en las plantas, y ninguna simiente podría brotar sin la presencia de un elemental.
 
-11. Lo mismo sucede con los animales; todo animal es el cuerpo físico de un elemental de la naturaleza y todos esos elementales, obedecen a los ángeles, y todos esos ángeles trabajan en este gran laboratorio de la naturaleza bajo la di-rección ardiente del señor Jehová.
+11. Lo mismo sucede con los animales; todo animal es el cuerpo físico de un elemental de la naturaleza y todos esos elementales, obedecen a los ángeles, y todos esos ángeles trabajan en este gran laboratorio de la naturaleza bajo la dirección ardiente del señor Jehová.
 
 12. Los Elohines o Prajapratis de la India oriental, son los constructores de este universo.
 
@@ -1124,21 +1128,21 @@ Cuando la mente no puede servirle de instrumento al INTIMO, convierte al hombre 
 
 16. Los “Heindelistas” recuerdan al señor Jehová como un Dios antiguo y que ya cumplió su misión.
 
-17. Este falso concepto de los Heindelistas, se derrumba totalmente cuando comprendemos que toda la evolución Dévi-ca trabaja bajo la regencia directa del señor Jehová.
+17. Este falso concepto de los Heindelistas, se derrumba totalmente cuando comprendemos que toda la evolución Dévica trabaja bajo la regencia directa del señor Jehová.
 
 18. No hay planta que pueda existir sin la presencia de un elemental, y todo elemental depende de las órdenes de los ángeles, que trabajan entre la rosa ígnea del universo bajo las órdenes del señor Jehová.
 
-19. Así pues, el señor Jehová está creando diariamente en-tre las llamas abrasadoras de esta rosa ígnea de la naturaleza.
+19. Así pues, el señor Jehová está creando diariamente entre las llamas abrasadoras de esta rosa ígnea de la naturaleza.
 
 20. Todo Maestro se expresa a través de sus discípulos.
 
 21. El señor Jehová se expresa dentro del instante eterno de la vida, a través de sus Devas elementales.
 
-22. El señor Jehová es una llama de actualidades palpitan-tes, cuando pensamos que nuestro globo planetario está pre-parándose actualmente para la nueva era Acuaria.
+22. El señor Jehová es una llama de actualidades palpitantes, cuando pensamos que nuestro globo planetario está preparándose actualmente para la nueva era Acuaria.
 
-23. Cuando el Maestro llega a la cuarta iniciación de Miste-rios Mayores, se abren ante él siete senderos:
+23. Cuando el Maestro llega a la cuarta iniciación de Misterios Mayores, se abren ante él siete senderos:
 
-24. Primero, entrar al Nirvana. Segundo, trabajos superio-res en el Nirvana. Tercero, formar parte del Estado Mayor del Logos del Sistema Solar. Cuarto, quedarse como Nirmanaka-ya, trabajando en el plano astral por la humanidad. Quinto, trabajar con el futuro período jupiteriano de nuestra tierra. Sex-to, reencarnarse para trabajar con la humanidad. Séptimo, ingresar a la evolución Dévica o angélica, para trabajar en este gran taller de la naturaleza, bajo las órdenes directas del señor Jehová. 25- El señor Jehová, no solamente fue el creador del pasa-do, sino que también es el creador del presente, y será el creador del futuro.
+24. Primero, entrar al Nirvana. Segundo, trabajos superiores en el Nirvana. Tercero, formar parte del Estado Mayor del Logos del Sistema Solar. Cuarto, quedarse como Nirmanakaya, trabajando en el plano astral por la humanidad. Quinto, trabajar con el futuro período jupiteriano de nuestra tierra. Sexto, reencarnarse para trabajar con la humanidad. Séptimo, ingresar a la evolución Dévica o angélica, para trabajar en este gran taller de la naturaleza, bajo las órdenes directas del señor Jehová. 25- El señor Jehová, no solamente fue el creador del pasado, sino que también es el creador del presente, y será el creador del futuro.
 
 26. Las doce grandes jerarquías zodiacales, crearon al hombre, pero el hombre no hubiera podido vivir en nuestra tierra físico-química, sin el trabajo laborioso del señor Jehová.
 
@@ -1152,7 +1156,7 @@ Cuando la mente no puede servirle de instrumento al INTIMO, convierte al hombre 
 
 31. La palabra perdida es como un pez gigantesco, mitad azul, mitad verde, saliendo entre la profundidad del océano.
 
-32. Jehová es el Dios de los profetas del pasado, del pre-sente y del futuro.
+32. Jehová es el Dios de los profetas del pasado, del presente y del futuro.
 
 33. Yo AUN WEOR soy un profeta de Jehová.
 
@@ -1194,11 +1198,11 @@ Cuando la mente no puede servirle de instrumento al INTIMO, convierte al hombre 
 
 5. Ese verbo es la sustancia cristónica del Logos Solar.
 
-6. En los antiguos tiempos el hombre parlaba la divina len-gua solar, y todas las criaturas de la tierra, del agua, del aire y del fuego, se arrodillaban ante el hombre y le obedecían. 7- Pero cuando el hombre comió de la fruta prohibida, ol-vidó la lengua de los hijos del fuego, y levantó la torre de Ba-bel.
+6. En los antiguos tiempos el hombre parlaba la divina lengua solar, y todas las criaturas de la tierra, del agua, del aire y del fuego, se arrodillaban ante el hombre y le obedecían. 7- Pero cuando el hombre comió de la fruta prohibida, olvidó la lengua de los hijos del fuego, y levantó la torre de Babel.
 
 8. Esa torre simboliza todas las gramáticas del mundo.
 
-9. Entonces los hombres quedaron confundidos entre tan-tos idiomas.
+9. Entonces los hombres quedaron confundidos entre tantos idiomas.
 
 10. Antiguamente sólo se hablaba la lengua del Edén, y fue con ese verbo sagrado que los hijos del fuego crearon todas las cosas.
 
@@ -1206,7 +1210,7 @@ Cuando la mente no puede servirle de instrumento al INTIMO, convierte al hombre 
 
 12. El verbo es la luz que ilumina a todo hombre que viene al mundo.
 
-13. Cuando la serpiente sagrada llega a nuestra laringe, adquirimos el poder de parlar la divina lengua que otrora pose-íamos en aquella edad de los titanes, cuando los ríos mana-ban leche y miel.
+13. Cuando la serpiente sagrada llega a nuestra laringe, adquirimos el poder de parlar la divina lengua que otrora poseíamos en aquella edad de los titanes, cuando los ríos manaban leche y miel.
 
 14. Entonces éramos gigantes.
 
@@ -1214,11 +1218,11 @@ Cuando la mente no puede servirle de instrumento al INTIMO, convierte al hombre 
 
 16. Tu mente resplandece con el fuego sagrado ¡oh ARHAT!
 
-17. Tu mente flamea entre las ondulatorias llamas del es-pacio.
+17. Tu mente flamea entre las ondulatorias llamas del espacio.
 
-18. Las rosas ígneas de tu cuerpo mental, chisporrotean ardientemente entre las ascuas abrasadoras de tu entendi-miento. 19- Una nueva rosa ígnea refulge ahora ardientemente en tu entendimiento, es la rosa ígnea de la garganta del cuerpo mental.
+18. Las rosas ígneas de tu cuerpo mental, chisporrotean ardientemente entre las ascuas abrasadoras de tu entendimiento. 19- Una nueva rosa ígnea refulge ahora ardientemente en tu entendimiento, es la rosa ígnea de la garganta del cuerpo mental.
 
-20. Brilla el cáliz sobre el árbol de tu existencia, el sol res-plandece entre el espacio ardiente...
+20. Brilla el cáliz sobre el árbol de tu existencia, el sol resplandece entre el espacio ardiente...
 
 21. Entra ahora, ¡oh ARHAT! al santo templo de la mente cósmica, para que recibas el símbolo y la fiesta solemne del verbo que resuena en la creación entera, entre los fogosos ritmos del Mahavan y del Chotavan.
 
@@ -1232,17 +1236,17 @@ Cuando la mente no puede servirle de instrumento al INTIMO, convierte al hombre 
 
 26. Escuchadme, oh ARHAT, las llamas del universo parlan ahora a través de tu laringe creadora, desatando tempestades sobre las multitudes.
 
-27. ¡Jerusalem! ¡Jerusalem!, la ciudad querida de los profe-tas, cuántas veces quise juntar tus hijos, como la gallina a sus polluelos, debajo de sus alas, y no quisisteis.
+27. ¡Jerusalem! ¡Jerusalem!, la ciudad querida de los profetas, cuántas veces quise juntar tus hijos, como la gallina a sus polluelos, debajo de sus alas, y no quisisteis.
 
 28. El verbo de las llamas sagradas se expresó a través de la laringe ardiente de los profetas de Sión, y cayeron los muros invictos de la ciudad querida de los profetas, ante el poder omnipotente del verbo.
 
-29. La llama abrasadora del entendimiento cósmico, par-lando el verbo de la luz, es terriblemente divina...
+29. La llama abrasadora del entendimiento cósmico, parlando el verbo de la luz, es terriblemente divina...
 
 30. Tu mente ahora es una hoguera abrasadora, ¡Oh ARHAT!
 
 31. Tu cuarta serpiente te ha convertido ahora en un dragón ardiente de la palabra.
 
-32. La fuerza sexual del Edén ha florecido ahora en “tus la-bios fecundos, hecho verbo”.
+32. La fuerza sexual del Edén ha florecido ahora en “tus labios fecundos, hecho verbo”.
 
 CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CANELA, DEL INCIENSO, DE LA MIRRA, DE LA SÁBILA, DEL ESTORAQUE, DE LA**
 
@@ -1254,47 +1258,47 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 3. El granado representa el hogar.
 
-4. Los elementales de los granados, tienen el poder de es-tablecer relaciones amistosas.
+4. Los elementales de los granados, tienen el poder de establecer relaciones amistosas.
 
-5. Los elementales de los granados, tienen el poder de es-tablecer acuerdos fraternales entre los hombres.
+5. Los elementales de los granados, tienen el poder de establecer acuerdos fraternales entre los hombres.
 
-6. Los elementales de los granados tienen el poder de es-tablecer armonía dentro de los hogares.
+6. Los elementales de los granados tienen el poder de establecer armonía dentro de los hogares.
 
-7. El granado está simbolizado en la luz astral por el caba-llo.
+7. El granado está simbolizado en la luz astral por el caballo.
 
 8. El caballo es siempre símbolo de amistad. 9- El ángel que gobierna a las poblaciones elementales de los granados, es el sol de los hogares.
 
 10. Si queréis sembrar armonía en aquellos hogares llenos de aflicción, utilizad la magia elemental de los granados.
 
-11. Si necesitáis entablar relaciones amistosas con deter-minadas personas, utilizad la magia elemental de los grana-dos.
+11. Si necesitáis entablar relaciones amistosas con determinadas personas, utilizad la magia elemental de los granados.
 
 12. Si necesitáis llegar a algún acuerdo importante con otra persona, utilizad los poderes ígneos de los elementales de los granados.
 
-13. Por medio de la magia elemental de los granados, po-demos trabajar sobre las almas extraviadas, para hacerlas volver al sendero de la luz.
+13. Por medio de la magia elemental de los granados, podemos trabajar sobre las almas extraviadas, para hacerlas volver al sendero de la luz.
 
-14. Por medio de la magia elemental de los granados po-demos hacer volver el hijo pródigo a su hogar.
+14. Por medio de la magia elemental de los granados podemos hacer volver el hijo pródigo a su hogar.
 
-15. Cuando los elementales de los naranjos nos tienen so-metidos a “pruebas” podemos salir triunfantes, con la magia elemental de los granados.
+15. Cuando los elementales de los naranjos nos tienen sometidos a “pruebas” podemos salir triunfantes, con la magia elemental de los granados.
 
-16. Y mostrome el Señor Jehová un gran monte, y el Señor Jehová estaba sobre ese gran monte. Y díjome el Señor Je-hová:
+16. Y mostrome el Señor Jehová un gran monte, y el Señor Jehová estaba sobre ese gran monte. Y díjome el Señor Jehová:
 
 17. Con la magia elemental de los granados podéis trabajar por el progreso de la paz.
 
 18. Y tenía el Señor Jehová la figura de la blanca paloma del Espíritu Santo.
 
-19. Y todo aquel gran monte resplandecía lleno de majes-tad.
+19. Y todo aquel gran monte resplandecía lleno de majestad.
 
-20. Con el poder elemental de los granados podemos tra-bajar sobre los fornicarios, para ayudarlos a salir del abismo.
+20. Con el poder elemental de los granados podemos trabajar sobre los fornicarios, para ayudarlos a salir del abismo.
 
-21. Cuando decimos que con la magia elemental de los granados podemos defendernos, cuando los genios elementa-les de los naranjos nos tienen sometidos a prueba, queremos afirmar que las corrientes jerárquicas que pasan por los naran-jos, son el polo contrario de las corrientes cósmicas que pasan por el departamento elemental de los granados.
+21. Cuando decimos que con la magia elemental de los granados podemos defendernos, cuando los genios elementales de los naranjos nos tienen sometidos a prueba, queremos afirmar que las corrientes jerárquicas que pasan por los naranjos, son el polo contrario de las corrientes cósmicas que pasan por el departamento elemental de los granados.
 
 22. Fuerza y fuerzas, es algo muy unido en la creación.
 
 23. La vida que pasa por las plantas, también pasa por los minerales, por los animales y por la especie humana.
 
-24. En este sentido, los distintos departamentos elementa-les de la naturaleza, se hallan relacionados con los diferentes estados o zonas de actividad humanas.
+24. En este sentido, los distintos departamentos elementales de la naturaleza, se hallan relacionados con los diferentes estados o zonas de actividad humanas.
 
-25. Bajo la dirección de los ángeles regentes de los distin-tos departamentos elementales de la naturaleza, trabajan in-mensos poderes e innumerables jerarquías...
+25. Bajo la dirección de los ángeles regentes de los distintos departamentos elementales de la naturaleza, trabajan inmensos poderes e innumerables jerarquías...
 
 26. Y mostrome el Señor Jehová el árbol de la vida.
 
@@ -1302,35 +1306,35 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 28. Entonces yo entendí la enseñanza del Señor Jehová.
 
-29. Cuando trabajamos por el progreso de la paz, por la fra-ternidad universal, por la dignificación de los hogares, estamos usando la magia elemental del granado.
+29. Cuando trabajamos por el progreso de la paz, por la fraternidad universal, por la dignificación de los hogares, estamos usando la magia elemental del granado.
 
 30. Es decir, aquí estamos viviendo intensamente la magia elemental de los granados.
 
-31. Sobre el monte de la paz, resplandece la gloria del Se-ñor Jehová.
+31. Sobre el monte de la paz, resplandece la gloria del Señor Jehová.
 
-32. VAGO O A EGO, estos son los Mantrams de los ele-mentales de los granados.
+32. VAGO O A EGO, estos son los Mantrams de los elementales de los granados.
 
-33. Cuando queremos utilizar el elemental de algún grana-do, caminaremos en círculo a su alrededor, bendeciremos el árbol, pronunciaremos los Mantrams, y le ordenaremos al elemental trabajar sobre la persona o personas que nos inte-resen de acuerdo con nuestros fines anhelados. 34- Los ángeles que velan por todos los hogares de la tie-rra, pertenecen a este reino elemental de los granados.
+33. Cuando queremos utilizar el elemental de algún granado, caminaremos en círculo a su alrededor, bendeciremos el árbol, pronunciaremos los Mantrams, y le ordenaremos al elemental trabajar sobre la persona o personas que nos interesen de acuerdo con nuestros fines anhelados. 34- Los ángeles que velan por todos los hogares de la tierra, pertenecen a este reino elemental de los granados.
 
-35. Cada familia humana está protegida por un ángel fami-liar.
+35. Cada familia humana está protegida por un ángel familiar.
 
-36. Estos ángeles familiares pertenecen al departamento elemental de los granados. Los masones ignoran su significa-do oculto.
+36. Estos ángeles familiares pertenecen al departamento elemental de los granados. Los masones ignoran su significado oculto.
 
-37. Las Jerarquías que gobiernan el departamento elemen-tal de los naranjos, son las mismas que gobiernan todos los movimientos económicos y monetarios de la especie humana.
+37. Las Jerarquías que gobiernan el departamento elemental de los naranjos, son las mismas que gobiernan todos los movimientos económicos y monetarios de la especie humana.
 
-38. Todos los problemas económicos del mundo se solu-cionan con la fuerza terrible del amor, es decir, con la magia elemental de los granados.
+38. Todos los problemas económicos del mundo se solucionan con la fuerza terrible del amor, es decir, con la magia elemental de los granados.
 
 39. Todos los desacuerdos de los hombres, se solucionan con el amor, que es la fuerza elemental de los granados.
 
 40. Todos los odios egoístas, desaparecen con el amor, que es la magia elemental de los granados.
 
-41. Por ello decimos, que cuando las criaturas de los na-ranjos nos tienen sometidos a pruebas, podemos salir triunfan-tes con la magia elemental de los granados.
+41. Por ello decimos, que cuando las criaturas de los naranjos nos tienen sometidos a pruebas, podemos salir triunfantes con la magia elemental de los granados.
 
 42. Los Naranjos están relacionados íntimamente con la moneda, y la moneda engendra conflictos de toda especie.
 
 43. Las poblaciones elementales de los naranjos, se hallan íntimamente relacionadas con los problemas económicos de la humanidad.
 
-44. Las poblaciones elementales de los naranjos están go-bernadas por los Devas que distribuyen las semillas de todo lo existente. 45- Estos Devas elementales gobiernan también la simiente del género humano, y la simiente de las especies animales.
+44. Las poblaciones elementales de los naranjos están gobernadas por los Devas que distribuyen las semillas de todo lo existente. 45- Estos Devas elementales gobiernan también la simiente del género humano, y la simiente de las especies animales.
 
 46. Ahora entenderán los devotos de la sabiduría del fuego, por qué las jerarquías elementales de los naranjos, tienen el poder de distribuir la economía del mundo.
 
@@ -1340,19 +1344,19 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 49. Por estos tiempos, la moneda sirve de instrumento Kármico para premiar o castigar a los hombres.
 
-50. Cuando penetramos en el templo del ángel que gobier-na a estas poblaciones elementales de los naranjos, vemos aquellos niños elementales vestidos con túnicas de diversos colores.
+50. Cuando penetramos en el templo del ángel que gobierna a estas poblaciones elementales de los naranjos, vemos aquellos niños elementales vestidos con túnicas de diversos colores.
 
-51. Estos niños estudian en sus libros sagrados, y son ins-truidos y enseñados por el ángel que los gobierna.
+51. Estos niños estudian en sus libros sagrados, y son instruidos y enseñados por el ángel que los gobierna.
 
 52. El Mantram de los elementales de los naranjos es. “A KUMO”.
 
-53. “Mientras que el rey estaba en su reclinatorio, mi nardo dio su olor”. (Vers. 12, Cap. 1. Cantar de los Cantares de Sa-lomón).
+53. “Mientras que el rey estaba en su reclinatorio, mi nardo dio su olor”. (Vers. 12, Cap. 1. Cantar de los Cantares de Salomón).
 
 54. El nardo es el perfume más sublime del amor.
 
 55. El nardo es el perfume de aquellos que ya pasaron a la otra orilla.
 
-56. El nardo pertenece al alma humana (cuerpo causal o cuerpo de la voluntad). (Manas Superior). 57- El nardo es el perfume de la Quinta Iniciación de Miste-rios Mayores.
+56. El nardo pertenece al alma humana (cuerpo causal o cuerpo de la voluntad). (Manas Superior). 57- El nardo es el perfume de la Quinta Iniciación de Misterios Mayores.
 
 58. El nardo pertenece al cuerpo causal Cristificado.
 
@@ -1364,15 +1368,15 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 62. El nardo es el perfume de los Hierofantes de Misterios Mayores.
 
-63. Hablando esotéricamente, debemos librar grandes ba-tallas para conseguir el nardo.
+63. Hablando esotéricamente, debemos librar grandes batallas para conseguir el nardo.
 
-64. El perfume del nardo actúa eficazmente sobre la con-ciencia de los artistas.
+64. El perfume del nardo actúa eficazmente sobre la conciencia de los artistas.
 
 65. Donde quiera que haya arte y belleza, debe estar la fragancia del nardo.
 
 66. El planeta del nardo, es Saturno.
 
-67. El Mantram de las poblaciones elementales de los nar-dos, es “ATOYA”.
+67. El Mantram de las poblaciones elementales de los nardos, es “ATOYA”.
 
 68. Estas criaturas elementales de los nardos, pueden ser utilizadas con fines amistosos.
 
@@ -1380,21 +1384,21 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 70. El azafrán, es la planta del apostolado.
 
-71. Las poblaciones elementales del azafrán se hallan ínti-mamente relacionadas con el apostolado.
+71. Las poblaciones elementales del azafrán se hallan íntimamente relacionadas con el apostolado.
 
 72. El apóstol es un mártir de la mente cósmica.
 
-73. La mente del apóstol auténtico, está crucificada. 74- La mente del apóstol auténtico, está íntimamente rela-cionada con el departamento elemental del azafrán.
+73. La mente del apóstol auténtico, está crucificada. 74- La mente del apóstol auténtico, está íntimamente relacionada con el departamento elemental del azafrán.
 
 75. La mente del ARHAT está íntimamente relacionada con este departamento elemental del azafrán.
 
 76. El apóstol es un mártir.
 
-77. Todo el mundo se beneficia de las obras del apóstol, todo el mundo lee sus libros, y todo el mundo le paga al após-tol con la moneda de la ingratitud, porque según el concepto popular: “El Apóstol no tiene derecho a saber”.
+77. Todo el mundo se beneficia de las obras del apóstol, todo el mundo lee sus libros, y todo el mundo le paga al apóstol con la moneda de la ingratitud, porque según el concepto popular: “El Apóstol no tiene derecho a saber”.
 
 78. Empero, todas las grandes obras del mundo, se deben a los apóstoles.
 
-79. El azafrán está íntimamente relacionado con los gran-des apóstoles del arte, con los Beethoven, Mozart, Berliotz, Wagner, Bach, etc.
+79. El azafrán está íntimamente relacionado con los grandes apóstoles del arte, con los Beethoven, Mozart, Berliotz, Wagner, Bach, etc.
 
 80. El Planeta del azafrán es Venus, la estrella del amor.
 
@@ -1402,23 +1406,23 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 82. El apóstol, pende de una cuerda muy amarga, y en el fondo está el profundo abismo...
 
-83. El departamento elemental del azafrán, está íntimamen-te relacionado con el trabajo laborioso.
+83. El departamento elemental del azafrán, está íntimamente relacionado con el trabajo laborioso.
 
-84. El trabajo de un apóstol de la luz, el trabajo del hombre que lucha por el pan de cada día, y el laborioso trabajo de las minúsculas abejas, es inmensamente sagrado, y está íntima-mente relacionado con este departamento elemental del azafrán.
+84. El trabajo de un apóstol de la luz, el trabajo del hombre que lucha por el pan de cada día, y el laborioso trabajo de las minúsculas abejas, es inmensamente sagrado, y está íntimamente relacionado con este departamento elemental del azafrán.
 
-85. Ninguna forma de trabajo honrado, por humilde que sea, puede ser jamás despreciado, porque el trabajo, en todas sus formas está íntimamente relacionado con las jerarquías cósmicas relacionadas con este departamento elemental del azafrán. 86- Todo detalle, todo incidente de trabajo, por insignifican-te que parezca, reviste gigantescas proporciones dentro de la actividad de la vida evolucionante.
+85. Ninguna forma de trabajo honrado, por humilde que sea, puede ser jamás despreciado, porque el trabajo, en todas sus formas está íntimamente relacionado con las jerarquías cósmicas relacionadas con este departamento elemental del azafrán. 86- Todo detalle, todo incidente de trabajo, por insignificante que parezca, reviste gigantescas proporciones dentro de la actividad de la vida evolucionante.
 
 87. Una insignificante abeja, que herida cae lejos de la colmena, es un acontecimiento, es una tragedia moral, es un drama espantoso para todas las abejas del colmenar.
 
 88. Este acontecimiento, sólo podría compararse a otro semejante, relacionado con la especie humana.
 
-89. Una familia humana, se llena de profunda desespera-ción, cuando un hijo, o un hermano, o un jefe de familia, no pueden regresar a su casa, por haber sido heridos en la fábri-ca, o por haber sido atropellado por un automóvil en la calle, o por cualquier otro accidente semejante.
+89. Una familia humana, se llena de profunda desesperación, cuando un hijo, o un hermano, o un jefe de familia, no pueden regresar a su casa, por haber sido heridos en la fábrica, o por haber sido atropellado por un automóvil en la calle, o por cualquier otro accidente semejante.
 
-90. Entonces todos sus dolientes, desesperados por el do-lor, tratarán de remediar la situación hasta conseguir la vuelta del pariente a casa.
+90. Entonces todos sus dolientes, desesperados por el dolor, tratarán de remediar la situación hasta conseguir la vuelta del pariente a casa.
 
 91. Exactamente sucede con la insignificante abeja, la misma tragedia... el mismo drama doloroso.
 
-92. La abeja es pequeña para nosotros, la miramos minús-cula, pero las abejas entre sí se ven en la misma forma en que una persona se ve a otra persona. No se ven minúsculas, ni se sienten pequeñas.
+92. La abeja es pequeña para nosotros, la miramos minúscula, pero las abejas entre sí se ven en la misma forma en que una persona se ve a otra persona. No se ven minúsculas, ni se sienten pequeñas.
 
 93. La mente del ARHAT, debe comprender a fondo todas estas íntimas actividades relacionadas con el departamento elemental del azafrán.
 
@@ -1432,15 +1436,15 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 99. Donde quiera que haya actividad y optimismo, allí está la magia elemental de la canela.
 
-100. La magia elemental de la canela, da actividad y alegr-ía.
+100. La magia elemental de la canela, da actividad y alegría.
 
 101. El optimismo y la alegría, deben comprender todas nuestras actividades.
 
 102. El departamento elemental de la canela, se relaciona precisamente con el optimismo y la alegría.
 
-103. La magia elemental de la canela, está íntimamente re-lacionada con aquellas fuerzas elementales que restauran y reconfortan nuestra vida.
+103. La magia elemental de la canela, está íntimamente relacionada con aquellas fuerzas elementales que restauran y reconfortan nuestra vida.
 
-104. La magia elemental de la canela, se halla íntimamente relacionada con aquellas fuerzas que reconfortan, fortifican y restauran la vida de los niños, de los adolescentes, de las mu-jeres y de los ancianos.
+104. La magia elemental de la canela, se halla íntimamente relacionada con aquellas fuerzas que reconfortan, fortifican y restauran la vida de los niños, de los adolescentes, de las mujeres y de los ancianos.
 
 105. La mente del ARHAT debe cultivar el optimismo y la alegría.
 
@@ -1448,29 +1452,29 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 107. La mente del ARHAT debe comprender a fondo lo que significa la alegría y el optimismo.
 
-108. Cuando penetramos en el templo elemental de este departamento vegetal de la naturaleza vemos a los niños ele-mentales de estos árboles jugueteando alegres en el templo, bajo la mirada del ángel que los dirige.
+108. Cuando penetramos en el templo elemental de este departamento vegetal de la naturaleza vemos a los niños elementales de estos árboles jugueteando alegres en el templo, bajo la mirada del ángel que los dirige.
 
 109. Nosotros debemos comprender lo que es la música, la alegría y el optimismo.
 
-110. Uno se queda extasiado al escuchar la “Flauta Encan-tada” de Mozart, que nos recuerda una Iniciación egipcia.
+110. Uno se queda extasiado al escuchar la “Flauta Encantada” de Mozart, que nos recuerda una Iniciación egipcia.
 
-111. Uno se siente anonadado al escuchar las nueve sin-fonías de Beethoven, o las melodías inefables de Chopin y de Liszt.
+111. Uno se siente anonadado al escuchar las nueve sinfonías de Beethoven, o las melodías inefables de Chopin y de Liszt.
 
-112. La música inefable de los grandes clásicos, viene de las exquisitas regiones del Nirvana, donde sólo reina la felici-dad que está más allá del amor...
+112. La música inefable de los grandes clásicos, viene de las exquisitas regiones del Nirvana, donde sólo reina la felicidad que está más allá del amor...
 
-113. Todos los grandes Hijos del Fuego, destilan el perfu-me de la felicidad y la fragancia exquisita de la música y de la alegría...
+113. Todos los grandes Hijos del Fuego, destilan el perfume de la felicidad y la fragancia exquisita de la música y de la alegría...
 
-114. Los elementales de estos árboles, son niños hermo-sos, vestidos con túnicas de color rosa pálido.
+114. Los elementales de estos árboles, son niños hermosos, vestidos con túnicas de color rosa pálido.
 
 115. El incienso auténtico es sacado del árbol olíbano, y contiene grandes poderes elementales.
 
 116. Si se echa en agua, tiene el poder de hacer concurrir a nuestra llamada las criaturas elementales del agua.
 
-117. Aplicado sobre la frente, tiene el poder de hacer des-aparecer el dolor de cabeza, causado por fuerte preocupación mental.
+117. Aplicado sobre la frente, tiene el poder de hacer desaparecer el dolor de cabeza, causado por fuerte preocupación mental.
 
 118. El humo del incienso, tiene el poder de hacer venir a los maestros y ángeles del mundo invisible.
 
-119. El incienso prepara el ambiente de los rituales gnósti-cos. 120- El incienso es un gran vehículo para las ondas espiri-tuales de la pura devoción, y ayuda al recogimiento místico, porque sirve de instrumento devocional.
+119. El incienso prepara el ambiente de los rituales gnósticos. 120- El incienso es un gran vehículo para las ondas espirituales de la pura devoción, y ayuda al recogimiento místico, porque sirve de instrumento devocional.
 
 121. En los antiguos templos de misterios, a los enfermos se les envolvía con el humo del incienso, para medicinarlos.
 
@@ -1480,7 +1484,7 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 124. Esto lo hacían con el objeto de preparar la atmósfera para firmar pactos, y hablar amistosamente.
 
-125. Empero, nosotros recomendamos el incienso para ta-les fines, porque el tabaco tiene el efecto de convertirse en vicio sucio y aborrecible.
+125. Empero, nosotros recomendamos el incienso para tales fines, porque el tabaco tiene el efecto de convertirse en vicio sucio y aborrecible.
 
 126. El incienso debe ser usado por todos los devotos del sendero.
 
@@ -1488,7 +1492,7 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 128. La devoción y la veneración, abren la puerta de los mundos superiores a los devotos del sendero.
 
-129. Cuando nosotros penetramos en el templo elemental de los olíbanos, vemos allí a cada uno de los niños elementa-les de estos árboles jugueteando felices en el templo del in-cienso...
+129. Cuando nosotros penetramos en el templo elemental de los olíbanos, vemos allí a cada uno de los niños elementales de estos árboles jugueteando felices en el templo del incienso...
 
 130. Estos elementales usan túnica amarilla, y el Mantram de ellos es: “ALUMINO”.
 
@@ -1496,17 +1500,17 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 132. El ángel que gobierna a estas criaturas elementales, parece una novia vestida con su traje nupcial... 133- Cada árbol de estos, tiene su elemental propio.
 
-134. No nos cansaremos de explicar que cada planta y que cada árbol es el cuerpo físico de un elemental de la naturale-za, que se está preparando para ingresar algún día en el reino animal, y más tarde en el reino humano.
+134. No nos cansaremos de explicar que cada planta y que cada árbol es el cuerpo físico de un elemental de la naturaleza, que se está preparando para ingresar algún día en el reino animal, y más tarde en el reino humano.
 
 135. Cuando nosotros desgarramos un árbol, o una planta, el elemental del vegetal siente el mismo dolor que nosotros sentimos cuando nos desgarran cualquiera de los miembros de nuestro cuerpo.
 
 136. Antes de coger una planta, se debe trazar un círculo alrededor de la planta, y bendecirla, rogándole a la criatura elemental el anhelado servicio.
 
-137. A las plantas rastreras se les traza un triángulo alre-dedor, se bendicen y se cogen. (Véase «Tratado de Medicina Oculta y Magia Práctica», por el mismo autor).
+137. A las plantas rastreras se les traza un triángulo alrededor, se bendicen y se cogen. (Véase «Tratado de Medicina Oculta y Magia Práctica», por el mismo autor).
 
-138. Las criaturas elementales de los vegetales, son total-mente inocentes, y como no han salido del Edén, tienen todos los terribles poderes de las siete serpientes ígneas.
+138. Las criaturas elementales de los vegetales, son totalmente inocentes, y como no han salido del Edén, tienen todos los terribles poderes de las siete serpientes ígneas.
 
-139. Nosotros podemos invocar al ángel elemental del in-cienso, y él concurrirá a nuestro llamado con las criaturas ele-mentales de los olíbanos, para preparar el ambiente místico de nuestros rituales gnósticos.
+139. Nosotros podemos invocar al ángel elemental del incienso, y él concurrirá a nuestro llamado con las criaturas elementales de los olíbanos, para preparar el ambiente místico de nuestros rituales gnósticos.
 
 140. Cuando penetramos en el departamento elemental del balsamodendro, del cual se extrae la mirra, vemos a estos niños elementales vestidos con túnicas y capas encarnadas, felices en el Edén.
 
@@ -1522,21 +1526,21 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 147. La esencia monádica de este departamento elemental de la naturaleza, está íntimamente relacionada con el mundo del INTIMO.
 
-148. El oro espiritual está dentro del crisol inmenso del Nir-vana.
+148. El oro espiritual está dentro del crisol inmenso del Nirvana.
 
-149. las Mónadas particulares, que constituyen las esen-cias monádicas de cada departamento elemental de la natura-leza, están dotadas de vehículos de distinta densidad, y aun-que particularizadas, no podríamos decir que están individuali-zadas, porque aún no poseen mente individual.
+149. las Mónadas particulares, que constituyen las esencias monádicas de cada departamento elemental de la naturaleza, están dotadas de vehículos de distinta densidad, y aunque particularizadas, no podríamos decir que están individualizadas, porque aún no poseen mente individual.
 
 150. Empero están dotadas de inteligencia cósmica y de inocencia, poder y felicidad.
 
-151. Los Devas o ángeles encargados del manejo de estas esencias monádicas revestidas de vehículo durante el mavan-tara, son sus protectores, instructores y hacen el trabajo de espíritus grupales, encargados de impulsar la evolución cósmica de estas esencias monádicas revestidas de vehículos cósmicos, y conocidas como elementales de la naturaleza.
+151. Los Devas o ángeles encargados del manejo de estas esencias monádicas revestidas de vehículo durante el mavantara, son sus protectores, instructores y hacen el trabajo de espíritus grupales, encargados de impulsar la evolución cósmica de estas esencias monádicas revestidas de vehículos cósmicos, y conocidas como elementales de la naturaleza.
 
-152. Las esencias monádicas, comienzan a demostrar indi-vidualidad propia, cuando están pasando por la evolución del reino vegetal de la naturaleza.
+152. Las esencias monádicas, comienzan a demostrar individualidad propia, cuando están pasando por la evolución del reino vegetal de la naturaleza.
 
-153. No podríamos decir: la mónada de un pino se reen-carnó en un hombre, pero sí podríamos decir: La mónada de tal hombre, estuvo encarnada en un pino, antes de haberse individualizado como Mónada humana. 154- Las esencias monádicas tienen que evolucionar en los reinos mineral, vegetal y animal, antes de su individualización.
+153. No podríamos decir: la mónada de un pino se reencarnó en un hombre, pero sí podríamos decir: La mónada de tal hombre, estuvo encarnada en un pino, antes de haberse individualizado como Mónada humana. 154- Las esencias monádicas tienen que evolucionar en los reinos mineral, vegetal y animal, antes de su individualización.
 
-155. No podemos decir: que la mónada de Descartes estu-vo encarnada en un árbol, porque la Mónada humana es una Mónada individualizada y humana, diferente a la Mónada ve-getal.
+155. No podemos decir: que la mónada de Descartes estuvo encarnada en un árbol, porque la Mónada humana es una Mónada individualizada y humana, diferente a la Mónada vegetal.
 
-156. Empero sí es correcto afirmar, que la Mónada de Des-cartes, antes de su individualización, fue Mónada animal, Mónada vegetal, Mónada mineral, etc.
+156. Empero sí es correcto afirmar, que la Mónada de Descartes, antes de su individualización, fue Mónada animal, Mónada vegetal, Mónada mineral, etc.
 
 157. Nosotros entendemos por mónada, el INTIMO de todo elemental mineral, vegetal o animal, y el INTIMO del ser humano, compuesto por ATMAN-BUDDHI-MANAS.
 
@@ -1546,25 +1550,25 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 160. Ahora entenderán nuestros discípulos, por qué al Niño Dios de Belén se le ofreció oro, incienso y mirra.
 
-161. El ARHAT que aprende a manipular las esencias monádicas de todos los departamentos elementales de la na-turaleza, aprende a manejar la vida Universal.
+161. El ARHAT que aprende a manipular las esencias monádicas de todos los departamentos elementales de la naturaleza, aprende a manejar la vida Universal.
 
-162. Las esencias monádicas de la gran vida, fluyen y re-fluyen incesantemente, con los grandes ritmos del Fuego Uni-versal.
+162. Las esencias monádicas de la gran vida, fluyen y refluyen incesantemente, con los grandes ritmos del Fuego Universal.
 
-163. Todas esas esencias monádicas, residen en las pro-fundidades de la conciencia cósmica, y hemos de aprender a manipularlas para trabajar en este gran taller de la naturaleza.
+163. Todas esas esencias monádicas, residen en las profundidades de la conciencia cósmica, y hemos de aprender a manipularlas para trabajar en este gran taller de la naturaleza.
 
 164. Todas las esferas superlativas de conciencia cósmica, están clasificadas por los vedantinos, en el siguiente orden:
 
-165. ATALA, este es el primer plano emanado directamente del ABSOLUTO, a este plano pertenecen las jerarquías de Dhyani Buddhas, cuyo estado es el de Parasamadhi o Dhar-makaya, en que ya no cabe progreso alguno, pues son enti-dades totalmente perfectas, y que sólo aguardan la noche cósmica, para entrar en el ABSOLUTO.
+165. ATALA, este es el primer plano emanado directamente del ABSOLUTO, a este plano pertenecen las jerarquías de Dhyani Buddhas, cuyo estado es el de Parasamadhi o Dhar-makaya, en que ya no cabe progreso alguno, pues son entidades totalmente perfectas, y que sólo aguardan la noche cósmica, para entrar en el ABSOLUTO.
 
-166. El segundo plano vedantino, es llamado VITALA. En este loka están los Buddhas celestiales que se dicen emana-dos de los Siete Dhyani Buddhas.
+166. El segundo plano vedantino, es llamado VITALA. En este loka están los Buddhas celestiales que se dicen emanados de los Siete Dhyani Buddhas.
 
-167. El tercer loka o plano de conciencia, es SUTALA, es el plano del sonido. A este plano llegó Gautama en este mundo. Este es el plano de las Jerarquías de los Kumaras y Agnish-vattas.
+167. El tercer loka o plano de conciencia, es SUTALA, es el plano del sonido. A este plano llegó Gautama en este mundo. Este es el plano de las Jerarquías de los Kumaras y Agnishvattas.
 
 168. El cuarto loka de los vedantinos, es TALATALA, el quinto es RASATALA, el sexto es MAHATALA, y el séptimo es PATALA.
 
 169. ATALA es el mundo de la Niebla, de Fuego, el mundo del Intimo.
 
-170. VITALA, es el mundo de la conciencia. SUTALA, el mundo de la voluntad, TALATALA es el mundo de la mente, RASATALA, es el mundo astral. MAHATALA es el mundo eté-rico, y PATALA es el mundo físico.
+170. VITALA, es el mundo de la conciencia. SUTALA, el mundo de la voluntad, TALATALA es el mundo de la mente, RASATALA, es el mundo astral. MAHATALA es el mundo etérico, y PATALA es el mundo físico.
 
 171. En ATALA están las esencias monádicas centelleando como chispas virginales. En VITALA está el fuego sagrado de Nuestro Señor Jesucristo.
 
@@ -1590,17 +1594,17 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 183. El Tatwa Akash es el Paraíso de las chispas virginales de las sustancias monádicas del mundo del Intimo.
 
-184. El Tatwa Vayú es el elemento de las criaturas que agi-tan los aires.
+184. El Tatwa Vayú es el elemento de las criaturas que agitan los aires.
 
 185. El Tatwa Tejas, es el elemento de las Salamandras del Fuego.
 
-186. El Tatwa Apas es el elemento en que viven las criatu-ras de las aguas.
+186. El Tatwa Apas es el elemento en que viven las criaturas de las aguas.
 
-187. El Tatwa Prithvi es el elemento en que viven los Gno-mos de la tierra.
+187. El Tatwa Prithvi es el elemento en que viven los Gnomos de la tierra.
 
-188. Todas esas criaturas inocentes están encarnadas en las plantas y el que conoce la magia de las plantas puede ma-nejar entonces los Tatwas del Universo. 189- Con las plantas podemos calmar las tempestades, desatar los huracanes, desencadenar tormentas y hacer llover fuego como Elías el profeta.
+188. Todas esas criaturas inocentes están encarnadas en las plantas y el que conoce la magia de las plantas puede manejar entonces los Tatwas del Universo. 189- Con las plantas podemos calmar las tempestades, desatar los huracanes, desencadenar tormentas y hacer llover fuego como Elías el profeta.
 
-190. La mirra se relaciona con el AKASHA que vive y palpi-ta en todo lo creado.
+190. La mirra se relaciona con el AKASHA que vive y palpita en todo lo creado.
 
 191. La zábila es una planta de grandes poderes ocultos.
 
@@ -1608,13 +1612,13 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 193. Estos niños elementales son verdaderos “Adamitas”, llenos de inocente belleza.
 
-194. Esta planta multiplica sus hojas (pencas), sin necesi-dad del elemento tierra, ni del elemento agua.
+194. Esta planta multiplica sus hojas (pencas), sin necesidad del elemento tierra, ni del elemento agua.
 
-195. He visto muchas veces una zábila colgada en la pa-red, sin luz solar, sin agua y dentro de un aposento, y sin em-bargo, la planta sigue viviendo milagrosamente, reproduciendo sus hojas y hasta multiplicándose.
+195. He visto muchas veces una zábila colgada en la pared, sin luz solar, sin agua y dentro de un aposento, y sin embargo, la planta sigue viviendo milagrosamente, reproduciendo sus hojas y hasta multiplicándose.
 
-196. ¿De qué vive? ¿De qué se alimenta? ¿Cómo hace pa-ra sostenerse?
+196. ¿De qué vive? ¿De qué se alimenta? ¿Cómo hace para sostenerse?
 
-197. Investigaciones clarividentes nos han llevado a la con-clusión lógica, que esta planta se alimenta y vive de los rayos ultrasensibles del sol.
+197. Investigaciones clarividentes nos han llevado a la conclusión lógica, que esta planta se alimenta y vive de los rayos ultrasensibles del sol.
 
 198. Esta planta se nutre del Cristo cósmico, de los rayos Crísticos del sol.
 
@@ -1624,53 +1628,53 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 201. Antes de coger la planta, hay que regarle agua para bautizarla.
 
-202. Se bendecirá la planta y se le recitará la siguiente ple-garia gnóstica:
+202. Se bendecirá la planta y se le recitará la siguiente plegaria gnóstica:
 
 203. “Yo creo en el Hijo; el Crestos Cósmico, la poderosa mediación astral que enlaza nuestra personalidad física con la inmanencia suprema del PADRE SOLAR”.
 
 204. Deberá colgarse a la planta, un pedacito de metal de plata.
 
-205. Se deberá luego colgar la planta en la pared de nues-tra casa, para que con el esplendor de la luz Crística que atrae del sol, ilumine y bañe todo el ambiente de la casa, llenándo-nos de luz y suerte.
+205. Se deberá luego colgar la planta en la pared de nuestra casa, para que con el esplendor de la luz Crística que atrae del sol, ilumine y bañe todo el ambiente de la casa, llenándonos de luz y suerte.
 
-206. Por medio del poder de la voluntad, podremos orde-narle al elemental de la zábila ejecutar el trabajo mágico que deseemos, y entonces este elemental obedecerá inmediata-mente.
+206. Por medio del poder de la voluntad, podremos ordenarle al elemental de la zábila ejecutar el trabajo mágico que deseemos, y entonces este elemental obedecerá inmediatamente.
 
 207. Indudablemente, las órdenes se le darán diariamente al elemental, para obligarlo a trabajar.
 
-208. Los poderes solares de esta criatura, son realmente formidables. Empero, todo aquel que intente utilizar las criatu-ras elementales de la naturaleza con propósitos malvados, contraerá un horrible karma y será severamente castigado por la ley.
+208. Los poderes solares de esta criatura, son realmente formidables. Empero, todo aquel que intente utilizar las criaturas elementales de la naturaleza con propósitos malvados, contraerá un horrible karma y será severamente castigado por la ley.
 
-209. Los elementales de la zábila están íntimamente rela-cionados con las leyes de la reencarnación.
+209. Los elementales de la zábila están íntimamente relacionados con las leyes de la reencarnación.
 
-210. El departamento elemental de la zábila está íntima-mente relacionado con las fuerzas cósmicas encargadas de regular la reencarnación humana. 211- Así como la zábila puede arrancarse de la tierra para colgarse de una pared, es decir, para cambiarla de ambiente y continuar viviendo, así también el ser humano puede ser arrancado de la tierra, y cambiado de ambiente para seguir viviendo, esa es la ley de la reencarnación.
+210. El departamento elemental de la zábila está íntimamente relacionado con las fuerzas cósmicas encargadas de regular la reencarnación humana. 211- Así como la zábila puede arrancarse de la tierra para colgarse de una pared, es decir, para cambiarla de ambiente y continuar viviendo, así también el ser humano puede ser arrancado de la tierra, y cambiado de ambiente para seguir viviendo, esa es la ley de la reencarnación.
 
 212. Esta ley podemos probarla aún físicamente.
 
-213. Existe en los bosques de los climas tropicales un in-secto conocido con el nombre de cigarra.
+213. Existe en los bosques de los climas tropicales un insecto conocido con el nombre de cigarra.
 
 214. “Género de insectos hemípteros de color verdoso amarillento; la cigarra produce, durante los calores del estío, un ruido estridente y monótono, mediante un órgano particular que posee el macho en la parte inferior del abdomen”.
 
 215. En Colombia le dan a este insecto el nombre vulgar de “Chicharra”.
 
-216. Es creencia común de las gentes, de que este peque-ño animalito se revienta cantando y muere. Sin embargo, la realidad es diferente.
+216. Es creencia común de las gentes, de que este pequeño animalito se revienta cantando y muere. Sin embargo, la realidad es diferente.
 
-217. Lo que sucede es que este animal abandona su quiti-na, “sustancia orgánica que constituye el esqueleto de los animales articulados”.
+217. Lo que sucede es que este animal abandona su quitina, “sustancia orgánica que constituye el esqueleto de los animales articulados”.
 
-218. El insecto hace una abertura en la región toráxico-dorsal y sale por allí, revestido de un nuevo cuerpo lleno de vida.
+218. El insecto hace una abertura en la región toráxicodorsal y sale por allí, revestido de un nuevo cuerpo lleno de vida.
 
-219. Este animalito es inmortal y se reencarna en vida in-cesantemente.
+219. Este animalito es inmortal y se reencarna en vida incesantemente.
 
 220. El maestro Huiracocha, hablando sobre la zábila, dice en el libro «Plantas Sagradas», página 137, Edición Argentina de 1947, lo siguiente:
 
-221. “Los viajeros que van al oriente, verán sobre las puer-tas de las casas turcas un cuero de cocodrilo y una planta de áloe, ya que ambos, dicen, garantizan una larga vida”. 222- Examinando cuidadosamente este símbolo, encon-tramos que representa la reencarnación.
+221. “Los viajeros que van al oriente, verán sobre las puertas de las casas turcas un cuero de cocodrilo y una planta de áloe, ya que ambos, dicen, garantizan una larga vida”. 222- Examinando cuidadosamente este símbolo, encontramos que representa la reencarnación.
 
-223. El libro de los Muertos de los egipcios, dice textual-mente.
+223. El libro de los Muertos de los egipcios, dice textualmente.
 
 224. “Yo soy el cocodrilo sagrado Sebekh, yo soy la llama de tres pabilos, y mis pabilos son inmortales. Yo entro en la región de Sekem, yo entro en la región de las llamas que han derrotado a mis adversarios”.
 
-225. El cocodrilo sagrado Sebekh simboliza al INTIMO, y si colocamos a la zábila junto, tendremos al INTIMO con sus tres pabilos, es decir, la divina TRÍADA reencarnándose incesan-temente, para alcanzar la perfección.
+225. El cocodrilo sagrado Sebekh simboliza al INTIMO, y si colocamos a la zábila junto, tendremos al INTIMO con sus tres pabilos, es decir, la divina TRÍADA reencarnándose incesantemente, para alcanzar la perfección.
 
-226. La reencarnación, para unos es una creencia, para otros una teoría, para muchos una superstición, etc., pero para aquellos que recordamos nuestras vidas pasadas, la reencar-nación es un hecho.
+226. La reencarnación, para unos es una creencia, para otros una teoría, para muchos una superstición, etc., pero para aquellos que recordamos nuestras vidas pasadas, la reencarnación es un hecho.
 
-227. Yo personalmente, recuerdo todas mis vidas pasadas, con tanta naturalidad como podemos recordar la hora en que nos sentamos a almorzar o a comer. Podrían venir todos los sabios del mundo a decirme que estoy equivocado; sencilla-mente me reiría de ellos y los miraría compasivamente, porque ¿cómo haría para olvidarme de lo que me recuerdo?
+227. Yo personalmente, recuerdo todas mis vidas pasadas, con tanta naturalidad como podemos recordar la hora en que nos sentamos a almorzar o a comer. Podrían venir todos los sabios del mundo a decirme que estoy equivocado; sencillamente me reiría de ellos y los miraría compasivamente, porque ¿cómo haría para olvidarme de lo que me recuerdo?
 
 228. La reencarnación para mí es un hecho.
 
@@ -1688,41 +1692,41 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 236. Yo asistí a la salida del Edén, fui testigo de la salida del Paraíso, y por eso doy testimonio de todo lo que he visto y oído...
 
-237. Aún recuerdo cómo fuimos echados de la Logia Blan-ca cuando fornicamos...
+237. Aún recuerdo cómo fuimos echados de la Logia Blanca cuando fornicamos...
 
 238. Los grandes Hierofantes de los Misterios Mayores nos arrojaron del patio de sus templos cuando comimos del fruto prohibido.
 
-239. Desde entonces, todos los seres humanos hemos ve-nido rodando a través de millones de nacimientos y de muer-tes, tan numerosos como las arenas del mar.
+239. Desde entonces, todos los seres humanos hemos venido rodando a través de millones de nacimientos y de muertes, tan numerosos como las arenas del mar.
 
 240. El plan de los ángeles fue que tan pronto el hombre adquiriera un cerebro y una garganta para hablar, dejaría de tener comercio sexual con la mujer.
 
 241. Ese era el plan de los ángeles, pero los Luciferes echaron a perder ese plan, y entonces el hombre se hundió en el abismo.
 
-242. Se le envió un Salvador a la humanidad, pero en ver-dad, es triste decirlo, la evolución humana fracasó.
+242. Se le envió un Salvador a la humanidad, pero en verdad, es triste decirlo, la evolución humana fracasó.
 
-243. Durante las épocas Polar, Hiperbórea y a principios de la Lemuria, los seres humanos éramos hermafroditas, y la re-producción se verificaba por “Esporas”, que se desprendían de las pantorrillas.
+243. Durante las épocas Polar, Hiperbórea y a principios de la Lemuria, los seres humanos éramos hermafroditas, y la reproducción se verificaba por “Esporas”, que se desprendían de las pantorrillas.
 
-244. El hombre utilizaba sus dos polos: positivo y negativo de su energía sexual para crear por esporas. 245- Con la división en sexos opuestos, el hombre pudo re-tener un polo de su energía sexual para formar el cerebro y la garganta.
+244. El hombre utilizaba sus dos polos: positivo y negativo de su energía sexual para crear por esporas. 245- Con la división en sexos opuestos, el hombre pudo retener un polo de su energía sexual para formar el cerebro y la garganta.
 
 246. Entonces hubo necesidad de la cooperación sexual para la reproducción de la raza.
 
 247. El acto sexual se verificaba entonces bajo la dirección de los ángeles, en determinadas épocas del año.
 
-248. El plan de los ángeles fue que tan pronto estuvieran el cerebro y la garganta construidos, entonces el hombre conti-nuara su evolución creando su cuerpo con el poder del verbo.
+248. El plan de los ángeles fue que tan pronto estuvieran el cerebro y la garganta construidos, entonces el hombre continuara su evolución creando su cuerpo con el poder del verbo.
 
 249. Fui testigo de todas estas cosas, y por ello para mí la reencarnación es un hecho.
 
-250. Conocí la magia sexual tenebrosa y Tántrica que pre-dican Cherenzi y Jarsival, la vi ejercer por todos los magos negros de la Atlántida, y por ello se hundió el continente Atlan-te entre grandes cataclismos.
+250. Conocí la magia sexual tenebrosa y Tántrica que predican Cherenzi y Jarsival, la vi ejercer por todos los magos negros de la Atlántida, y por ello se hundió el continente Atlante entre grandes cataclismos.
 
 251. Conocí al egipcio y al romano, y por las puertas de la antigua Roma de los Césares vi salir a Nerón muchas veces sentado en su litera, sobre los hombros de sus esclavos...
 
-252. Hace más de diez y ocho millones de años que los se-res humanos vienen evolucionando a través de estas ruedas de nacimientos y de muertes...
+252. Hace más de diez y ocho millones de años que los seres humanos vienen evolucionando a través de estas ruedas de nacimientos y de muertes...
 
 253. Pero es triste... muy triste... decirlo: La verdad es que la evolución humana fracasó...
 
 254. Un grupo muy mínimo de almas podrá reencarnarse en la luminosa era de Acuario...
 
-255. Conozco demasiado a los seudo espiritualistas teori-zantes del mundo. Y por anticipado sé que ellos se reirán de mi afirmación, creyéndome ignorante... Pobrecitos... Me sé de memoria todas sus teorías, me conozco todas sus bibliotecas, y puedo asegurar que la mayor parte de los espiritualistas de esas sociedades, aulas, órdenes, etc., van por el camino ne-gro. 256- Parece increíble, pero entre los humildes aldeanos y gentes sencillas, quienes nunca han devorado teorías, “manja-res sepulcrales”, haya almas verdaderamente luminosas, al-mas millones de veces más evolucionadas que aquellos santu-rrones que sonríen dulcemente ante el auditorio de todas esas “jaulas” de loros del más arraigado espiritualismo profano.
+255. Conozco demasiado a los seudo espiritualistas teorizantes del mundo. Y por anticipado sé que ellos se reirán de mi afirmación, creyéndome ignorante... Pobrecitos... Me sé de memoria todas sus teorías, me conozco todas sus bibliotecas, y puedo asegurar que la mayor parte de los espiritualistas de esas sociedades, aulas, órdenes, etc., van por el camino negro. 256- Parece increíble, pero entre los humildes aldeanos y gentes sencillas, quienes nunca han devorado teorías, “manjares sepulcrales”, haya almas verdaderamente luminosas, almas millones de veces más evolucionadas que aquellos santurrones que sonríen dulcemente ante el auditorio de todas esas “jaulas” de loros del más arraigado espiritualismo profano.
 
 257. Los ángeles que rigen la ley de la reencarnación están íntimamente relacionados con este departamento elemental de la zábila.
 
@@ -1734,17 +1738,17 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 261. Empero, no quiero decir que ha de imitarse al buey.
 
-262. Al articularse el sonido se hará con los labios cerra-dos, entonces el sonido saldrá por la nariz.
+262. Al articularse el sonido se hará con los labios cerrados, entonces el sonido saldrá por la nariz.
 
 263. Todo ser humano puede recordar sus vidas pasadas por medio del ejercicio de retrospección.
 
-264. Diariamente podéis hacer un ejercicio retrospectivo para recordar minuciosamente todos los incidentes ocurridos la víspera, todos los sucesos ocurridos en orden inverso ocho días antes, quince días, un mes, dos meses, un año, diez, veinte años, hasta recordar con precisión todos aquellos acon-tecimientos de los primeros años de nuestra infancia.
+264. Diariamente podéis hacer un ejercicio retrospectivo para recordar minuciosamente todos los incidentes ocurridos la víspera, todos los sucesos ocurridos en orden inverso ocho días antes, quince días, un mes, dos meses, un año, diez, veinte años, hasta recordar con precisión todos aquellos acontecimientos de los primeros años de nuestra infancia.
 
-265. Sucederá, que al llegar el estudiante durante su ejer-cicio retrospectivo a los primeros tres o cuatro años de vida, se le hará muy difícil recordar los acontecimientos de los primeros años de la infancia.
+265. Sucederá, que al llegar el estudiante durante su ejercicio retrospectivo a los primeros tres o cuatro años de vida, se le hará muy difícil recordar los acontecimientos de los primeros años de la infancia.
 
-266. El estudiante al llegar a esta parte, practicará su ejer-cicio en aquellos instantes de transición entre la vigilia y el sueño. 267- Entonces, en visión de sueños recordará minuciosa-mente todos los detalles de su infancia, porque durante el sueño entramos en contacto con el subconsciente, donde están almacenados todos nuestros recuerdos.
+266. El estudiante al llegar a esta parte, practicará su ejercicio en aquellos instantes de transición entre la vigilia y el sueño. 267- Entonces, en visión de sueños recordará minuciosamente todos los detalles de su infancia, porque durante el sueño entramos en contacto con el subconsciente, donde están almacenados todos nuestros recuerdos.
 
-268. Este procedimiento de retrospección interna, aprove-chando el estado de transición entre la vigilia y el sueño, po-dremos prolongarlo hasta recordar aquellos instantes que pre-cedieron a la muerte de nuestro pasado cuerpo físico, las últi-mas escenas dolorosas, y continuando el ejercicio retrospecti-vo vamos recordando toda nuestra pasada reencarnación, y todas las que le precedieron.
+268. Este procedimiento de retrospección interna, aprovechando el estado de transición entre la vigilia y el sueño, podremos prolongarlo hasta recordar aquellos instantes que precedieron a la muerte de nuestro pasado cuerpo físico, las últimas escenas dolorosas, y continuando el ejercicio retrospectivo vamos recordando toda nuestra pasada reencarnación, y todas las que le precedieron.
 
 269. Este ejercicio de retrospección profunda... interna y delicada, nos permite recordar todas nuestras vidas pasadas.
 
@@ -1766,13 +1770,13 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 278. No solamente se paga karma por el mal que se hace, sino por el bien que se deja de hacer, pudiéndose hacer.
 
-279. “Amor es Ley, pero AMOR CONSCIENTE”. 280- También se puede pagar mucho karma, cancelar mu-chas deudas practicando magia sexual, porque la sangre del cordero lava los pecados del mundo.
+279. “Amor es Ley, pero AMOR CONSCIENTE”. 280- También se puede pagar mucho karma, cancelar muchas deudas practicando magia sexual, porque la sangre del cordero lava los pecados del mundo.
 
 281. También se pueden solicitar créditos a los señores del karma, pero esos créditos hay que pagarlos sacrificándose por la humanidad.
 
-282. Todos esos negocios se arreglan con los señores del karma, hablando con ellos personalmente en los mundos in-ternos.
+282. Todos esos negocios se arreglan con los señores del karma, hablando con ellos personalmente en los mundos internos.
 
-283. El departamento elemental de la hierbabuena de men-ta, está íntimamente relacionado con las tres runas AR, TYR y MAN.
+283. El departamento elemental de la hierbabuena de menta, está íntimamente relacionado con las tres runas AR, TYR y MAN.
 
 284. La primera runa AR, representa a Dios dentro del hombre, a las fuerzas divinas actuando dentro del ser humano y el Ara sagrada de la vida.
 
@@ -1782,7 +1786,7 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 287. El ángel gobernador de la menta, nos ayuda a pasar de las tinieblas a la luz.
 
-288. Las jerarquías relacionadas con este departamento elemental de la menta, actúan conduciendo las almas Reen-carnantes por el estrecho camino que llega hasta la matriz.
+288. Las jerarquías relacionadas con este departamento elemental de la menta, actúan conduciendo las almas Reencarnantes por el estrecho camino que llega hasta la matriz.
 
 289. Las jerarquías divinas de la hierbabuena de menta, sintetizan sus actividades en las tres runas IS, RITA y GIBOR.
 
@@ -1790,9 +1794,9 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 292. GIBOR es la letra G de la generación.
 
-293. En estas tres letras fundamentales, se fundamenta la actividad de aquellos grandes seres relacionados con el de-partamento elemental de la menta.
+293. En estas tres letras fundamentales, se fundamenta la actividad de aquellos grandes seres relacionados con el departamento elemental de la menta.
 
-294. Todo el proceso científico de la reencarnación, todo el proceso biológico de la concepción fetal está dirigido sabia-mente por aquellos ángeles que se relacionan con el departa-mento elemental de la hierbabuena de menta.
+294. Todo el proceso científico de la reencarnación, todo el proceso biológico de la concepción fetal está dirigido sabiamente por aquellos ángeles que se relacionan con el departamento elemental de la hierbabuena de menta.
 
 295. El pasaje del espermatozoide masculino a través del angosto camino de la trompa del Falopio, es muy semejante a aquel pasaje angosto y estrecho que va de las tinieblas a la luz.
 
@@ -1800,57 +1804,57 @@ CAPÍTULO XV **MAGIA DEL GRANADO, DEL NARANJO, DEL NARDO, DEL AZAFRÁN, DE LA CA
 
 297. Las jerarquías relacionadas con la hierbabuena de menta, dirigen científicamente y de acuerdo con la justicia cósmica, todos los procesos biológicos de la reproducción de la raza.
 
-298. Los ángeles gobernadores de este departamento ele-mental de la naturaleza, nos conducen sabiamente por el es-trecho pasaje de los templos de misterios, llevándonos hasta el altar de la iluminación.
+298. Los ángeles gobernadores de este departamento elemental de la naturaleza, nos conducen sabiamente por el estrecho pasaje de los templos de misterios, llevándonos hasta el altar de la iluminación.
 
-299. La hierba-buena de menta está íntimamente relacio-nada con los archivos akáshicos de la naturaleza.
+299. La hierbabuena de menta está íntimamente relacionada con los archivos akáshicos de la naturaleza.
 
-300. Los Mantrams de la hierbabuena de menta, nos permi-ten recordar nuestras pasadas reencarnaciones.
+300. Los Mantrams de la hierbabuena de menta, nos permiten recordar nuestras pasadas reencarnaciones.
 
-301. Estos Mantrams son: RAOM - GAOM. Podéis vocali-zar estos Mantrams mentalmente, durante los ejercicios re-trospectivos, en meditación profunda para recordar vuestras vidas pasadas. 302- Los Mantrams RAOM - GAOM, nos permiten abrir los archivos sellados de la memoria de la naturaleza, para recor-dar todas nuestras pasadas reencarnaciones.
+301. Estos Mantrams son: RAOM - GAOM. Podéis vocalizar estos Mantrams mentalmente, durante los ejercicios retrospectivos, en meditación profunda para recordar vuestras vidas pasadas. 302- Los Mantrams RAOM - GAOM, nos permiten abrir los archivos sellados de la memoria de la naturaleza, para recordar todas nuestras pasadas reencarnaciones.
 
-303. Esta es la magia elemental de la hierbabuena de men-ta.
+303. Esta es la magia elemental de la hierbabuena de menta.
 
-304. A muchos discípulos, se les hará raro y hasta extraño, que yo relacione la hierba-buena de menta con la ley de la reencarnación, y con los procesos biológicos de la concepción humana.
+304. A muchos discípulos, se les hará raro y hasta extraño, que yo relacione la hierbabuena de menta con la ley de la reencarnación, y con los procesos biológicos de la concepción humana.
 
 305. Hermes Trimegisto, citado por H.P. Blavatsky en la página 367 del primer volumen de «La Doctrina Secreta», dice textualmente:
 
 306. “La creación de la vida por el sol es tan continua como su luz; nada la detiene ni la limita”.
 
-“En torno de él, a manera de un ejército de satélites, exis-ten innumerables coros de genios”.
+“En torno de él, a manera de un ejército de satélites, existen innumerables coros de genios”.
 
 “Estos residen en la vecindad de los inmortales, y desde allí velan sobre los asuntos humanos”.
 
-“Ellos cumplen la voluntad de los dioses (karma) por medio de temporales, calamidades, transiciones de fuego y terremo-tos; igualmente, por medio de hambres y guerras, para el cas-tigo de la impiedad”.
+“Ellos cumplen la voluntad de los dioses (karma) por medio de temporales, calamidades, transiciones de fuego y terremotos; igualmente, por medio de hambres y guerras, para el castigo de la impiedad”.
 
 “El sol conserva y alimenta todas las criaturas; y así como el mundo ideal que rodea al mundo sensible llena a este último con la plenitud y variedad universal de las formas, del mismo modo el sol, comprendiendo todo en su luz, lleva a efecto en todas partes el nacimiento y el desarrollo de las criaturas”.
 
 “Bajo sus órdenes se halla el coro de los Genios, o más bien los coros, pues allí hay muchos y diversos, y su número corresponde al de las estrellas”.
 
-“Cada estrella posee sus genios, buenos y malos por natu-raleza, o más bien por su acción: pues la acción es la esencia de los genios”... “Todos estos genios presiden sobre los asuntos munda-nos”.
+“Cada estrella posee sus genios, buenos y malos por naturaleza, o más bien por su acción: pues la acción es la esencia de los genios”... “Todos estos genios presiden sobre los asuntos mundanos”.
 
-307. “Ellos sacuden y derriban la constitución de los esta-dos y de los individuos; ellos imprimen su parecido en nues-tras almas, ellos están presentes en nuestros nervios, en nuestra médula, en nuestras venas, en nuestras arterias y en nuestra misma sustancia cerebral”.
+307. “Ellos sacuden y derriban la constitución de los estados y de los individuos; ellos imprimen su parecido en nuestras almas, ellos están presentes en nuestros nervios, en nuestra médula, en nuestras venas, en nuestras arterias y en nuestra misma sustancia cerebral”.
 
 En el momento en que uno de nosotros recibe vida y ser, queda a cargo de los genios elementales que presiden sobre los nacimientos, y que se hallan clasificados bajo los poderes astrales. (Espíritus Astrales sobrehumanos)”.
 
-“Ellos cambian perpetuamente, no siempre de un modo idéntico, sino girando en círculos. (Progresos cíclicos en desa-rrollo)”.
+“Ellos cambian perpetuamente, no siempre de un modo idéntico, sino girando en círculos. (Progresos cíclicos en desarrollo)”.
 
 “Ellos impregnan, por medio del cuerpo, dos porciones del alma, para que pueda recibir de cada una la impresión de su propia energía”.
 
-“Pero la parte divina del alma no se halla sujeta a los ge-nios, hallase designada para la recepción del Dios (el INTIMO), que la ilumina con un rayo de sol”.
+“Pero la parte divina del alma no se halla sujeta a los genios, hallase designada para la recepción del Dios (el INTIMO), que la ilumina con un rayo de sol”.
 
-“Los iluminados así son pocos en número y los genios se abstienen de ellos; (así es como el hombre se liberta del kar-ma), pues ni los genios, ni los dioses poseen poder ninguno en presencia de un solo rayo de Dios”.
+“Los iluminados así son pocos en número y los genios se abstienen de ellos; (así es como el hombre se liberta del karma), pues ni los genios, ni los dioses poseen poder ninguno en presencia de un solo rayo de Dios”.
 
-“Pero todos los demás hombres, tanto en cuerpo como en alma, son dirigidos por genios a quienes se adhieren, y a cu-yas acciones afectan”...
+“Pero todos los demás hombres, tanto en cuerpo como en alma, son dirigidos por genios a quienes se adhieren, y a cuyas acciones afectan”...
 
-“Los genios poseen pues, el dominio de las cosas munda-nas, y nuestros cuerpos les sirven de instrumento”.
+“Los genios poseen pues, el dominio de las cosas mundanas, y nuestros cuerpos les sirven de instrumento”.
 
-308. Estos genios elementales de la naturaleza son llama-dos en la India BHUTS, DEVAS, SHAITAN, DJIN.
+308. Estos genios elementales de la naturaleza son llamados en la India BHUTS, DEVAS, SHAITAN, DJIN.
 
 309. Todos estos grandes seres son hijos de la Niebla de Fuego, son el ejército de la voz, son seres perfectos... 310- Todo lo que existe en el universo, ha brotado de sus semillas...
 
 311. Las semillas de todo lo existente, son las esencias monádicas de la Niebla de Fuego.
 
-312. Cuando el corazón del sistema solar comenzó a palpi-tar después de la gran noche cósmica, los átomos “Devorado-res” de la Niebla de Fuego disgregaron todos los átomos de las esencias monádicas para que de ellos surgiera la vida elemental de los cuatro reinos de la naturaleza.
+312. Cuando el corazón del sistema solar comenzó a palpitar después de la gran noche cósmica, los átomos “Devoradores” de la Niebla de Fuego disgregaron todos los átomos de las esencias monádicas para que de ellos surgiera la vida elemental de los cuatro reinos de la naturaleza.
 
 313. Cada átomo de la naturaleza es el cuerpo de una chispa virginal que evoluciona incesantemente a través del tiempo y del espacio.
 
@@ -1858,19 +1862,19 @@ En el momento en que uno de nosotros recibe vida y ser, queda a cargo de los gen
 
 315. Esas chispas virginales en su conjunto, son llamadas esencias monádicas.
 
-316. Cada uno de los átomos de nuestro cuerpo físico y de nuestros cuerpos internos, es la encarnación viva de las chis-pas virginales...
+316. Cada uno de los átomos de nuestro cuerpo físico y de nuestros cuerpos internos, es la encarnación viva de las chispas virginales...
 
-317. Todas esas chispas virginales evolucionan y progre-san bajo la dirección de los ángeles.
+317. Todas esas chispas virginales evolucionan y progresan bajo la dirección de los ángeles.
 
-318. Ahora entenderán nuestros discípulos, por qué los ángeles de la hierba-buena de menta dirigen todos los proce-sos de la gestación fetal y de la reproducción racial.
+318. Ahora entenderán nuestros discípulos, por qué los ángeles de la hierbabuena de menta dirigen todos los procesos de la gestación fetal y de la reproducción racial.
 
 319. Existen tres aspectos de evolución cósmica, que en nuestra tierra se hallan confundidos y entrelazados por todas partes.
 
 320. Estos tres aspectos son: la evolución monádica, la evolución mental, y la evolución física.
 
-321. Empero, las esencias monádicas en progreso evoluti-vo son la base fundamental del desarrollo mental y físico. 322- Conforme las esencias monádicas van evolucionando, toda la gran naturaleza se va transformando.
+321. Empero, las esencias monádicas en progreso evolutivo son la base fundamental del desarrollo mental y físico. 322- Conforme las esencias monádicas van evolucionando, toda la gran naturaleza se va transformando.
 
-323. Cada una de estas tres corrientes evolutivas está diri-gida y gobernada por grupos diferentes de DHYANIS o LOGOY.
+323. Cada una de estas tres corrientes evolutivas está dirigida y gobernada por grupos diferentes de DHYANIS o LOGOY.
 
 324. Esos grupos de seres divinos se hallan representados en toda nuestra constitución humana.
 
@@ -1880,23 +1884,23 @@ En el momento en que uno de nosotros recibe vida y ser, queda a cargo de los gen
 
 327. Los MANASA-DHYANIS, son los que dotan al ser humano de mente y de inteligencia.
 
-328. Cada átomo virginal del reino mineral es el cuerpo físi-co de una Mónada divina que aspira a convertirse en hombre.
+328. Cada átomo virginal del reino mineral es el cuerpo físico de una Mónada divina que aspira a convertirse en hombre.
 
 329. En la página 242 del primer volumen de “La Doctrina Secreta” de H.P. Blavatsky, leemos el siguiente comentario:
 
-330. “Cada forma en la tierra, cada punto (átomo) en el es-pacio, trabaja en sus esfuerzos hacia la propia formación, por seguir el modelo colocado para él en el hombre celestial…”
+330. “Cada forma en la tierra, cada punto (átomo) en el espacio, trabaja en sus esfuerzos hacia la propia formación, por seguir el modelo colocado para él en el hombre celestial…”
 
-“Su (del átomo) involución y evolución, su desenvolvimiento y desarrollo externo e interno, tiene uno y el mismo objeto, el hombre; el hombre como la forma física más elevada y última en esta tierra; la Mónada en su totalidad absoluta y condición despierta como culminación de las encarnaciones divinas en la tierra”. 331- Todos los elementales animales, vegetales y minera-les, se convertirán en hombres en los períodos de Júpiter, Ve-nus y Vulcano.
+“Su (del átomo) involución y evolución, su desenvolvimiento y desarrollo externo e interno, tiene uno y el mismo objeto, el hombre; el hombre como la forma física más elevada y última en esta tierra; la Mónada en su totalidad absoluta y condición despierta como culminación de las encarnaciones divinas en la tierra”. 331- Todos los elementales animales, vegetales y minerales, se convertirán en hombres en los períodos de Júpiter, Venus y Vulcano.
 
-332. En última síntesis, todos nuestros cuatro cuerpos infe-riores están formados de elementales atómicos o conciencias atómicas gobernadas por los Devas o ángeles de la naturale-za.
+332. En última síntesis, todos nuestros cuatro cuerpos inferiores están formados de elementales atómicos o conciencias atómicas gobernadas por los Devas o ángeles de la naturaleza.
 
 333. Nuestra vida individual está totalmente relacionada con la vida universal.
 
-334. Y la vida interna de las plantas está dentro de noso-tros mismos.
+334. Y la vida interna de las plantas está dentro de nosotros mismos.
 
-335. Y los regentes de los distintos departamentos elemen-tales de la naturaleza, están dentro de nosotros mismos, diri-giendo todos nuestros procesos biológicos y todos nuestros procesos concientivos y mentales.
+335. Y los regentes de los distintos departamentos elementales de la naturaleza, están dentro de nosotros mismos, dirigiendo todos nuestros procesos biológicos y todos nuestros procesos concientivos y mentales.
 
-336. Las cuatro estaciones del año están dentro de noso-tros mismos, se repiten en nuestra conciencia interna.
+336. Las cuatro estaciones del año están dentro de nosotros mismos, se repiten en nuestra conciencia interna.
 
 337. Así, pues, es imposible separar nuestra vida del gran océano de la vida universal, y con una simple hierba podemos muchas veces desatar una tempestad y hacer temblar la tierra, porque la vida de una insignificante hierba está unida a todas las vidas de esta gran vida universal.
 
@@ -1904,7 +1908,7 @@ En el momento en que uno de nosotros recibe vida y ser, queda a cargo de los gen
 
 339. La vida de cada una de las plantas de la naturaleza se repite dentro de nosotros mismos, y la suma total de todos estos sumandos constituyen eso que llamamos hombre.
 
-340. “Y viendo una higuera cerca del camino, vino a ella, y no halló nada en ella, sino hojas solamente; y le dijo: Nunca más para siempre nazca de ti fruto. Y luego se secó la higue-ra”. (Vers. 19, Cap. 21. San Mateo).
+340. “Y viendo una higuera cerca del camino, vino a ella, y no halló nada en ella, sino hojas solamente; y le dijo: Nunca más para siempre nazca de ti fruto. Y luego se secó la higuera”. (Vers. 19, Cap. 21. San Mateo).
 
 341. El departamento elemental de la higuera pertenece a las fuerzas sexuales.
 
@@ -1926,13 +1930,13 @@ En el momento en que uno de nosotros recibe vida y ser, queda a cargo de los gen
 
 349. Dentro del Kundalini Shakti, están encerradas todas las Siete Fuerzas Cósmicas, y el Kundalini está encerrado dentro de la fuerza sexual del miembro viril y de la vulva.
 
-350. En la unión del Phalo y el Útero, está encerrado el se-creto para despertar el Kundalini.
+350. En la unión del Phalo y el Útero, está encerrado el secreto para despertar el Kundalini.
 
 351. El Kundalini evoluciona y progresa dentro del aura del LOGOS-SOLAR.
 
 352. De la evolución del Kundalini depende la evolución de las seis fuerzas restantes.
 
-353. Todo el poder de la mente, todo el poder de la luz y del calor, todo el poder del verbo y de la voluntad, están ence-rrados en la serpiente sagrada, cuyo poder reside en el Phalo y el Útero.
+353. Todo el poder de la mente, todo el poder de la luz y del calor, todo el poder del verbo y de la voluntad, están encerrados en la serpiente sagrada, cuyo poder reside en el Phalo y el Útero.
 
 354. Árbol que no da fruto es cortado y echado al fuego. Los fornicarios son higueras estériles que son cortadas y echadas al fuego.
 
@@ -1940,9 +1944,9 @@ En el momento en que uno de nosotros recibe vida y ser, queda a cargo de los gen
 
 356. El gallo y la higuera representan las fuerzas sexuales.
 
-357. Por ello no podía faltar en el drama del Calvario el Ga-llo de la Pasión.
+357. Por ello no podía faltar en el drama del Calvario el Gallo de la Pasión.
 
-358. La higuera representa únicamente las fuerzas sexua-les femeninas.
+358. La higuera representa únicamente las fuerzas sexuales femeninas.
 
 359. Es imposible realizarse a fondo, sin la Alquimia de las fuerzas solares femeninas.
 
@@ -1950,27 +1954,27 @@ En el momento en que uno de nosotros recibe vida y ser, queda a cargo de los gen
 
 361. Esa sustancia cristónica del Salvador del mundo está depositada en nuestro semen Cristónico y es por ello que la puerta de entrada al Edén está en nuestros órganos sexuales.
 
-362. Por medio de la Alquimia-Sexual, transmutamos el semen Cristónico en sutilísima energía Crística, con la cual formamos en nuestro cuerpo astral un vehículo subliminal, un astral superior, que es el Yo-Cristo. (Véase nuestro libro «Al-quimia Sexual»).
+362. Por medio de la Alquimia-Sexual, transmutamos el semen Cristónico en sutilísima energía Crística, con la cual formamos en nuestro cuerpo astral un vehículo subliminal, un astral superior, que es el Yo-Cristo. (Véase nuestro libro «Alquimia Sexual»).
 
-363. Ese Yo-Cristo, formado con la misma esencia del Sal-vador del mundo, es la puerta de entrada a los grandes miste-rios del fuego.
+363. Ese Yo-Cristo, formado con la misma esencia del Salvador del mundo, es la puerta de entrada a los grandes misterios del fuego.
 
-364. Los misterios del fuego sólo se conocen entrando por la puerta del Edén. 365- Es completamente imposible entrar en los grandes misterios de la mente, sin haber antes formado el Yo-Cristo en nuestro cuerpo astral. (Véase nuestro libro «Las Siete Pala-bras»).
+364. Los misterios del fuego sólo se conocen entrando por la puerta del Edén. 365- Es completamente imposible entrar en los grandes misterios de la mente, sin haber antes formado el Yo-Cristo en nuestro cuerpo astral. (Véase nuestro libro «Las Siete Palabras»).
 
-366. Cristo y Jehová, deben ser formados en nosotros, pa-ra penetrar en las grandes Iniciaciones del Fuego.
+366. Cristo y Jehová, deben ser formados en nosotros, para penetrar en las grandes Iniciaciones del Fuego.
 
-367. Jehová en nosotros, es el Espíritu Santo, que resulta de las incesantes transformaciones de nuestro semen Cristó-nico.
+367. Jehová en nosotros, es el Espíritu Santo, que resulta de las incesantes transformaciones de nuestro semen Cristónico.
 
-368. Cristo y Jehová, viven dentro de nosotros como sus-tancias seminales.
+368. Cristo y Jehová, viven dentro de nosotros como sustancias seminales.
 
-369. La iluminación de los maestros, viene del Espíritu San-to.
+369. La iluminación de los maestros, viene del Espíritu Santo.
 
-370. El señor Jehová en nosotros, es el Espíritu Santo, cu-ya omnisciencia nos ilumina internamente.
+370. El señor Jehová en nosotros, es el Espíritu Santo, cuya omnisciencia nos ilumina internamente.
 
-371. Debemos formar a Cristo y a Jehová, para poder en-trar al Nirvana.
+371. Debemos formar a Cristo y a Jehová, para poder entrar al Nirvana.
 
 372. Todos los poderes ocultos de un maestro, vienen de la sustancia Crística, y de la iluminación del Espíritu Santo en nosotros.
 
-373. Empero, no debemos olvidar que cada uno de noso-tros es en el fondo una estrella.
+373. Empero, no debemos olvidar que cada uno de nosotros es en el fondo una estrella.
 
 374. Esa estrella que arde en nosotros, es el Padre cuya divina individualidad debemos absorberla para completar la perfecta Trinidad divina.
 
@@ -1978,11 +1982,11 @@ En el momento en que uno de nosotros recibe vida y ser, queda a cargo de los gen
 
 376. Cristo y Jehová residen en nosotros como sustancias seminales.
 
-377. El señor Jehová se forma en nosotros con la transmu-tación del semen. 378- Los poderes omniscientes del Adepto se encierran en el Espíritu Santo.
+377. El señor Jehová se forma en nosotros con la transmutación del semen. 378- Los poderes omniscientes del Adepto se encierran en el Espíritu Santo.
 
-379. El señor Jehová es una divina entidad llena de omnis-ciencia y poder.
+379. El señor Jehová es una divina entidad llena de omnisciencia y poder.
 
-380. Esa sustancia del señor Jehová está difundida por to-das partes, lo mismo que la sustancia cristónica del LOGOS-SOLAR.
+380. Esa sustancia del señor Jehová está difundida por todas partes, lo mismo que la sustancia cristónica del LOGOS-SOLAR.
 
 381. Formar a Jehová en nosotros, es formar al Espíritu Santo en nosotros.
 
@@ -1990,7 +1994,7 @@ En el momento en que uno de nosotros recibe vida y ser, queda a cargo de los gen
 
 383. Así pues, el señor Jehová y el señor Cristo, son al mismo tiempo entidades individuales, y esencias cósmicas almacenadas en el semen.
 
-384. Es infinitamente lamentable que no haya hasta la épo-ca presente ocultistas avanzados que hubieran explicado quién es el señor Jehová.
+384. Es infinitamente lamentable que no haya hasta la época presente ocultistas avanzados que hubieran explicado quién es el señor Jehová.
 
 385. Max Heindel cometió el error de considerar al señor Jehová como una entidad divina del pasado.
 
@@ -2000,11 +2004,11 @@ En el momento en que uno de nosotros recibe vida y ser, queda a cargo de los gen
 
 388. Huiracocha cree que Jehová es solamente las cinco vocales I-E-O-U-A, lo cual resulta perfectamente absurdo.
 
-389. Está bien que relacionemos a Juan con las cinco vo-cales I-E-O-U-A, pero Jehová es otra cosa. Jehová es una entidad divina, Jehová es semen transmutado. Jehová es el Espíritu Santo en nosotros.
+389. Está bien que relacionemos a Juan con las cinco vocales I-E-O-U-A, pero Jehová es otra cosa. Jehová es una entidad divina, Jehová es semen transmutado. Jehová es el Espíritu Santo en nosotros.
 
 390. El Divino Rabí de Galilea, hablando del Espíritu Santo, nos dice lo siguiente:
 
-“Y yo os digo: Pedid, y se os dará, buscad y hallaréis; lla-mad, y os será abierto”.
+“Y yo os digo: Pedid, y se os dará, buscad y hallaréis; llamad, y os será abierto”.
 
 “Porque todo aquel que pide, recibe, y el que busca, halla, y al que llama, se le abre”.
 
@@ -2020,9 +2024,9 @@ En el momento en que uno de nosotros recibe vida y ser, queda a cargo de los gen
 
 393. El Espíritu Santo es puro semen transmutado.
 
-394. Cuando el Kundalini llega a Brahmarandra y sale hacia el mundo exterior por la fontanela frontal de los recién nacidos, asume con sus átomos omniscientes la mística figura de la blanca paloma del Espíritu Santo, que flota entre las lla-maradas del Fuego Sagrado.
+394. Cuando el Kundalini llega a Brahmarandra y sale hacia el mundo exterior por la fontanela frontal de los recién nacidos, asume con sus átomos omniscientes la mística figura de la blanca paloma del Espíritu Santo, que flota entre las llamaradas del Fuego Sagrado.
 
-395. Esa blanca paloma confiere al Adepto sabiduría y po-deres mágicos.
+395. Esa blanca paloma confiere al Adepto sabiduría y poderes mágicos.
 
 396. Esos átomos selectos del Kundalini, con los cuales formamos al Espíritu Santo en nosotros, fueron depositados por el señor Jehová en nuestro semen Cristónico, desde el amanecer de la vida en este planeta. 397- Así como en nuestras venas llevamos la sangre de nuestros padres, así también en nuestro semen llevamos las esencias sagradas de CRISTO, de JEHOVÁ y del PADRE.
 
@@ -2032,7 +2036,7 @@ En el momento en que uno de nosotros recibe vida y ser, queda a cargo de los gen
 
 400. Con la sustancia seminal del PADRE, robustecemos el INTIMO, para formar al PADRE en nosotros.
 
-401. Así es como formamos al PADRE, al HIJO y al ESPÍRITU SANTO en nosotros, y nos convertimos en majes-tades terribles del Universo.
+401. Así es como formamos al PADRE, al HIJO y al ESPÍRITU SANTO en nosotros, y nos convertimos en majestades terribles del Universo.
 
 402. Todos los misterios de la electricidad, del magnetismo, de la polaridad, y de la luz y del calor, se hallan encerrados en nuestros órganos sexuales.
 
@@ -2040,29 +2044,29 @@ En el momento en que uno de nosotros recibe vida y ser, queda a cargo de los gen
 
 404. Todo el septenario queda sintetizado en la divina TRÍADA; ATMAN-BUDDHI-MANAS.
 
-405. El YO-CRISTO se absorbe en la conciencia superlati-va del SER, en el Alma de Diamante, en el BUDDHI.
+405. El YO-CRISTO se absorbe en la conciencia superlativa del SER, en el Alma de Diamante, en el BUDDHI.
 
 406. El ESPÍRITU SANTO en nosotros se absorbe en el cuerpo de la voluntad, MANAS superior o cuerpo causal.
 
 407. Y la esencia seminal purísima del PADRE se absorbe en el INTIMO, para formar al PADRE en nosotros.
 
-408. Así es como el septenario humano queda reducido a una TRÍADA PERFECTA, cuyo vehículo de expresión concre-ta viene a ser el Bodhisattva humano (el Ego Astral del Maes-tro).
+408. Así es como el septenario humano queda reducido a una TRÍADA PERFECTA, cuyo vehículo de expresión concreta viene a ser el Bodhisattva humano (el Ego Astral del Maestro).
 
 409. En el Oriente dicen que los BUDDHAS son dobles.
 
 410. Existe el hombre celeste y el hombre terrenal.
 
-411. Existen los Buddhas terrenales, y los Buddhas de con-templación.
+411. Existen los Buddhas terrenales, y los Buddhas de contemplación.
 
-412. Cincuenta años después de su desencarnación, Budha envió a la Tierra su alma humana o Espíritu Santo, en-cerrado y absorbido en su MANAS Superior, para que se en-carnara nuevamente y terminara su obra.
+412. Cincuenta años después de su desencarnación, Budha envió a la Tierra su alma humana o Espíritu Santo, encerrado y absorbido en su MANAS Superior, para que se encarnara nuevamente y terminara su obra.
 
-413. Esta misión la cumplió su Boddhisattva, bajo la direc-ción de Sankara-Charya.
+413. Esta misión la cumplió su Boddhisattva, bajo la dirección de Sankara-Charya.
 
 414. Sankara, era un rayo de luz primitiva, era una llama...
 
 415. Sankara enlazó la doctrina Buddhista con la filosofía Advaita.
 
-416. Así fue como el Boddhisattva astral de Buddha ter-minó la obra del Maestro interno.
+416. Así fue como el Boddhisattva astral de Buddha terminó la obra del Maestro interno.
 
 417. Un Boddhisattva está formado por el Espíritu Santo de un Maestro, vestido con los cuatro cuerpos inferiores.
 
@@ -2074,29 +2078,29 @@ En el momento en que uno de nosotros recibe vida y ser, queda a cargo de los gen
 
 421. CRISTO, el Divino Redentor del Mundo, ha enviado después de su muerte terrenal a su Bodhisattva humano, pero los hombres no lo han conocido.
 
-422. Empero, en la edad de ACUARIO se reencarnará la TRÍADA CRÍSTICA, en forma integral para enseñarle a la humanidad el esoterismo Crístico. 423- Entonces el movimiento Gnóstico habrá dado sus fru-tos, y toda la humanidad Acuariana estará preparada para entender las últimas explicaciones del Maestro.
+422. Empero, en la edad de ACUARIO se reencarnará la TRÍADA CRÍSTICA, en forma integral para enseñarle a la humanidad el esoterismo Crístico. 423- Entonces el movimiento Gnóstico habrá dado sus frutos, y toda la humanidad Acuariana estará preparada para entender las últimas explicaciones del Maestro.
 
 424. Hay que distinguir entre qué son los Avataras y qué es el Salvador.
 
-425. Juan Bautista fue el Avatar de PISCIS y yo soy el Ava-tar de ACUARIO.
+425. Juan Bautista fue el Avatar de PISCIS y yo soy el Avatar de ACUARIO.
 
-426. El Salvador del Mundo no es Avatar, es más que to-dos los Avataras, es el SALVADOR.
+426. El Salvador del Mundo no es Avatar, es más que todos los Avataras, es el SALVADOR.
 
-427. Los Avataras somos tan sólo los instructores y funda-dores de una nueva era.
+427. Los Avataras somos tan sólo los instructores y fundadores de una nueva era.
 
-428. CRISTO es más que todos los instructores, es el Sal-vador.
+428. CRISTO es más que todos los instructores, es el Salvador.
 
-429. Las Jerarquías relacionadas con el departamento elemental de la higuera, se encargan de aplicarle el karma a todos aquellos malvados, sodomitas, y a todos aquellos dege-nerados sexuales, que tanto abundan en la humanidad.
+429. Las Jerarquías relacionadas con el departamento elemental de la higuera, se encargan de aplicarle el karma a todos aquellos malvados, sodomitas, y a todos aquellos degenerados sexuales, que tanto abundan en la humanidad.
 
 430. El nombre del ángel gobernador de este departamento elemental de la naturaleza es “NAJERA”.
 
-431. Los elementales de este departamento elemental de la higuera, usan túnica blanca, y son niños de extraordinaria be-lleza.
+431. Los elementales de este departamento elemental de la higuera, usan túnica blanca, y son niños de extraordinaria belleza.
 
 432. Esa túnica blanca representa la castidad y la santidad.
 
-433. Los miembros de todas las escuelas espiritualistas odian la castidad, y la eluden hábilmente, buscando escapato-ria por la puerta falsa de sus teorías.
+433. Los miembros de todas las escuelas espiritualistas odian la castidad, y la eluden hábilmente, buscando escapatoria por la puerta falsa de sus teorías.
 
-434. Su misma debilidad, su misma falta de fuerza de vo-luntad, los hace buscar escapatorias sutilísimas para evadir el problema de la castidad. 435- Algunos hasta empiezan sus prácticas de magia sexual, pero pronto sucumben ante las exigencias pasionales de sus fornicarias esposas.
+434. Su misma debilidad, su misma falta de fuerza de voluntad, los hace buscar escapatorias sutilísimas para evadir el problema de la castidad. 435- Algunos hasta empiezan sus prácticas de magia sexual, pero pronto sucumben ante las exigencias pasionales de sus fornicarias esposas.
 
 436. Por ello afirmamos los Gnósticos: “Nuestra divisa es TE-LE-MA” (Voluntad).
 
@@ -2106,33 +2110,33 @@ En el momento en que uno de nosotros recibe vida y ser, queda a cargo de los gen
 
 “Mas el árbol de la ciencia del bien y del mal no comerás de él; porque el día que de él comieres, morirás”. (Vers. 16 y 17, Cap. 2. Génesis).
 
-439. Por encima de esta ordenanza del Señor Jehová, no podrán pasar los perversos secuaces de todos los seudo espi-ritualistas y teorizantes místicos del profesionalismo mundial.
+439. Por encima de esta ordenanza del Señor Jehová, no podrán pasar los perversos secuaces de todos los seudo espiritualistas y teorizantes místicos del profesionalismo mundial.
 
 440. La ordenanza del Señor Jehová se cumple, CUESTE LO QUE CUESTE.
 
-441. Los fornicarios son higueras estériles, árboles sin fru-to, que son cortados y echados al fuego.
+441. Los fornicarios son higueras estériles, árboles sin fruto, que son cortados y echados al fuego.
 
 ## CAPÍTULO XVI
 
 # LA MENTE Y LA SEXUALIDAD
 
-1. Todo lo escrito sobre la mente ha sido sólo preliminar pa-ra el estudio sagrado de «ROSA ÍGNEA».
+1. Todo lo escrito sobre la mente ha sido sólo preliminar para el estudio sagrado de «ROSA ÍGNEA».
 
-2. Vivekananda es quien más claro ha hablado sobre la mente, pero sus enseñanzas son apenas nociones prelimina-res para los estudios serios del entendimiento. 3- La mente está íntimamente relacionada con la sexuali-dad, y es imposible estudiar la mente sin estudiar el problema sexual.
+2. Vivekananda es quien más claro ha hablado sobre la mente, pero sus enseñanzas son apenas nociones preliminares para los estudios serios del entendimiento. 3- La mente está íntimamente relacionada con la sexualidad, y es imposible estudiar la mente sin estudiar el problema sexual.
 
-4. Existen innumerables estudiantes de ocultismo dedica-dos a la Yoga y a las enseñanzas Krisnamurtianas, pero como esos pobres seres fornican incesantemente, nada consiguen, y pierden el tiempo lamentablemente.
+4. Existen innumerables estudiantes de ocultismo dedicados a la Yoga y a las enseñanzas Krisnamurtianas, pero como esos pobres seres fornican incesantemente, nada consiguen, y pierden el tiempo lamentablemente.
 
-5. Es imposible separar la mente de la sexualidad; la mente y el sexo están íntimamente relacionados, y si nuestros discí-pulos quieren convertir la Mente-Materia en Mente-Cristo, de-ben llenar su cáliz (cerebro) con el vino sagrado de la luz (se-men).
+5. Es imposible separar la mente de la sexualidad; la mente y el sexo están íntimamente relacionados, y si nuestros discípulos quieren convertir la Mente-Materia en Mente-Cristo, deben llenar su cáliz (cerebro) con el vino sagrado de la luz (semen).
 
-6. Es imposible poder Cristificar la mente, mientras este-mos fornicando.
+6. Es imposible poder Cristificar la mente, mientras estemos fornicando.
 
-7. Hay que practicar magia-sexual intensamente para trans-formar la mente.
+7. Hay que practicar magia-sexual intensamente para transformar la mente.
 
 8. Por medio de la magia-sexual, llenamos nuestra mente de átomos transformativos de altísimo voltaje.
 
 9. Así es como preparamos nuestro cuerpo mental para el advenimiento del fuego.
 
-10. Cuando la serpiente ígnea del cuerpo mental ha con-vertido la Mente-Materia en Mente-Cristo, entonces nos liber-tamos de los cuatro cuerpos de pecado.
+10. Cuando la serpiente ígnea del cuerpo mental ha convertido la Mente-Materia en Mente-Cristo, entonces nos libertamos de los cuatro cuerpos de pecado.
 
 11. Empero, nuestros discípulos solteros pueden llegar a las grandes realizaciones, con la terrible fuerza del sacrificio.
 
@@ -2148,21 +2152,21 @@ En el momento en que uno de nosotros recibe vida y ser, queda a cargo de los gen
 
 18. Se vocalizarán estos Mantrams, así:
 
-KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letra R, se pronuncia en forma alargada y agu-da, imitando el sonido producido por los cascabeles de la ser-piente cascabel.
+KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letra R, se pronuncia en forma alargada y aguda, imitando el sonido producido por los cascabeles de la serpiente cascabel.
 
-19. Estos son los Mantrams más poderosos que se cono-cen en todo lo infinito para el despertar del Kundalini.
+19. Estos son los Mantrams más poderosos que se conocen en todo lo infinito para el despertar del Kundalini.
 
-20. Aquellos discípulos que por circunstancias ajenas a su voluntad no puedan practicar magia-sexual con sus esposas sacerdotisas, entonces deben jurar castidad eterna, y no vol-ver a tocar mujer en toda la eternidad.
+20. Aquellos discípulos que por circunstancias ajenas a su voluntad no puedan practicar magia-sexual con sus esposas sacerdotisas, entonces deben jurar castidad eterna, y no volver a tocar mujer en toda la eternidad.
 
-21. Nuestras discípulas solteras, harán las mismas prácti-cas de transmutación sexual que hemos dado para nuestros discípulos solteros.
+21. Nuestras discípulas solteras, harán las mismas prácticas de transmutación sexual que hemos dado para nuestros discípulos solteros.
 
 22. Nuestras discípulas casadas practicarán magia-sexual con sus maridos.
 
-23. Cuando por circunstancias ajenas a su voluntad no puedan practicar magia-sexual con sus maridos, entonces se abstendrán totalmente para despertar su Kundalini con la fuer-za del sacrificio, y practicarán la clave de transmutación que he dado para los solteros.
+23. Cuando por circunstancias ajenas a su voluntad no puedan practicar magia-sexual con sus maridos, entonces se abstendrán totalmente para despertar su Kundalini con la fuerza del sacrificio, y practicarán la clave de transmutación que he dado para los solteros.
 
 24. Toda llama necesita de un combustible para arder.
 
-25. La llama sagrada de nuestro candelero también tiene su combustible; ese combustible es nuestro aceite de oro, es nuestro semen Cristónico. 26- El hombre que gasta ese aceite sagrado, no puede en-cender su candelero.
+25. La llama sagrada de nuestro candelero también tiene su combustible; ese combustible es nuestro aceite de oro, es nuestro semen Cristónico. 26- El hombre que gasta ese aceite sagrado, no puede encender su candelero.
 
 27. “Y volvió el ángel que hablaba conmigo y despertome como un hombre que es despertado de su sueño”.
 
@@ -2172,13 +2176,13 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 28. “Hablé más, y díjele: ¿Qué significan estas dos olivas a la derecha del candelero, y a su izquierda?”.
 
-“Hablé aún de nuevo, y díjele: ¿Qué significan las dos ra-mas de olivas que por medio de dos tubos de oro vierten de sí aceite como oro?”
+“Hablé aún de nuevo, y díjele: ¿Qué significan las dos ramas de olivas que por medio de dos tubos de oro vierten de sí aceite como oro?”
 
 “Y respondiéndome, diciendo: ¿No sabes qué es esto? Y dije: Señor mío, no”.
 
-“Y él dijo: Estos dos hijos de aceite son los que están de-lante del Señor de toda la tierra”. (Vers. 11 a 14. Cap. 4. ZACARÍAS, Nuevo Testamento).
+“Y él dijo: Estos dos hijos de aceite son los que están delante del Señor de toda la tierra”. (Vers. 11 a 14. Cap. 4. ZACARÍAS, Nuevo Testamento).
 
-29. Estos dos hijos de aceite, que están delante del dios de la tierra, son nuestros dos cordones ganglionares que se en-roscan en nuestra médula espinal, y por los cuales debemos hacer subir nuestra energía seminal hasta el cerebro.
+29. Estos dos hijos de aceite, que están delante del dios de la tierra, son nuestros dos cordones ganglionares que se enroscan en nuestra médula espinal, y por los cuales debemos hacer subir nuestra energía seminal hasta el cerebro.
 
 30. Que el Santo Graal sea con nosotros, que nuestro cáliz se llene de la sangre del Cordero.
 
@@ -2186,7 +2190,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 32. Es imposible Cristificar la mente sin el fuego.
 
-33. Ahora comprenderán nuestros discípulos, por qué se puso sobre la cabeza del crucificado la palabra “INRI”. 34- Esta palabra significa: “Ignis Natura Renovatur Inte-gram”. (El fuego renueva incesantemente la naturaleza).
+33. Ahora comprenderán nuestros discípulos, por qué se puso sobre la cabeza del crucificado la palabra “INRI”. 34- Esta palabra significa: “Ignis Natura Renovatur Integram”. (El fuego renueva incesantemente la naturaleza).
 
 35. El concepto de Descartes: “PIENSO, LUEGO EXISTO” es completamente falso, porque el hombre verdadero es el INTIMO, y el INTIMO no piensa, porque sabe...
 
@@ -2194,7 +2198,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 37. La mente humana en su actual estado de evolución, es el animal que llevamos dentro.
 
-38. El INTIMO no necesita pensar, porque él es omniscien-te.
+38. El INTIMO no necesita pensar, porque él es omnisciente.
 
 39. Nuestro INTIMO, es SI, SI, SI.
 
@@ -2208,7 +2212,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 44. Lo mismo sucede con la mente; cuando decimos: tengo una fuerza mental, tengo una fuerza mental poderosa, tengo un problema, tengo tal conflicto, tengo tal sufrimiento, se me ocurren tales pensamientos, etc.
 
-45. Estamos afirmando entonces errores gravísimos, por-que esas son cosas de la mente, no del INTIMO.
+45. Estamos afirmando entonces errores gravísimos, porque esas son cosas de la mente, no del INTIMO.
 
 46. El INTIMO no tiene problemas, los problemas son de la mente.
 
@@ -2216,23 +2220,23 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 48. El INTIMO debe azotar a la mente con el látigo terrible de la voluntad. 49- El hombre que se identifica con la mente, cae en el abismo.
 
-50. La mente es el burro en que debemos montar para en-trar a la Jerusalem celestial.
+50. La mente es el burro en que debemos montar para entrar a la Jerusalem celestial.
 
-51. Debemos mandar a la mente así: mente, retírame ese problema; mente, retírame tal conflicto, mente, retírame tal deseo; etc., etc. No te lo admito, soy tu Señor y tú eres mi es-clava hasta la consumación de los siglos.
+51. Debemos mandar a la mente así: mente, retírame ese problema; mente, retírame tal conflicto, mente, retírame tal deseo; etc., etc. No te lo admito, soy tu Señor y tú eres mi esclava hasta la consumación de los siglos.
 
 52. ¡Ay! del hombre que se identifica con la mente, porque pierde el INTIMO, y va a parar al abismo.
 
 53. Aquellos que dicen que todo es mente, cometen un error gravísimo, porque la mente es tan solo un instrumento del INTIMO.
 
-54. Todas aquellas obras que tiendan a identificar totalmen-te al hombre con la mente, son legítima magia negra, porque el verdadero hombre no es la mente.
+54. Todas aquellas obras que tiendan a identificar totalmente al hombre con la mente, son legítima magia negra, porque el verdadero hombre no es la mente.
 
-55. No debemos olvidar que los demonios más sutiles y pe-ligrosos que existen en el universo, residen en el plano mental.
+55. No debemos olvidar que los demonios más sutiles y peligrosos que existen en el universo, residen en el plano mental.
 
 56. El INTIMO le dice a la mente así: no digas que tus ojos son tus ojos, porque yo a través de ellos veo. No digas que tus oídos son tus oídos, porque yo a través de ellos oigo. No digas que tu boca es tu boca, porque yo a través de ella parlo. Tus ojos son mis ojos. Tus oídos son mis oídos. Tu boca es mi boca.
 
 57. Así le habla el INTIMO a la mente.
 
-58. En los mundos internos, podemos arrojar fuera de no-sotros el cuerpo mental para conversar con él, frente a frente, como con una persona extraña.
+58. En los mundos internos, podemos arrojar fuera de nosotros el cuerpo mental para conversar con él, frente a frente, como con una persona extraña.
 
 59. Entonces comprendemos a fondo que la mente es un sujeto extraño, que debemos aprender a manejar con el látigo terrible de la voluntad. 60- Hay necesidad de la más perfecta castidad para poder Cristificar el cuerpo mental.
 
@@ -2240,11 +2244,11 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 62. Aquellas personas que se sientan incapaces de acabar con la fornicación, háblenle a la mente así: mente, retírame este pensamiento sexual; mente, retírame este deseo carnal, tu eres mi esclava, y yo soy tu señor.
 
-63. Entonces el lobo horrible de la pasión carnal, saldrá de la guarida de la mente, y aquellas personas adquirirán la per-fecta castidad.
+63. Entonces el lobo horrible de la pasión carnal, saldrá de la guarida de la mente, y aquellas personas adquirirán la perfecta castidad.
 
 64. Al burro mental, se debe azotar con el látigo terrible de la voluntad.
 
-65. Es imposible separar la mente de la sexualidad; la men-te y el sexo están íntimamente relacionados, y si nuestros discípulos quieren convertir la Mente Materia en Mente-Cristo, deben llenar su cáliz con el vino sagrado de la luz.
+65. Es imposible separar la mente de la sexualidad; la mente y el sexo están íntimamente relacionados, y si nuestros discípulos quieren convertir la Mente Materia en Mente-Cristo, deben llenar su cáliz con el vino sagrado de la luz.
 
 66. Cuando la mente se Cristifica totalmente, entonces se convierte en un vehículo espléndido y maravilloso, con el cual podemos estudiar todos los secretos de esta ROSA-ÍGNEA del universo.
 
@@ -2252,23 +2256,23 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 1. La meditación es la disciplina esotérica de los Gnósticos.
 
-2. La meditación revista tres fases: concentración, medita-ción y shamadi. 3- Concentración, significa fijar la mente en una sola cosa. Meditación, significa reflexionar sobre el contenido sustancial de la cosa misma. Shamadi, es éxtasis o arrobamiento.
+2. La meditación revista tres fases: concentración, meditación y shamadi. 3- Concentración, significa fijar la mente en una sola cosa. Meditación, significa reflexionar sobre el contenido sustancial de la cosa misma. Shamadi, es éxtasis o arrobamiento.
 
-4. Un maestro del shamadi penetra en todos los planos de conciencia, y con el ojo de Dagma escudriña todos los secre-tos de la sabiduría del fuego.
+4. Un maestro del shamadi penetra en todos los planos de conciencia, y con el ojo de Dagma escudriña todos los secretos de la sabiduría del fuego.
 
 5. Es urgente que nuestros discípulos Gnósticos aprendan a funcionar sin vehículos materiales de ninguna especie, para que perciban con el ojo de Dagma todos las maravillas del Universo.
 
 6. Así es como nuestros discípulos se harán Maestros del shamadi.
 
-7. Acostado el discípulo en su lecho, con las manos cruza-das sobre el pecho, meditará profundamente en su cuerpo físico, diciéndose a sí mismo: No soy este cuerpo físico.
+7. Acostado el discípulo en su lecho, con las manos cruzadas sobre el pecho, meditará profundamente en su cuerpo físico, diciéndose a sí mismo: No soy este cuerpo físico.
 
 8. Luego meditará el discípulo profundamente en su cuerpo etérico, diciéndose a sí mismo: No soy este cuerpo etérico.
 
-9. Luego, sumido en profunda meditación interna, reflexio-nará el discípulo en su cuerpo astral y dirá: No soy el cuerpo astral.
+9. Luego, sumido en profunda meditación interna, reflexionará el discípulo en su cuerpo astral y dirá: No soy el cuerpo astral.
 
 10. Ahora meditará el discípulo en su cuerpo mental, y se dirá a sí mismo: tampoco soy esta mente, con la que estoy pensando.
 
-11. Luego reflexionará el discípulo en su fuerza de volun-tad, y se dirá a sí mismo: tampoco soy el cuerpo de la volun-tad.
+11. Luego reflexionará el discípulo en su fuerza de voluntad, y se dirá a sí mismo: tampoco soy el cuerpo de la voluntad.
 
 12. Ahora meditará el discípulo en su conciencia y se dirá a sí mismo: tampoco soy la conciencia.
 
@@ -2282,7 +2286,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 16. Ahora se dará cuenta el discípulo, que la acción del INTIMO es: SI, SI, SI.
 
-17. Ahora entenderá el discípulo, que la naturaleza del INTIMO es felicidad absoluta, existencia absoluta y omniscien-cia absoluta.
+17. Ahora entenderá el discípulo, que la naturaleza del INTIMO es felicidad absoluta, existencia absoluta y omnisciencia absoluta.
 
 18. En estos instantes de suprema felicidad, el pasado y el futuro se hermanan dentro de un eterno ahora, y los grandes días cósmicos, y las grandes noches cósmicas, se suceden unas a otras dentro de un instante eterno...
 
@@ -2292,21 +2296,21 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 21. Hay necesidad de que el INTIMO aprenda a desvestirse para funcionar sin vehículos, en el gran ALAYA del mundo.
 
-22. Concentración, Meditación y Shamadi, son los tres ca-minos obligatorios de la Iniciación.
+22. Concentración, Meditación y Shamadi, son los tres caminos obligatorios de la Iniciación.
 
-23. Primero se fija la atención en el cuerpo sobre el cual queremos practicar, luego se medita en su constitución inter-na, y llenos de beatitud, decimos: Yo no soy este cuerpo.
+23. Primero se fija la atención en el cuerpo sobre el cual queremos practicar, luego se medita en su constitución interna, y llenos de beatitud, decimos: Yo no soy este cuerpo.
 
-24. Concentración, Meditación y Shamadi, deben practicar-se sobre cada cuerpo.
+24. Concentración, Meditación y Shamadi, deben practicarse sobre cada cuerpo.
 
-25. Concentración, Meditación y Shamadi, los tres son lla-mados en oriente, un Samyasi, sobre cada uno de nuestros vehículos. 26- Para poder despojarnos de cada uno de nuestros vehí-culos inferiores, practicaremos un Samyasi sobre cada uno de nuestros vehículos.
+25. Concentración, Meditación y Shamadi, los tres son llamados en oriente, un Samyasi, sobre cada uno de nuestros vehículos. 26- Para poder despojarnos de cada uno de nuestros vehículos inferiores, practicaremos un Samyasi sobre cada uno de nuestros vehículos.
 
 27. Los grandes Ascetas de la Meditación son los grandes Samyasin del entendimiento cósmico, cuyas llamas flamean entre la rosa ígnea del Universo.
 
-28. Para ser un Samyasin del pensamiento, es urgente haber adquirido castidad absoluta, tenacidad, serenidad y pa-ciencia.
+28. Para ser un Samyasin del pensamiento, es urgente haber adquirido castidad absoluta, tenacidad, serenidad y paciencia.
 
-29. Después de cierto tiempo de práctica, nuestros discípu-los podrán libertarse de todos sus seis vehículos, para funcio-nar en el gran ALAYA del universo, sin vehículos de ninguna especie.
+29. Después de cierto tiempo de práctica, nuestros discípulos podrán libertarse de todos sus seis vehículos, para funcionar en el gran ALAYA del universo, sin vehículos de ninguna especie.
 
-30. El discípulo notará que sus sueños comienzan a hacer-se cada día más claros, y entonces comprenderá que cuando su cuerpo físico duerme, el hombre interno viaja, actúa y tra-baja dentro de los mundos suprasensibles.
+30. El discípulo notará que sus sueños comienzan a hacerse cada día más claros, y entonces comprenderá que cuando su cuerpo físico duerme, el hombre interno viaja, actúa y trabaja dentro de los mundos suprasensibles.
 
 31. Ahora entenderá el discípulo que los llamados sueños, son experiencias vividas en los mundos internos.
 
@@ -2314,31 +2318,31 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 33. El cerebelo es el salón del subconsciente. El cerebro es el salón de la conciencia.
 
-34. La sabiduría de los mundos internos pertenece al mun-do del subconsciente, las cosas de nuestro mundo físico, per-tenecen al salón de la conciencia.
+34. La sabiduría de los mundos internos pertenece al mundo del subconsciente, las cosas de nuestro mundo físico, pertenecen al salón de la conciencia.
 
-35. Cuando la conciencia y el subconsciente se unen, en-tonces el hombre puede estudiar todas las maravillas de los mundos internos y pasarlas al cerebro físico.
+35. Cuando la conciencia y el subconsciente se unen, entonces el hombre puede estudiar todas las maravillas de los mundos internos y pasarlas al cerebro físico.
 
-36. Es urgente que nuestros discípulos unan los dos salo-nes en esta torre maravillosa de nuestra cabeza.
+36. Es urgente que nuestros discípulos unan los dos salones en esta torre maravillosa de nuestra cabeza.
 
 37. La clave para ello es el ejercicio de retrospección. 38- Al despertar después de nuestro sueño, practicaremos un ejercicio retrospectivo para recordar todas aquellas cosas que vimos y oímos, y todos aquellos trabajos que ejecutamos cuando estábamos fuera, lejos del cuerpo físico.
 
-39. Así es como los dos salones de la conciencia y del sub-consciente se unen para darnos la gran iluminación.
+39. Así es como los dos salones de la conciencia y del subconsciente se unen para darnos la gran iluminación.
 
 40. No hay sueños falsos, todo sueño es una experiencia vivida en los mundos internos.
 
 41. Aún las llamadas pesadillas son experiencias reales, porque los monstruos de las pesadillas realmente existen en los mundos sumergidos.
 
-42. Una indigestión puede poner en actividad ciertos Cha-kras del bajo vientre, y entonces penetramos en los propios infiernos atómicos del hombre, donde realmente viven los se-res más monstruosos del universo; esto es lo que se llama pesadillas.
+42. Una indigestión puede poner en actividad ciertos Chakras del bajo vientre, y entonces penetramos en los propios infiernos atómicos del hombre, donde realmente viven los seres más monstruosos del universo; esto es lo que se llama pesadillas.
 
-43. Las imágenes de los mundos supra-sensibles, son to-talmente simbólicas, y hay que aprender a interpretarlas, basándonos en la ley de las analogías filosóficas, en la ley de las analogías de los contrarios, en la ley de las corresponden-cias y en la ley de la numerología.
+43. Las imágenes de los mundos supra-sensibles, son totalmente simbólicas, y hay que aprender a interpretarlas, basándonos en la ley de las analogías filosóficas, en la ley de las analogías de los contrarios, en la ley de las correspondencias y en la ley de la numerología.
 
-44. Aún los sueños aparentemente más absurdos si se in-terpretan sabiamente, encierran las más grandes revelaciones.
+44. Aún los sueños aparentemente más absurdos si se interpretan sabiamente, encierran las más grandes revelaciones.
 
 45. A tiempo de despertarse, nuestros discípulos no deben moverse, porque con ese movimiento agitan el cuerpo astral y pierden sus recuerdos.
 
-46. Lo primero que necesita el discípulo tan pronto despier-te en su lecho, es practicar su ejercicio retrospectivo, para recordar con precisión todas sus experiencias internas. Así es como los dos salones del consciente y del subconsciente se unen y viene la sabiduría interna.
+46. Lo primero que necesita el discípulo tan pronto despierte en su lecho, es practicar su ejercicio retrospectivo, para recordar con precisión todas sus experiencias internas. Así es como los dos salones del consciente y del subconsciente se unen y viene la sabiduría interna.
 
-47. Los Samyasin del pensamiento adquieren la conciencia continua, entre la rosa ígnea del Universo... 48- Es necesario adquirir la más profunda serenidad, es ur-gente desarrollar la paciencia y la tenacidad.
+47. Los Samyasin del pensamiento adquieren la conciencia continua, entre la rosa ígnea del Universo... 48- Es necesario adquirir la más profunda serenidad, es urgente desarrollar la paciencia y la tenacidad.
 
 49. Hay que permanecer indiferentes ante la alabanza y el vituperio, ante el triunfo y la derrota.
 
@@ -2348,39 +2352,39 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 52. Aquel que intente acabar con todos los defectos al mismo tiempo, se parece al cazador que quiere cazar diez liebres al mismo tiempo, entonces no caza ninguna.
 
-53. Para llegar a ser Maestro del Shamadi, es urgente culti-var una rica vida interior.
+53. Para llegar a ser Maestro del Shamadi, es urgente cultivar una rica vida interior.
 
-54. El Gnóstico que no sabe sonreírse, tiene tan poco con-trol como aquel que sólo conoce la carcajada de Aristófanes.
+54. El Gnóstico que no sabe sonreírse, tiene tan poco control como aquel que sólo conoce la carcajada de Aristófanes.
 
 55. HAY QUE ADQUIRIR UN COMPLETO CONTROL DE SÍ MISMO. UN INICIADO PUEDE SENTIR LA ALEGRÍA, PERO JAMÁS CAERÍA EN EL FRENESÍ DE LA LOCURA. UN INICIADO PUEDE SENTIR TRISTEZA, PERO JAMÁS LLEGARÍA HASTA LA DESESPERACIÓN. 56- AQUEL QUE SE DESESPERA POR LA MUERTE DE UN SER QUERIDO, TODAVÍA NO SIRVE PARA INICIADO, PORQUE LA MUERTE ES LA CORONA DE TODOS.
 
 57. Durante estas prácticas de meditación, los Chakras del cuerpo astral de nuestros discípulos, entran en actividad, y entonces el discípulo comienza a percibir las imágenes de los mundos suprasensibles.
 
-58. Al principio, el discípulo sólo percibe imágenes fuga-ces... más tarde, el discípulo percibe totalmente todas las imá-genes de los mundos suprasensibles. 59- Esta primera etapa del conocimiento pertenece al co-nocimiento “Imaginativo”.
+58. Al principio, el discípulo sólo percibe imágenes fugaces... más tarde, el discípulo percibe totalmente todas las imágenes de los mundos suprasensibles. 59- Esta primera etapa del conocimiento pertenece al conocimiento “Imaginativo”.
 
 60. El discípulo contempla entonces muchas imágenes que para él son enigmáticas, porque no las entiende.
 
-61. Pero conforme persevere en sus prácticas de medita-ción interna, va sintiendo que esas imágenes suprasensibles producen en él ciertos sentimientos de alegría o de dolor.
+61. Pero conforme persevere en sus prácticas de meditación interna, va sintiendo que esas imágenes suprasensibles producen en él ciertos sentimientos de alegría o de dolor.
 
-62. El discípulo se siente entonces inspirado en presencia de esas imágenes internas, y comprende la relación existente entre diferentes imágenes, entonces se ha levantado al cono-cimiento inspirado.
+62. El discípulo se siente entonces inspirado en presencia de esas imágenes internas, y comprende la relación existente entre diferentes imágenes, entonces se ha levantado al conocimiento inspirado.
 
-63. Más tarde, ve cualquier imagen interna y entonces ins-tantáneamente conoce su significado, y el por qué de cada cosa; ésta es la tercera escala del conocimiento, conocida con el nombre de conocimiento intuitivo.
+63. Más tarde, ve cualquier imagen interna y entonces instantáneamente conoce su significado, y el por qué de cada cosa; ésta es la tercera escala del conocimiento, conocida con el nombre de conocimiento intuitivo.
 
-64. Imaginación, Inspiración e Intuición, son los tres cami-nos obligatorios de la Iniciación.
+64. Imaginación, Inspiración e Intuición, son los tres caminos obligatorios de la Iniciación.
 
-65. A estas tres cimas inefables se llega mediante la con-centración, la meditación y el Shamadi.
+65. A estas tres cimas inefables se llega mediante la concentración, la meditación y el Shamadi.
 
-66. Aquel que ha llegado a las cimas inefables de la Intui-ción, se ha convertido en un Maestro del Shamadi.
+66. Aquel que ha llegado a las cimas inefables de la Intuición, se ha convertido en un Maestro del Shamadi.
 
 67. La sabiduría oriental se practica en el siguiente orden: Primero, ASANA (postura del cuerpo); Segundo, PRATYARA (no pensar en nada); Tercero, DARANA (concentración de una sola cosa); Cuarto, DYANA (meditación profunda); Quinto, SHAMADI (éxtasis).
 
-68. Es necesario colocar el cuerpo en la posición más Cómoda (ASANA); es indispensable poner la mente en blanco antes de la concentración (PRATYARA) es urgente saber fijar la mente en una sola cosa (DARANA), y así llegamos a re-flexionar profundamente sobre el contenido de la cosa misma, (DYANA); por este camino llegamos al ÉXTASIS (SHAMADI). 69- Toda esta disciplina esotérica de la mente, debe empa-par completamente nuestra vida cotidiana.
+68. Es necesario colocar el cuerpo en la posición más Cómoda (ASANA); es indispensable poner la mente en blanco antes de la concentración (PRATYARA) es urgente saber fijar la mente en una sola cosa (DARANA), y así llegamos a reflexionar profundamente sobre el contenido de la cosa misma, (DYANA); por este camino llegamos al ÉXTASIS (SHAMADI). 69- Toda esta disciplina esotérica de la mente, debe empapar completamente nuestra vida cotidiana.
 
 70. En presencia de cualquier persona, surgirán en nuestro interior muchas imágenes que corresponden a la vida interna de la persona con la cual nos hemos puesto en contacto; esto se llama clarividencia.
 
-71. Más tarde esas imágenes producen en nosotros distin-tos sentimientos de inspiración, y entonces el discípulo ha lle-gado al conocimiento inspirado.
+71. Más tarde esas imágenes producen en nosotros distintos sentimientos de inspiración, y entonces el discípulo ha llegado al conocimiento inspirado.
 
-72. Por último, el discípulo en presencia de cualquier per-sona conoce instantáneamente la vida del interlocutor; este es el conocimiento intuitivo.
+72. Por último, el discípulo en presencia de cualquier persona conoce instantáneamente la vida del interlocutor; este es el conocimiento intuitivo.
 
 73. Aquellos que quieran ingresar a la sabiduría del fuego, tienen que acabar con el proceso del razonamiento, y cultivar las facultades ardientes de la mente.
 
@@ -2390,23 +2394,23 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 76. La comprensión y la imaginación, deben reemplazar a la razón.
 
-77. Imaginación y comprensión son los cimientos de las fa-cultades superiores del entendimiento.
+77. Imaginación y comprensión son los cimientos de las facultades superiores del entendimiento.
 
-78. Para ingresar al conocimiento de los mundos superio-res, es necesario adquirir las facultades superiores de la men-te.
+78. Para ingresar al conocimiento de los mundos superiores, es necesario adquirir las facultades superiores de la mente.
 
-79. Aquellos que lean estas enseñanzas de ROSA ÍGNEA y, sin embargo, continúen tercamente encerrados dentro del proceso del razonamiento, no sirven para los estudios superio-res del espíritu. Todavía no están maduros.
+79. Aquellos que lean estas enseñanzas de ROSA ÍGNEA y, sin embargo, continúen tercamente encerrados dentro del proceso del razonamiento, no sirven para los estudios superiores del espíritu. Todavía no están maduros.
 
-80. La clarividencia y la imaginación son la misma cosa: clarividencia es imaginación, e imaginación es clarividencia, la clarividencia existe eternamente. 81- Cuando en nuestro interior surge una imagen cualquie-ra, hay que examinarla serenamente, para conocer su conte-nido.
+80. La clarividencia y la imaginación son la misma cosa: clarividencia es imaginación, e imaginación es clarividencia, la clarividencia existe eternamente. 81- Cuando en nuestro interior surge una imagen cualquiera, hay que examinarla serenamente, para conocer su contenido.
 
-82. Cuando la rosa ígnea del cuerpo astral, situada en el entrecejo, despierta a una nueva actividad, entonces las imá-genes que internamente vienen a nuestra imaginación, van acompañadas de luz y colorido.
+82. Cuando la rosa ígnea del cuerpo astral, situada en el entrecejo, despierta a una nueva actividad, entonces las imágenes que internamente vienen a nuestra imaginación, van acompañadas de luz y colorido.
 
-83. Hay que aprender, por experiencia propia, hacer dife-renciación entre las imágenes que son recibidas y las imáge-nes que consciente o inconscientemente creamos y proyecta-mos.
+83. Hay que aprender, por experiencia propia, hacer diferenciación entre las imágenes que son recibidas y las imágenes que consciente o inconscientemente creamos y proyectamos.
 
 84. Hay que hacer diferencia entre las imágenes propias y las imágenes ajenas que vienen a nosotros.
 
-85. La imaginación tiene dos polos: uno receptor y otro pro-yector.
+85. La imaginación tiene dos polos: uno receptor y otro proyector.
 
-86. Una cosa es recibir una imagen, y otra cosa es proyec-tar una imagen creada por nuestro entendimiento.
+86. Una cosa es recibir una imagen, y otra cosa es proyectar una imagen creada por nuestro entendimiento.
 
 87. El polo contrario de la imaginación, es lo imaginario.
 
@@ -2414,13 +2418,13 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 89. Lo imaginario son las imágenes absurdas creadas por una mente llena de aberraciones.
 
-90. Los instructores no solamente deben entregar prácticas a los discípulos para el despertar del Chakra frontal, sino tam-bién deben enseñarles a manejar la clarividencia.
+90. Los instructores no solamente deben entregar prácticas a los discípulos para el despertar del Chakra frontal, sino también deben enseñarles a manejar la clarividencia.
 
 91. La clarividencia es la imaginación cuyo Chakra reside en el entrecejo.
 
 92. La imaginación es el translúcido, para el sabio, imaginar es ver.
 
-93. La era de la razón se inició con Aristóteles; llegó a su culminación con Emmanuel Kant, y termina ahora con el naci-miento de la nueva era Acuaria. 94- La nueva era Acuaria será la era de la humanidad “In-tuitiva”.
+93. La era de la razón se inició con Aristóteles; llegó a su culminación con Emmanuel Kant, y termina ahora con el nacimiento de la nueva era Acuaria. 94- La nueva era Acuaria será la era de la humanidad “Intuitiva”.
 
 95. Tenemos que aprender a hacer diferencia entre lo que es crear una imagen con el entendimiento, y lo que es captar una imagen que flota en los mundos suprasensibles.
 
@@ -2428,19 +2432,19 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 97. A ellos tendremos que responderles que la imaginación es la misma clarividencia, y que todo ser humano es más o menos imaginativo, es decir, más o menos clarividente.
 
-98. Lo que más daño ha causado a los estudiantes de ocul-tismo es el falso concepto que se tiene sobre la clarividencia.
+98. Lo que más daño ha causado a los estudiantes de ocultismo es el falso concepto que se tiene sobre la clarividencia.
 
-99. Los autores de ese falso concepto son los “intelectua-les” que han mirado con el más profundo desdén las faculta-des de la imaginación.
+99. Los autores de ese falso concepto son los “intelectuales” que han mirado con el más profundo desdén las facultades de la imaginación.
 
-100. Los ocultistas, queriendo defenderse del desprecio in-telectual, le dieron un tinte marcadamente científico a la imagi-nación, y la bautizaron con el nombre de clarividencia o sexto sentido.
+100. Los ocultistas, queriendo defenderse del desprecio intelectual, le dieron un tinte marcadamente científico a la imaginación, y la bautizaron con el nombre de clarividencia o sexto sentido.
 
-101. Esta actitud de los ocultistas los perjudicó a sí mis-mos, porque quedaron confundidos...
+101. Esta actitud de los ocultistas los perjudicó a sí mismos, porque quedaron confundidos...
 
-102. Ahora los ocultistas (víctimas de los intelectuales), han establecido un abismo terrible entre clarividencia e imagina-ción.
+102. Ahora los ocultistas (víctimas de los intelectuales), han establecido un abismo terrible entre clarividencia e imaginación.
 
 103. Muchos se preguntan a sí mismos: ¿Pero cómo puedo percibir imágenes, sin ser clarividente?
 
-104. ¡Pobres gentes! No saben el tesoro que poseen, igno-ran que la imaginación es la misma clarividencia, y que todo ser humano es más o menos clarividente.
+104. ¡Pobres gentes! No saben el tesoro que poseen, ignoran que la imaginación es la misma clarividencia, y que todo ser humano es más o menos clarividente.
 
 105. Los ocultistas han querido convertir la bella facultad de la clarividencia en algo artificioso, técnico y difícil. 106- La clarividencia es la imaginación. La clarividencia es la flor más bella, más sencilla y más pura de la espiritualidad.
 
@@ -2458,19 +2462,19 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 113. Cuando la diosa madre del mundo, quiere entregarle a los hombres algún juguete para que se diviertan, entonces lo deposita en la imaginación de los inventores. Así tenemos: el radio, el avión, los automóviles, etc.
 
-114. Las imágenes tenebrosas de los mundos sumergidos cuando son captadas por los científicos, se convierten en ca-ñones, ametralladoras, bombas, etc.
+114. Las imágenes tenebrosas de los mundos sumergidos cuando son captadas por los científicos, se convierten en cañones, ametralladoras, bombas, etc.
 
 115. Así pues, todo el mundo es más o menos clarividente, y no se puede despreciar la imaginación, porque todas las cosas son hijas de la imaginación.
 
 116. Hay que hacer diferencia entre los hombres que no han recibido educación esotérica, y aquellos que ya se han sometido a las grandes disciplinas esotéricas.
 
-117. La imaginación evoluciona, se desarrolla y progresa dentro de la rosa ígnea del universo. 118- Los que ya han hecho rotar la rueda mágica de su en-trecejo poseen una imaginación rica y poderosa, y todas las imágenes percibidas por ellos, van acompañadas de luz, de color, de calor y de sonidos.
+117. La imaginación evoluciona, se desarrolla y progresa dentro de la rosa ígnea del universo. 118- Los que ya han hecho rotar la rueda mágica de su entrecejo poseen una imaginación rica y poderosa, y todas las imágenes percibidas por ellos, van acompañadas de luz, de color, de calor y de sonidos.
 
-119. No negamos la existencia de la clarividencia. La clari-videncia es el sexto sentido, cuyo Chakra reside en el entrece-jo, y tiene noventa y seis rayos. Lo que queremos es ampliar el concepto, y hacer comprender al estudiante que otro de los nombres de la clarividencia es la palabra imaginación. La gen-te ha olvidado el uso y el manejo de la divina clarividencia, y es necesario que nuestros estudiantes sepan que la imagina-ción es la misma clarividencia o sexto sentido, situado en el entrecejo.
+119. No negamos la existencia de la clarividencia. La clarividencia es el sexto sentido, cuyo Chakra reside en el entrecejo, y tiene noventa y seis rayos. Lo que queremos es ampliar el concepto, y hacer comprender al estudiante que otro de los nombres de la clarividencia es la palabra imaginación. La gente ha olvidado el uso y el manejo de la divina clarividencia, y es necesario que nuestros estudiantes sepan que la imaginación es la misma clarividencia o sexto sentido, situado en el entrecejo.
 
-120. Muchas gentes creen que la imaginación es una facul-tad puramente mental, y que nada tiene que ver con el Chakra frontal de la clarividencia.
+120. Muchas gentes creen que la imaginación es una facultad puramente mental, y que nada tiene que ver con el Chakra frontal de la clarividencia.
 
-121. Ese falso concepto se debe al desdén que los intelec-tuales sienten por la imaginación, y al artificio con que los ocul-tistas quieren tecnificar la bella facultad de la clarividencia.
+121. Ese falso concepto se debe al desdén que los intelectuales sienten por la imaginación, y al artificio con que los ocultistas quieren tecnificar la bella facultad de la clarividencia.
 
 122. El Chakra frontal del cuerpo astral está íntimamente relacionado con el Chakra frontal del cuerpo mental, con el Chakra frontal del cuerpo etérico y con la glándula pituitaria, situada en el entrecejo del cuerpo físico.
 
@@ -2480,21 +2484,21 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 125. Cuando nosotros hablamos de lógica, aludimos a una lógica trascendental, que nada tiene que ver con los textos de la lógica escolástica.
 
-126. Toda imagen interna tiene sus correspondencias científicas en este plano de la objetividad física. 127- Cuando las imágenes del estudiante no puedan expli-carse a través del concepto lógico, es señal de que la mente del estudiante está perfectamente desequilibrada.
+126. Toda imagen interna tiene sus correspondencias científicas en este plano de la objetividad física. 127- Cuando las imágenes del estudiante no puedan explicarse a través del concepto lógico, es señal de que la mente del estudiante está perfectamente desequilibrada.
 
-128. Toda imagen interna debe tener lógicamente una ex-plicación satisfactoria.
+128. Toda imagen interna debe tener lógicamente una explicación satisfactoria.
 
-129. Existen innumerables estudiantes con mente perfec-tamente desequilibrada.
+129. Existen innumerables estudiantes con mente perfectamente desequilibrada.
 
 130. Los discípulos Gnósticos deben cultivar la serenidad.
 
-131. La serenidad es la clave más poderosa para el desa-rrollo de la clarividencia.
+131. La serenidad es la clave más poderosa para el desarrollo de la clarividencia.
 
-132. La cólera destruye la armonía del conjunto, y daña to-talmente los pétalos de la rosa ígnea del entrecejo.
+132. La cólera destruye la armonía del conjunto, y daña totalmente los pétalos de la rosa ígnea del entrecejo.
 
-133. La cólera descompone la luz astral en un veneno lla-mado IMPERIL, que daña los pétalos de la ROSA ÍGNEA del entrecejo, y obstruye los canales del sistema nervioso gran simpático. Hay que hacer rotar el Chakra de la clarividencia con la vocal I, la cual se debe vocalizar diariamente, alargando el sonido de la vocal, así: I-iiiiiiiii.
+133. La cólera descompone la luz astral en un veneno llamado IMPERIL, que daña los pétalos de la ROSA ÍGNEA del entrecejo, y obstruye los canales del sistema nervioso gran simpático. Hay que hacer rotar el Chakra de la clarividencia con la vocal I, la cual se debe vocalizar diariamente, alargando el sonido de la vocal, así: I-iiiiiiiii.
 
-134. Entre la augusta serenidad del pensamiento que fla-mea abrasadoramente, debemos contemplar las imágenes internas, sin el proceso deprimente de la razón.
+134. Entre la augusta serenidad del pensamiento que flamea abrasadoramente, debemos contemplar las imágenes internas, sin el proceso deprimente de la razón.
 
 135. En presencia de una imagen interna, nuestra mente debe fluir integralmente con el dulce fluir del pensamiento.
 
@@ -2514,7 +2518,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 144. Los prejuicios y los preconceptos son trabas para el entendimiento.
 
-145. Las escuelas son “jaulas” donde la mente queda pri-sionera.
+145. Las escuelas son “jaulas” donde la mente queda prisionera.
 
 146. Debemos aprender a vivir siempre en el presente, porque la vida es un instante siempre eterno.
 
@@ -2522,13 +2526,13 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 148. Nuestra mente debe convertirse en un niño.
 
-149. Durante las prácticas de meditación interna debemos estar en el más rotundo reposo interior, porque toda agitación de la mente, toda actitud de impaciencia turba la mente, e im-pide la percepción de las imágenes internas.
+149. Durante las prácticas de meditación interna debemos estar en el más rotundo reposo interior, porque toda agitación de la mente, toda actitud de impaciencia turba la mente, e impide la percepción de las imágenes internas.
 
-150. En el mundo físico, toda actividad va acompañada del movimiento de nuestras manos, piernas, etc., pero en los mundos internos necesitamos el más profundo reposo, la cal-ma más absoluta para recibir las imágenes internas que vie-nen a la mente como una gracia... como una bendición.
+150. En el mundo físico, toda actividad va acompañada del movimiento de nuestras manos, piernas, etc., pero en los mundos internos necesitamos el más profundo reposo, la calma más absoluta para recibir las imágenes internas que vienen a la mente como una gracia... como una bendición.
 
 151. Es indispensable que nuestros discípulos cultiven la bella cualidad de la veneración.
 
-152. Debemos venerar profundamente todas las cosas sa-gradas y divinas. 153- Debemos venerar profundamente todas las obras del Creador.
+152. Debemos venerar profundamente todas las cosas sagradas y divinas. 153- Debemos venerar profundamente todas las obras del Creador.
 
 154. Debemos venerar profundamente a los Venerables Maestros de la Fraternidad Universal Blanca.
 
@@ -2544,31 +2548,31 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 161. Debemos aprender a ser indiferentes ante el oro y las riquezas.
 
-162. Debemos aprender a apreciar más la doctrina del co-razón.
+162. Debemos aprender a apreciar más la doctrina del corazón.
 
-163. Aquel que desprecie la doctrina del corazón, por se-guir la doctrina del ojo (teorías, escuelas, cultura libresca, etc.), no podrá llegar jamás a las grandes realizaciones.
+163. Aquel que desprecie la doctrina del corazón, por seguir la doctrina del ojo (teorías, escuelas, cultura libresca, etc.), no podrá llegar jamás a las grandes realizaciones.
 
 164. Tenemos que aprender a conocer lo bueno de lo malo, y lo malo de lo bueno.
 
 165. En todo lo bueno hay algo de malo, en todo lo malo hay algo de bueno.
 
-166. Aunque parezca increíble, las Marías Magdalenas, están más cerca de la iniciación, que muchas doncellas. 167- Aunque se le haga raro al estudiante, a veces está más cerca de la iniciación aquel que todos señalan con el de-do y acusan, que aquel santurrón que sonríe dulcemente ante el auditorio de una logia o templo.
+166. Aunque parezca increíble, las Marías Magdalenas, están más cerca de la iniciación, que muchas doncellas. 167- Aunque se le haga raro al estudiante, a veces está más cerca de la iniciación aquel que todos señalan con el dedo y acusan, que aquel santurrón que sonríe dulcemente ante el auditorio de una logia o templo.
 
 168. Pablo de Tarso fue un verdugo y un asesino antes del acontecimiento que le sobrevino en su camino a Damasco.
 
-169. La instantánea transformación de este hombre sor-prendió a los santos de Jerusalem.
+169. La instantánea transformación de este hombre sorprendió a los santos de Jerusalem.
 
 170. El malvado se convirtió en profeta...
 
 171. Este es el misterio del Bafometo.
 
-172. Los objetos sagrados de los templos se sostienen so-bre animalescos pedestales, y las patas de los tronos de los Maestros están hechas de monstruos.
+172. Los objetos sagrados de los templos se sostienen sobre animalescos pedestales, y las patas de los tronos de los Maestros están hechas de monstruos.
 
 173. Cristo supo apreciar la belleza de los dientes en el cadáver de un perro en descomposición.
 
-174. En el demonio Belcebú, flameaban llamas azules, que sirvieron para transformarlo en discípulo de la Jerarquía Blan-ca.
+174. En el demonio Belcebú, flameaban llamas azules, que sirvieron para transformarlo en discípulo de la Jerarquía Blanca.
 
-175. Entre el incienso de la oración, muchas veces se es-conde el delito.
+175. Entre el incienso de la oración, muchas veces se esconde el delito.
 
 176. EL DISCÍPULO NO DEBE JUZGAR A NADIE, NI CRITICAR A NADIE, PARA FORMAR UNA RICA VIDA INTERIOR.
 
@@ -2600,13 +2604,13 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 191. Debemos cultivar la sinceridad, porque en la sustancia de la sinceridad germinan las flores más bellas del espíritu.
 
-192. Todas estas cualidades nos darán una rica vida inter-ior; así es como nos preparamos internamente para las gran-des disciplinas esotéricas de la mente que flamea entre las llamas abrasadoras del Universo.
+192. Todas estas cualidades nos darán una rica vida interior; así es como nos preparamos internamente para las grandes disciplinas esotéricas de la mente que flamea entre las llamas abrasadoras del Universo.
 
 ## CAPÍTULO XVIII
 
 # LA CRUZ DEL ARHAT
 
-1. El fuego de tu rosa ígnea, situada en la laringe del cuer-po mental, chisporrotea abrasadoramente entre las llamas ardientes del Universo.
+1. El fuego de tu rosa ígnea, situada en la laringe del cuerpo mental, chisporrotea abrasadoramente entre las llamas ardientes del Universo.
 
 2. Ahora entras, ¡oh ARHAT!, en las tres cámaras altas de la torre de vuestro templo.
 
@@ -2626,7 +2630,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 10. Tendréis que trabajar en la gran obra del PADRE.
 
-11. Seréis un CORDERO inmolado sobre el ara del sacrifi-cio.
+11. Seréis un CORDERO inmolado sobre el ara del sacrificio.
 
 12. Trabajaréis incesantemente por la humanidad.
 
@@ -2634,31 +2638,31 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 14. Acuérdate que tienes que sacrificar tu mente...
 
-15. La humanidad se burlará de tus obras; te escarnecerán y te darán a beber hiel... 16- Tus obras de mérito serán recibidas con carcajadas es-truendosas, y todos tus sacrificios la humanidad te los pagará con el más profundo de sus desprecios.
+15. La humanidad se burlará de tus obras; te escarnecerán y te darán a beber hiel... 16- Tus obras de mérito serán recibidas con carcajadas estruendosas, y todos tus sacrificios la humanidad te los pagará con el más profundo de sus desprecios.
 
 17. Sois digno de compasión, ¡oh ARHAT!
 
-18. La Cruz del cuerpo mental es muy grande y muy pesa-da.
+18. La Cruz del cuerpo mental es muy grande y muy pesada.
 
 19. Tus enemigos serán los mismos hermanos espirituales.
 
 20. Ellos te escarmentarán y se burlarán de ti, ¡oh ARHAT!
 
-21. Los espiritualistas de todas las denominaciones, te cali-ficarán de malvado y te escarnecerán, ¡oh ARHAT!
+21. Los espiritualistas de todas las denominaciones, te calificarán de malvado y te escarnecerán, ¡oh ARHAT!
 
-22. Seréis calumniado, difamado y odiado por todo el mun-do; así crucificarás tu mente, ¡oh ARHAT!
+22. Seréis calumniado, difamado y odiado por todo el mundo; así crucificarás tu mente, ¡oh ARHAT!
 
-23. Apolonio de Tyana pasó sus últimos años encerrado en una prisión. Paracelso fue calificado amigo de gitanos y ver-dugos, por su mismo “Judas”. Todos los pedantes de la época odiaron de muerte al insigne Teofrasto Bombasto de Hohen-heim (Aureolo Paracelso).
+23. Apolonio de Tyana pasó sus últimos años encerrado en una prisión. Paracelso fue calificado amigo de gitanos y verdugos, por su mismo “Judas”. Todos los pedantes de la época odiaron de muerte al insigne Teofrasto Bombasto de Hohenheim (Aureolo Paracelso).
 
 24. Este gran sabio entregó a la humanidad la sabiduría médica, que solo en la nueva era Acuaria será aceptada y comprendida por la especie humana.
 
-25. Agrippa, aborrecido por los hombres, vagaba de ciudad en ciudad, y todo el mundo lo miraba con desconfianza, cali-ficándolo de brujo.
+25. Agrippa, aborrecido por los hombres, vagaba de ciudad en ciudad, y todo el mundo lo miraba con desconfianza, calificándolo de brujo.
 
 26. Todos los santos de Jerusalem, todos los mártires de la humanidad, fueron odiados y perseguidos.
 
 27. La cruz de tu cuerpo mental pesa mucho, ¡oh ARHAT!
 
-28. Ahora eres un personaje enigmático, ¡oh hijo mío!, y to-dos los hermanos espiritualistas te califican de malvado, de intolerante, de tenebroso, sencillamente porque no te com-prenden. Tú lo sabes. 29- Benditos quienes nos aman, porque nos comprenden, y benditos quienes nos odian, porque no nos comprenden.
+28. Ahora eres un personaje enigmático, ¡oh hijo mío!, y todos los hermanos espiritualistas te califican de malvado, de intolerante, de tenebroso, sencillamente porque no te comprenden. Tú lo sabes. 29- Benditos quienes nos aman, porque nos comprenden, y benditos quienes nos odian, porque no nos comprenden.
 
 ## CAPÍTULO XIX
 
@@ -2670,7 +2674,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 3. Juana de Arco es una Maestra de Misterios Mayores de la Fraternidad Blanca.
 
-4. H.P. Blavatsky, autora de “La Doctrina Secreta”, llegó al adeptado, y es una Maestra de Misterios Mayores de la Fra-ternidad Blanca.
+4. H.P. Blavatsky, autora de “La Doctrina Secreta”, llegó al adeptado, y es una Maestra de Misterios Mayores de la Fraternidad Blanca.
 
 5. En casi todos los templos de Misterios, encontramos muchas Damas-Adeptos, trabajando por la humanidad.
 
@@ -2678,13 +2682,13 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 7. La mujer que quiera despertar su Kundalini, tiene que practicar la Magia-Sexual con su marido, si es casada.
 
-8. Las mujeres casadas transmutarán por medio de la men-te, como ya enseñamos en páginas precedentes.
+8. Las mujeres casadas transmutarán por medio de la mente, como ya enseñamos en páginas precedentes.
 
-9. La alquimia sexual es la base fundamental de todo pro-greso.
+9. La alquimia sexual es la base fundamental de todo progreso.
 
 10. La alquimia sexual es el fundamento de la sabiduría del fuego.
 
-11. El amor es el templo, es la matriz, es el matraz del labo-ratorio sexual. 12- En este matraz de alquimia sexual se combinan la SAL, el AZUFRE y el MERCURIO para elaborar, mediante un pro-greso de combustiones eróticas, la piedra filosofal del Alqui-mista.
+11. El amor es el templo, es la matriz, es el matraz del laboratorio sexual. 12- En este matraz de alquimia sexual se combinan la SAL, el AZUFRE y el MERCURIO para elaborar, mediante un progreso de combustiones eróticas, la piedra filosofal del Alquimista.
 
 13. Es el matraz sexual de nuestro laboratorio orgánico, las explosiones de fuego pasionario combinan ciertos arcanos etéricos, astrales, mentales, volutivos, concientivos y divinales, para elaborar con el fuego ardiente de la sed erótica ciertos elementos ígneos, cuyos principios sustanciales pertenecen al INTIMO.
 
@@ -2692,25 +2696,25 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 15. La ebullición de los fuegos pasionales del hombre y de la mujer, en mutua combinación erótica, forma verdaderas tempestades ardientes que turban la atmósfera y enloquecen a los tenebrosos que forman la escolta de cada cámara.
 
-16. Esas entidades sumergidas asaltan al intrépido, defen-diendo fuegos cuyos principios sintéticos trascendentales se encierran en las treinta y tres cámaras internas de nuestra columna espinal.
+16. Esas entidades sumergidas asaltan al intrépido, defendiendo fuegos cuyos principios sintéticos trascendentales se encierran en las treinta y tres cámaras internas de nuestra columna espinal.
 
 17. Los tenebrosos defienden sus derechos, y nos califican entonces a nosotros de ladrones de poderes.
 
-18. Este es el misterio del BAFOMETO; la rosa elabora su perfume con el barro de la tierra, el gusano rastrero no gusta del jardinero que le quita su barro. Ahora comprenderán nues-tros discípulos en qué se basan los tenebrosos para calificar de ladrones a los Alquimistas sexuales...
+18. Este es el misterio del BAFOMETO; la rosa elabora su perfume con el barro de la tierra, el gusano rastrero no gusta del jardinero que le quita su barro. Ahora comprenderán nuestros discípulos en qué se basan los tenebrosos para calificar de ladrones a los Alquimistas sexuales...
 
-19. Cada cámara está fuertemente defendida por legiones tenebrosas, y hay que vencer a los tenebrosos con el filo de la espada para tomarse cada cámara por asalto. 20- Ahora entenderán los devotos del sendero por qué Cris-to dijo que el cielo se toma por asalto.
+19. Cada cámara está fuertemente defendida por legiones tenebrosas, y hay que vencer a los tenebrosos con el filo de la espada para tomarse cada cámara por asalto. 20- Ahora entenderán los devotos del sendero por qué Cristo dijo que el cielo se toma por asalto.
 
-21. Las doce sales zodiacales, bullen ardientemente en nuestras glándulas endocrinas, durante los trances de Alqui-mia sexual.
+21. Las doce sales zodiacales, bullen ardientemente en nuestras glándulas endocrinas, durante los trances de Alquimia sexual.
 
-22. Esas doce sales encierran los principios seminales de las doce constelaciones zodiacales, cuyos poderes ardientes actúan sobre estos minúsculos laboratorios de nuestras glándulas endocrinas, activándose particularmente la produc-ción hormonal de nuestro sistema nervioso líquido.
+22. Esas doce sales encierran los principios seminales de las doce constelaciones zodiacales, cuyos poderes ardientes actúan sobre estos minúsculos laboratorios de nuestras glándulas endocrinas, activándose particularmente la producción hormonal de nuestro sistema nervioso líquido.
 
-23. La súper-excitación de nuestras glándulas endocrinas va acompañada de gigantescas combinaciones ígneas dentro de todos los Chakras y esencias de nuestros vehículos inter-nos.
+23. La súper-excitación de nuestras glándulas endocrinas va acompañada de gigantescas combinaciones ígneas dentro de todos los Chakras y esencias de nuestros vehículos internos.
 
-24. La mujer excitada sexualmente, tiene el poder de tras-plantar los principios sintéticos de sus doce sales al órgano laríngeo del varón, y así es como este órgano adquiere princi-pios hermafroditas que más tarde le dan al INTIMO el poder de crear por medio de la palabra.
+24. La mujer excitada sexualmente, tiene el poder de trasplantar los principios sintéticos de sus doce sales al órgano laríngeo del varón, y así es como este órgano adquiere principios hermafroditas que más tarde le dan al INTIMO el poder de crear por medio de la palabra.
 
 25. La combinación de principios ígneos entre hombre y mujer, está también íntimamente relacionada con una serie de intercambios salinos que prepara la laringe femenina como órgano creador Angélico.
 
-26. El fuego muy ardiente de una súper-excitación sexual, da origen a enormes y gigantescas combinaciones de princi-pios cuyo resultado sintético viene a ser la apertura de las cámaras espinales.
+26. El fuego muy ardiente de una súper-excitación sexual, da origen a enormes y gigantescas combinaciones de principios cuyo resultado sintético viene a ser la apertura de las cámaras espinales.
 
 27. Mientras más fuerte sea la refrenada del acto; mientras más violenta sea la lucha, más potentemente ascenderán los vapores seminales, y más terrible será la fuerza de ascenso del Kundalini.
 
@@ -2718,51 +2722,51 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 29. La mente se domina por medio de la voluntad. 30- Al refrenar la violencia pasional, debemos azotar a la mente con el látigo terrible de la voluntad, porque la guarida del deseo reside en la mente.
 
-31. Hablémosle a la mente así: mente, retírame inmediata-mente esta excitación sexual.
+31. Hablémosle a la mente así: mente, retírame inmediatamente esta excitación sexual.
 
 32. Esta fórmula nos permite retirar la intensiva pasión, en el momento preciso de frenar el acto.
 
-33. La unión con el INTIMO solo es posible mediante la al-quimia-sexual.
+33. La unión con el INTIMO solo es posible mediante la alquimia-sexual.
 
-34. Si cogemos nosotros el cuerpo mental de cualquier es-tudiante seudo-espiritualista teorizante y lo examinamos dete-nidamente, encontramos que es una verdadera biblioteca am-bulante.
+34. Si cogemos nosotros el cuerpo mental de cualquier estudiante seudo-espiritualista teorizante y lo examinamos detenidamente, encontramos que es una verdadera biblioteca ambulante.
 
-35. Si luego examinamos detenidamente la Iglesia Coxígea o Chakra Mulhadara, encontramos que el Kundalini está allí totalmente encerrado, sin dar muestras del más ligero desper-tar, y si examinamos el Canal de Susumná del estudiante, no hallamos allí ni rastros de fuego sagrado. Encontramos que las treinta y tres cámaras del estudiante están totalmente llenas de tinieblas.
+35. Si luego examinamos detenidamente la Iglesia Coxígea o Chakra Mulhadara, encontramos que el Kundalini está allí totalmente encerrado, sin dar muestras del más ligero despertar, y si examinamos el Canal de Susumná del estudiante, no hallamos allí ni rastros de fuego sagrado. Encontramos que las treinta y tres cámaras del estudiante están totalmente llenas de tinieblas.
 
 36. Este examen interno nos llevaría a la conclusión de que dicho estudiante está perdiendo el tiempo lamentablemente.
 
 37. El fuego sagrado despierta cuando los átomos lunares y solares de nuestro sistema seminal hacen contacto en el hueso coxígeo.
 
-38. Empero, si derrochamos nuestros átomos solares con la eyaculación seminal, entonces no hay átomos solares sufi-cientes para hacer contacto y despertar el fuego.
+38. Empero, si derrochamos nuestros átomos solares con la eyaculación seminal, entonces no hay átomos solares suficientes para hacer contacto y despertar el fuego.
 
-39. El estudiante podrá tener un cuerpo mental convertido en una verdadera biblioteca, pero todas las treinta y tres cámaras de su columna espinal estarán totalmente apagadas y en las profundas tinieblas. 40- Conclusión: este estudiante es un habitante de las ti-nieblas, del abismo...
+39. El estudiante podrá tener un cuerpo mental convertido en una verdadera biblioteca, pero todas las treinta y tres cámaras de su columna espinal estarán totalmente apagadas y en las profundas tinieblas. 40- Conclusión: este estudiante es un habitante de las tinieblas, del abismo...
 
-41. Es imposible encender el fuego del Kundalini únicamen-te con los átomos lunares del líquido céfalo-raquídeo.
+41. Es imposible encender el fuego del Kundalini únicamente con los átomos lunares del líquido céfalo-raquídeo.
 
 42. Es indispensable que los átomos solares del sistema seminal hagan contacto con los átomos lunares del líquido céfalo-raquídeo, para despertar el fuego sagrado.
 
-43. Si gastamos los átomos solares, entonces no tendre-mos capital para hacer una combinación atómica que permita el despertar del Kundalini mediante la alquimia sexual.
+43. Si gastamos los átomos solares, entonces no tendremos capital para hacer una combinación atómica que permita el despertar del Kundalini mediante la alquimia sexual.
 
 44. El Kundalini es de naturaleza absolutamente sexual, y solo es posible despertarlo mediante la alquimia sexual.
 
-45. Si examinamos detenidamente la constitución interna de un místico, encontramos un cuerpo concientivo (Buddhico) muy hermoso, y los éteres Lumínico y Reflector de su cuerpo etérico muy voluminosos; como el místico común y corriente eyacula su líquido seminífero, al analizarse el chakra mulhada-ra encontramos que el kundalini está allí enroscado, sin dar muestras de querer despertar.
+45. Si examinamos detenidamente la constitución interna de un místico, encontramos un cuerpo concientivo (Buddhico) muy hermoso, y los éteres Lumínico y Reflector de su cuerpo etérico muy voluminosos; como el místico común y corriente eyacula su líquido seminífero, al analizarse el chakra mulhadara encontramos que el kundalini está allí enroscado, sin dar muestras de querer despertar.
 
 46. Las treinta y tres cámaras de la médula espinal del místico de nuestro ejemplo, están llenas de tinieblas, porque por allí jamás ha pasado el fuego.
 
-47. Las buenas obras filantrópicas embellecen los éteres Lumínico y Reflector de este místico, y la cultura libresca dará a su mente rica erudición, pero como su Kundalini no ha des-pertado, este místico no ha penetrado en los misterios del fue-go, y aunque sea un hombre bueno y virtuoso, no pasa de ser una sombra buena y bondadosa entre frío y las tinieblas del abismo.
+47. Las buenas obras filantrópicas embellecen los éteres Lumínico y Reflector de este místico, y la cultura libresca dará a su mente rica erudición, pero como su Kundalini no ha despertado, este místico no ha penetrado en los misterios del fuego, y aunque sea un hombre bueno y virtuoso, no pasa de ser una sombra buena y bondadosa entre frío y las tinieblas del abismo.
 
 48. Algunos sostienen que el Kundalini se puede despertar mediante la Yoga.
 
-49. Nosotros no negamos esa afirmación. 50- Empero, sostenemos que el Yogui auténtico es total-mente casto.
+49. Nosotros no negamos esa afirmación. 50- Empero, sostenemos que el Yogui auténtico es totalmente casto.
 
 51. Si no fuera así, los Yoguis no tendrían capital atómico para despertar el kundalini.
 
-52. Vivekananda, dice en sus conferencias de Raja-Yoga, que el Yogui debe ser totalmente casto para convertir su fuer-za sexual en hojas (energía crística).
+52. Vivekananda, dice en sus conferencias de Raja-Yoga, que el Yogui debe ser totalmente casto para convertir su fuerza sexual en hojas (energía crística).
 
 53. Así es como los Yoguis consiguen el despertar del Kundalini y la unión con el INTIMO.
 
-54. La alquimia sexual de los Yoguis, está relacionada con los ejercicios respiratorios y con ciertas prácticas de medita-ción interna, que jamás se han publicado en ningún libro im-preso.
+54. La alquimia sexual de los Yoguis, está relacionada con los ejercicios respiratorios y con ciertas prácticas de meditación interna, que jamás se han publicado en ningún libro impreso.
 
-55. Si un Yogui fornicara, no tendría capital atómico sufi-ciente como para encender los fuegos espinales, y entonces ese Yogui perdería el tiempo lamentablemente.
+55. Si un Yogui fornicara, no tendría capital atómico suficiente como para encender los fuegos espinales, y entonces ese Yogui perdería el tiempo lamentablemente.
 
 56. Las prácticas Yoguis son únicamente para aquellos que pertenecen al Rayo Oriental.
 
@@ -2774,9 +2778,9 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 60. ¿Eres Gnóstico? ¿Eres Místico? ¿Eres Yogui?
 
-61. Recuerda, buen discípulo, que al Edén sólo puedes en-trar por la puerta por donde saliste. Esa puerta es el sexo. 62- Dicen que hay muchos caminos, los Maestros de Miste-rios Mayores de la Gran Logia Blanca, afirmamos: solamente hay una puerta para entrar al Edén, y esa puerta es el SEXO.
+61. Recuerda, buen discípulo, que al Edén sólo puedes entrar por la puerta por donde saliste. Esa puerta es el sexo. 62- Dicen que hay muchos caminos, los Maestros de Misterios Mayores de la Gran Logia Blanca, afirmamos: solamente hay una puerta para entrar al Edén, y esa puerta es el SEXO.
 
-63. Todos aquellos que no obedezcan la ordenanza del Señor JEHOVÁ; todos aquellos que sigan comiendo la fruta prohibida, son discípulos de la doctrina de los Baales, y para ellos, como dicen las sagradas escrituras, será el lago ardien-do con fuego y azufre, que es la muerte segunda.
+63. Todos aquellos que no obedezcan la ordenanza del Señor JEHOVÁ; todos aquellos que sigan comiendo la fruta prohibida, son discípulos de la doctrina de los Baales, y para ellos, como dicen las sagradas escrituras, será el lago ardiendo con fuego y azufre, que es la muerte segunda.
 
 64. El Gnóstico debe amar intensamente a su sacerdotisa...
 
@@ -2786,9 +2790,9 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 67. La mujer, debe refrenar el acto sexual y retirarse del varón antes del espasmo, para evitar la pérdida seminal.
 
-68. Así es como despierta el kundalini en la mujer, lo mis-mo que en el hombre.
+68. Así es como despierta el kundalini en la mujer, lo mismo que en el hombre.
 
-69. El magnetismo masculino, al mezclarse con el magne-tismo femenino, comienza a despertar los fuegos sagrados de la mujer.
+69. El magnetismo masculino, al mezclarse con el magnetismo femenino, comienza a despertar los fuegos sagrados de la mujer.
 
 70. La mujer debe cultivar la belleza, la música y el amor.
 
@@ -2806,7 +2810,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 2. Esta es la segunda cámara santa de tu cabeza.
 
-3. El fuego abrasador del Universo chisporrotea ahora ar-dientemente en esta santa cámara de tu cuerpo mental.
+3. El fuego abrasador del Universo chisporrotea ahora ardientemente en esta santa cámara de tu cuerpo mental.
 
 4. Este es el sagrado del León de la Ley.
 
@@ -2830,9 +2834,9 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 14. La inteligencia del súper-hombre es aterradora, pero el súper-hombre desdeña la inteligencia porque la inteligencia es sólo una cualidad de Prakriti y Prana (Materia y energía). 15- El INTIMO está más allá de la inteligencia en el reino supremo de la omnisciencia.
 
-16. El INTIMO está aún mucho más allá del amor, en el re-ino supremo de la felicidad.
+16. El INTIMO está aún mucho más allá del amor, en el reino supremo de la felicidad.
 
-17. La felicidad de Dios, en un plano más inferior, se expre-sa como amor, y el amor es el summum de la sabiduría.
+17. La felicidad de Dios, en un plano más inferior, se expresa como amor, y el amor es el summum de la sabiduría.
 
 18. Las dos columnas de nuestra Fraternidad Blanca, son SABIDURÍA y AMOR.
 
@@ -2850,7 +2854,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 25. ¿Habéis pecado contra la sabiduría? ¿Cómo puedes entonces, hermano mío, estar rodeado de felicidad?
 
-26. Al León de la Ley se combate con la balanza. Cuando una ley inferior es trascendida por una ley superior, la ley su-perior lava a la ley inferior. Haz buenas obras para que pagues tus deudas.
+26. Al León de la Ley se combate con la balanza. Cuando una ley inferior es trascendida por una ley superior, la ley superior lava a la ley inferior. Haz buenas obras para que pagues tus deudas.
 
 27. Quien tiene capital con qué pagar, paga y sale bien en los negocios; cuando no tenemos capital, y se encuentra falta en los libros del karma, tenemos que pagar con dolor.
 
@@ -2858,7 +2862,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 30. Tu mente flamea entre el crepitar ardiente de NATURAE SANTA SORORERA.
 
-31. La mente de los Leones del entendimiento cósmico ar-de entre las llamas abrasadoras de esta ROSA-ÍGNEA del Universo.
+31. La mente de los Leones del entendimiento cósmico arde entre las llamas abrasadoras de esta ROSA-ÍGNEA del Universo.
 
 32. “Amor es ley, pero amor consciente”.
 
@@ -2866,25 +2870,25 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 # LA MESA DE JEZABEL
 
-1. “Mas tengo unas pocas cosas contra ti, porque permites a aquella mujer Jezabel (que se dice profetisa) enseñar y en-gañar a mis siervos a fornicar y a comer cosas ofrecidas a los ídolos”.
+1. “Mas tengo unas pocas cosas contra ti, porque permites a aquella mujer Jezabel (que se dice profetisa) enseñar y engañar a mis siervos a fornicar y a comer cosas ofrecidas a los ídolos”.
 
-“Y le he dado tiempo para que se arrepienta de la fornica-ción; y no se ha arrepentido”.
+“Y le he dado tiempo para que se arrepienta de la fornicación; y no se ha arrepentido”.
 
 “He aquí, yo la echo en cama, y a los que adulteran con ella, en muy grande tribulación, si no se arrepintieren de sus obras”.
 
-“Y mataré a sus hijos con muerte; y todas las iglesias sabrán que yo soy el que escudriño los riñones y los corazo-nes: y daré a cada uno de vosotros según sus obras”. (Vers. 20, 21, 22 y 23, Cap. 2: Apocalipsis).
+“Y mataré a sus hijos con muerte; y todas las iglesias sabrán que yo soy el que escudriño los riñones y los corazones: y daré a cada uno de vosotros según sus obras”. (Vers. 20, 21, 22 y 23, Cap. 2: Apocalipsis).
 
 2. En la mesa de Jezabel comen los profetas de los Baales. (Los Baales son los magos negros).
 
-3. Los profetas de los Baales que enseñan a fornicar “místicamente”, y a comer cosas ofrecidas a los ídolos son todos los teorizantes espiritualistas del mundo. Todas estas enseñanzas son comidas ofrecidas a los ídolos. 4- El señor Parsival Krumm-Heller, soberano comendador de la “DIZQUE” Orden Rosacruz Antigua, con sede en Alema-nia, está enviando a sus discípulos tenebrosos, un curso de Magia-Sexual negra, en la cual aconseja la eyaculación semi-nal en forma “mística”.
+3. Los profetas de los Baales que enseñan a fornicar “místicamente”, y a comer cosas ofrecidas a los ídolos son todos los teorizantes espiritualistas del mundo. Todas estas enseñanzas son comidas ofrecidas a los ídolos. 4- El señor Parsival Krumm-Heller, soberano comendador de la “DIZQUE” Orden Rosacruz Antigua, con sede en Alemania, está enviando a sus discípulos tenebrosos, un curso de Magia-Sexual negra, en la cual aconseja la eyaculación seminal en forma “mística”.
 
 5. Así es como Jezabel engaña a mis siervos y los enseña a fornicar, y a comer teorías ofrecidas a los ídolos.
 
-6. Este curso de magia-sexual negativa y tenebrosa, es la misma doctrina Tántrica horrible y satánica, predicada y ense-ñada públicamente por todos los profetas de los Baales que comen en la mesa de Jezabel.
+6. Este curso de magia-sexual negativa y tenebrosa, es la misma doctrina Tántrica horrible y satánica, predicada y enseñada públicamente por todos los profetas de los Baales que comen en la mesa de Jezabel.
 
-7. Con este repugnante culto fálico, despierta el Kundalini negativamente y se hunde tenebrosamente entre los propios infiernos atómicos del hombre, dando al cuerpo astral la horri-ble apariencia satánica de los Luciferes.
+7. Con este repugnante culto fálico, despierta el Kundalini negativamente y se hunde tenebrosamente entre los propios infiernos atómicos del hombre, dando al cuerpo astral la horrible apariencia satánica de los Luciferes.
 
-8. El señor Parsival Krumm-Heller traicionó a su propio pa-dre, y con su culto fálico tenebroso, quedó declarado pública-mente como mago negro.
+8. El señor Parsival Krumm-Heller traicionó a su propio padre, y con su culto fálico tenebroso, quedó declarado públicamente como mago negro.
 
 9. Y mandó Jehová Dios al hombre, diciendo: “De todo árbol del huerto comerás. Mas del árbol de la ciencia del bien y del mal no comerás de él; porque el día que de él comieres, morirás”. (Vers. 16 y 17. Cap. 12: Génesis).
 
@@ -2892,33 +2896,33 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 11. Estas son las ordenanzas del señor Jehová, ardiendo con fuego y azufre, que es la muerte segunda.
 
-12. La muerte segunda es una muerte anímica; la persona-lidad Tántrica del fornicario, se separa de la divina TRÍADA y se sumerge en un estado de conciencia demoníaca y en mun-dos atómicos sumergidos, conocidos en oriente con el nombre de AVITCHI...
+12. La muerte segunda es una muerte anímica; la personalidad Tántrica del fornicario, se separa de la divina TRÍADA y se sumerge en un estado de conciencia demoníaca y en mundos atómicos sumergidos, conocidos en oriente con el nombre de AVITCHI...
 
-13. Esas personalidades tántricas se van entonces desin-tegrando poco a poco, separadas de su YO superior. 14- “Y mataré a sus hijos con muerte; y todas las iglesias sabrán que yo soy el que escudriño los riñones y los corazo-nes: y daré a cada uno de vosotros según sus obras”.
+13. Esas personalidades tántricas se van entonces desintegrando poco a poco, separadas de su YO superior. 14- “Y mataré a sus hijos con muerte; y todas las iglesias sabrán que yo soy el que escudriño los riñones y los corazones: y daré a cada uno de vosotros según sus obras”.
 
 15. En el abismo morirán los profetas de los Baales que comen en la mesa de Jezabel.
 
-16. Escuchadme hermanos míos: “Así dice Jehová de los ejércitos: Si anduvieras por mis caminos, y si guardares mi ordenanza, también tú gobernarás mi casa, también tú guar-darás mis atrios, y entre estos que aquí están te daré plazas”. (Ver. 7, Cap. 3: Zacarías).
+16. Escuchadme hermanos míos: “Así dice Jehová de los ejércitos: Si anduvieras por mis caminos, y si guardares mi ordenanza, también tú gobernarás mi casa, también tú guardarás mis atrios, y entre estos que aquí están te daré plazas”. (Ver. 7, Cap. 3: Zacarías).
 
-17. Guardad hermanos míos, la ordenanza del señor Je-hová, mirad la fruta prohibida, nutrios con sus aromas, em-briagaos con su perfume, pero no la comáis, porque para ellos, para los fornicarios, será el lago ardiendo con fuego y azufre, que es la muerte segunda.
+17. Guardad hermanos míos, la ordenanza del señor Jehová, mirad la fruta prohibida, nutrios con sus aromas, embriagaos con su perfume, pero no la comáis, porque para ellos, para los fornicarios, será el lago ardiendo con fuego y azufre, que es la muerte segunda.
 
-18. Con la eyaculación seminal, se pierden trillonadas de átomos solares y entonces nuestros órganos sexuales reco-gen en su reemplazo trillonadas de átomos satánicos de los infiernos del hombre, los cuales se absorben dentro del cuerpo astral para darle a éste la apariencia de Satán.
+18. Con la eyaculación seminal, se pierden trillonadas de átomos solares y entonces nuestros órganos sexuales recogen en su reemplazo trillonadas de átomos satánicos de los infiernos del hombre, los cuales se absorben dentro del cuerpo astral para darle a éste la apariencia de Satán.
 
-19. La teoría negativa de los tenebrosos, consiste en apro-vechar las hormonas de increción, para despertar el Kundalini y conseguir poderes Tántricos.
+19. La teoría negativa de los tenebrosos, consiste en aprovechar las hormonas de increción, para despertar el Kundalini y conseguir poderes Tántricos.
 
 20. Con esta práctica despiertan el aspecto negativo de la serpiente, la cual al hundirse dentro de los propios infiernos atómicos del hombre, asume en el cuerpo astral aquella forma Tántrica con que se representa la cola de Satán.
 
 21. Las glándulas sexuales no son cápsulas cerradas, ellas excretan hormonas y también INCRETAN HORMONAS.
 
-22. Los profetas de los Baales que comen en la mesa de Jezabel, mediante el culto fálico, aprovechan las hormonas de increción sexual para despertar sus poderes satánicos, así es como esa mujer Jezabel, que se dice profetisa, enseña y en-gaña a mis siervos a fornicar y a comer cosas ofrecidas a los ídolos.
+22. Los profetas de los Baales que comen en la mesa de Jezabel, mediante el culto fálico, aprovechan las hormonas de increción sexual para despertar sus poderes satánicos, así es como esa mujer Jezabel, que se dice profetisa, enseña y engaña a mis siervos a fornicar y a comer cosas ofrecidas a los ídolos.
 
-23. “Y le he dado tiempo para que se arrepienta de la forni-cación; y no se ha arrepentido”.
+23. “Y le he dado tiempo para que se arrepienta de la fornicación; y no se ha arrepentido”.
 
 “He aquí, yo la echo en la cama y a los que adulteran con ella, en muy grande tribulación, si no se arrepintieron de sus obras”. (Vers. 21 y 22. Cap. 2, Apocalipsis).
 
 24. La mente de nuestros discípulos debe libertarse de los fuegos satánicos.
 
-25. El tenebroso Luzbel, morador del Avitchi, lleva enros-cada en su cola Tántrica, un viejo pergamino donde está escri-ta con caracteres tenebrosos esta magia sexual negativa, que enseña el traidor Parsival Krumm-Heller, y el siniestro Baal Omar Cherenzi Lind.
+25. El tenebroso Luzbel, morador del Avitchi, lleva enroscada en su cola Tántrica, un viejo pergamino donde está escrita con caracteres tenebrosos esta magia sexual negativa, que enseña el traidor Parsival Krumm-Heller, y el siniestro Baal Omar Cherenzi Lind.
 
 26. Hay que transmutar el agua en vino, para levantar nuestra serpiente metálica sobre la vara tal como lo hizo Moisés en el desierto.
 
@@ -2934,21 +2938,21 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 32. El camino es muy difícil, muy angosto y muy estrecho, porque la castidad no le gusta a nadie.
 
-33. Los espiritualistas de todas las escuelas odian la casti-dad, porque esa es la puerta del Edén, y a ellos no les gusta el Edén, porque comen en la mesa de Jezabel, y adoran a los Baales. 34- Porfiad a entrar por la puerta angosta; porque os digo que muchos procurarán entrar, y no podrán.
+33. Los espiritualistas de todas las escuelas odian la castidad, porque esa es la puerta del Edén, y a ellos no les gusta el Edén, porque comen en la mesa de Jezabel, y adoran a los Baales. 34- Porfiad a entrar por la puerta angosta; porque os digo que muchos procurarán entrar, y no podrán.
 
-“Después que el padre de familia se levantare, y cerrare la puerta, y comenzareis a estar fuera, y llamar a la puerta, di-ciendo: Señor, Señor, ábrenos; y respondiendo os dirá: No os conozco de dónde seáis”.
+“Después que el padre de familia se levantare, y cerrare la puerta, y comenzareis a estar fuera, y llamar a la puerta, diciendo: Señor, Señor, ábrenos; y respondiendo os dirá: No os conozco de dónde seáis”.
 
 “Entonces comenzaréis a decir: delante de ti hemos comido y bebido, y en nuestras plazas enseñaste”.
 
-“Y os dirá: Dígoos que no os conozco de dónde seáis; apar-taos de mí todos los obreros de iniquidad”.
+“Y os dirá: Dígoos que no os conozco de dónde seáis; apartaos de mí todos los obreros de iniquidad”.
 
-“Allí será el llanto y el crujir de dientes, cuando vieres a Abraham y a Isaac, y a Jacob, y a todos los profetas en el rei-no de Dios y a vosotros excluidos”. (Vers. 24 a 28, Cap. 13:
+“Allí será el llanto y el crujir de dientes, cuando vieres a Abraham y a Isaac, y a Jacob, y a todos los profetas en el reino de Dios y a vosotros excluidos”. (Vers. 24 a 28, Cap. 13:
 
 ### SAN LUCAS).
 
-35. Hace más de dieciocho millones de años que la huma-nidad viene fornicando, y si el camino de la fornicación fuera el positivo, la humanidad viviría en un Edén de eternas maravi-llas, no habría hambres ni guerras, y ya los hombres serían ángeles.
+35. Hace más de dieciocho millones de años que la humanidad viene fornicando, y si el camino de la fornicación fuera el positivo, la humanidad viviría en un Edén de eternas maravillas, no habría hambres ni guerras, y ya los hombres serían ángeles.
 
-36. Pero ved ahí a la humanidad, hermano mío, hace die-ciocho millones de años viene eyaculando el semen. ¿Es aca-so feliz? ¿Ya los hombres se volvieron ángeles? ¿Ya la tierra es un Edén?
+36. Pero ved ahí a la humanidad, hermano mío, hace dieciocho millones de años viene eyaculando el semen. ¿Es acaso feliz? ¿Ya los hombres se volvieron ángeles? ¿Ya la tierra es un Edén?
 
 37. Si el camino de la pasión animal fuera el verdadero, ya el hombre sería ángel.
 
@@ -2956,43 +2960,43 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 39. Enseñarles a los hombres a eyacular el semen, ¿y es acaso cosa nueva?
 
-40. ¿En qué época se han vuelto los hombres ángeles for-nicando?
+40. ¿En qué época se han vuelto los hombres ángeles fornicando?
 
-41. La evolución humana fracasó precisamente por la eya-culación seminal. ¿Entonces qué? 42- Hubo en un templo del Tibet oriental, una gran reunión de MAHATMAS, a la cual asistieron todos los grandes creado-res del hombre.
+41. La evolución humana fracasó precisamente por la eyaculación seminal. ¿Entonces qué? 42- Hubo en un templo del Tibet oriental, una gran reunión de MAHATMAS, a la cual asistieron todos los grandes creadores del hombre.
 
 43. De los espacios infinitos descendió un gran Hijo del Fuego, y habló así:
 
-44. “Hermanos míos, hemos de reconocer que la evolución humana fracasó, nosotros los dioses nos hemos equivocado al crear al hombre. Allá en el amanecer de la vida, nosotros qui-simos convertir esas chispas virginales en Dioses y nos resul-taron demonios”.
+44. “Hermanos míos, hemos de reconocer que la evolución humana fracasó, nosotros los dioses nos hemos equivocado al crear al hombre. Allá en el amanecer de la vida, nosotros quisimos convertir esas chispas virginales en Dioses y nos resultaron demonios”.
 
-45. Después aquel gran ser, fue enumerando uno a uno, todos los profetas que fueron enviados a la humanidad, y fue narrando cómo todos ellos habían sido apedreados, persegui-dos, envenenados y crucificados por la especie humana.
+45. Después aquel gran ser, fue enumerando uno a uno, todos los profetas que fueron enviados a la humanidad, y fue narrando cómo todos ellos habían sido apedreados, perseguidos, envenenados y crucificados por la especie humana.
 
-46. Terminado el discurso, aquel gran Hijo de la Luz se re-tiró del recinto.
+46. Terminado el discurso, aquel gran Hijo de la Luz se retiró del recinto.
 
 47. Entonces los Hermanos Mayores consultaron al Dios Sirio, para tratar de resolver este gigantesco problema.
 
-48. No tardó en venir la respuesta, la cual podría sintetizar-se en estos versículos: “Caída es, la grande Babilonia, y es hecha habitación de demonios, y guarida de todo espíritu in-mundo, y albergue de todas las aves sucias y aborrecibles.
+48. No tardó en venir la respuesta, la cual podría sintetizarse en estos versículos: “Caída es, la grande Babilonia, y es hecha habitación de demonios, y guarida de todo espíritu inmundo, y albergue de todas las aves sucias y aborrecibles.
 
 “Porque todas las gentes han bebido el vino del furor de su fornicación; y los reyes de la tierra han fornicado con ella y los mercaderes de la Tierra se han enriquecido de la potencia de sus deleites”. (Vers. 2 y 3, Cap. 18: Apocalipsis).
 
-49. Solo un minúsculo puñado de almas podrán reencar-narse en la Nueva Era ACUARIA.
+49. Solo un minúsculo puñado de almas podrán reencarnarse en la Nueva Era ACUARIA.
 
-50. Millones de almas humanas separadas del INTIMO, se están ahora hundiendo en el tenebroso abismo, y ellas no podrán reencarnarse durante la nueva Era ACUARIA. 51- Y la gran ramera, está vestida de púrpura y de escarla-ta, y adornada de piedras preciosas y perlas, tiene su cáliz lleno de abominaciones, de suciedades y de fornicaciones.
+50. Millones de almas humanas separadas del INTIMO, se están ahora hundiendo en el tenebroso abismo, y ellas no podrán reencarnarse durante la nueva Era ACUARIA. 51- Y la gran ramera, está vestida de púrpura y de escarlata, y adornada de piedras preciosas y perlas, tiene su cáliz lleno de abominaciones, de suciedades y de fornicaciones.
 
-52. Esta es Jezabel, en cuya mesa comen los profetas de los Baales. A Jezabel comerán perros en el campo de Jezrre-el.
+52. Esta es Jezabel, en cuya mesa comen los profetas de los Baales. A Jezabel comerán perros en el campo de Jezrreel.
 
-53. En la frente de Jezabel, que se dice profetisa, está es-crito este nombre: “MISTERIO, BABILONIA LA GRANDE, LA MADRE DE LAS FORNICACIONES Y DE LAS ABOMINA-CIONES DE LA TIERRA”. CAPÍTULO XXII **EL CHAKRA CORONARIO**
+53. En la frente de Jezabel, que se dice profetisa, está escrito este nombre: “MISTERIO, BABILONIA LA GRANDE, LA MADRE DE LAS FORNICACIONES Y DE LAS ABOMINACIONES DE LA TIERRA”. CAPÍTULO XXII **EL CHAKRA CORONARIO**
 
-1. Habéis llegado a la cámara treinta y tres, ¡oh ARHAT!. Las tres cámaras altas de la cabeza han quedado ahora uni-das mediante el fuego.
+1. Habéis llegado a la cámara treinta y tres, ¡oh ARHAT!. Las tres cámaras altas de la cabeza han quedado ahora unidas mediante el fuego.
 
-2. Una campana metálica hace estremecer todos los ámbi-tos de la tierra, y el centro coronario de tu glándula pineal res-plandece entre las abrasadoras llamas de la mente cósmica.
+2. Una campana metálica hace estremecer todos los ámbitos de la tierra, y el centro coronario de tu glándula pineal resplandece entre las abrasadoras llamas de la mente cósmica.
 
-3. Tu túnica blanca, brilla terriblemente entre el crepitar ar-diente de las llamas universales.
+3. Tu túnica blanca, brilla terriblemente entre el crepitar ardiente de las llamas universales.
 
 4. Orquestas inefables resuenan en el templo, entre los grandes ritmos del fuego.
 
-5. Esta ROSA-ÍGNEA de tu corona mental, hace resplan-decer tu rostro y tus sienes augustas, entre las ondulantes llamas del mundo mental.
+5. Esta ROSA-ÍGNEA de tu corona mental, hace resplandecer tu rostro y tus sienes augustas, entre las ondulantes llamas del mundo mental.
 
-6. Este es el loto de los mil pétalos, esta es la corona de los santos, este es el ojo de la Polividencia, este es el ojo de Dia-mante. 7- Deberéis ahora, ¡oh ARHAT!, Conectar tu glándula pine-al con tu glándula pituitaria, mediante el fuego.
+6. Este es el loto de los mil pétalos, esta es la corona de los santos, este es el ojo de la Polividencia, este es el ojo de Diamante. 7- Deberéis ahora, ¡oh ARHAT!, Conectar tu glándula pineal con tu glándula pituitaria, mediante el fuego.
 
 8. Persevera y no desmayes, arroja hijo mío tu corona, a los pies del Cordero.
 
@@ -3002,7 +3006,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 11. Ahora hermano mío, habéis realizado esta labor con la culebra del cuerpo mental. Este es el cuarto grado del poder del fuego.
 
-12. Más tarde, deberéis realizar idéntica labor, con la quin-ta, con la sexta y con la séptima culebra.
+12. Más tarde, deberéis realizar idéntica labor, con la quinta, con la sexta y con la séptima culebra.
 
 13. Son dos grupos de a tres, con la coronación sublime de la séptima culebra, que nos une con el uno, con la ley, y con el PADRE.
 
@@ -3012,19 +3016,19 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 16. Ezequiel describe los siete grados del poder del fuego y las treinta y tres cámaras de nuestro templo, así:
 
-17. “Y las cámaras eran cámara sobre cámara, treinta y tres por orden; y entraban modillones en la pared de la casa alrededor, sobre los que las cámaras estribasen, y no estriba-sen en la pared de la casa”.
+17. “Y las cámaras eran cámara sobre cámara, treinta y tres por orden; y entraban modillones en la pared de la casa alrededor, sobre los que las cámaras estribasen, y no estribasen en la pared de la casa”.
 
 “Y había mayor anchura y vuelta en las cámaras a lo más alto; el caracol de la casa subía muy alto alrededor por dentro de la casa: por Esta es la segunda cámara alta de la cabeza, y tanto la casa tenía más anchura arriba; y de la cámara baja se subía a la alta por la del medio. “Y miré la altura de la casa alrededor; los cimientos de las cámaras eran una caña entera de seis codos de grandor”. (Vers. 6, 7, 8. Cap. 41: EZEQUIEL).
 
-18. “Y díjome las cámaras del norte y las del mediodía, que están delante de la lonja, son cámaras santas, en las cuales los sacerdotes que se acercan a Jehová comerán las santas ofrendas: allí pondrán las ofrendas santas, y el presente, y la expiación, y el sacrificio por el pecado: porque el lugar es san-to.
+18. “Y díjome las cámaras del norte y las del mediodía, que están delante de la lonja, son cámaras santas, en las cuales los sacerdotes que se acercan a Jehová comerán las santas ofrendas: allí pondrán las ofrendas santas, y el presente, y la expiación, y el sacrificio por el pecado: porque el lugar es santo.
 
-“Cuando los sacerdotes entraren, no saldrán del lugar santo al atrio de afuera, sino que allí dejarán sus vestimentas con que administran, porque son santas y vestiránse otros vesti-dos, y así se allegarán a lo que es el pueblo”. (Vers. 13 y 14. Cap. 42 EZEQUIEL).
+“Cuando los sacerdotes entraren, no saldrán del lugar santo al atrio de afuera, sino que allí dejarán sus vestimentas con que administran, porque son santas y vestiránse otros vestidos, y así se allegarán a lo que es el pueblo”. (Vers. 13 y 14. Cap. 42 EZEQUIEL).
 
-19. Cada una de nuestras treinta y tres vértebras de nues-tra columna espinal posee un Dios atómico de inmaculada belleza.
+19. Cada una de nuestras treinta y tres vértebras de nuestra columna espinal posee un Dios atómico de inmaculada belleza.
 
 20. Todos los treinta y tres Dioses atómicos, resplandecen ahora abrasadoramente en la mente del ARHAT.
 
-21. Las siete ROSAS ÍGNEAS de la médula espinal chispo-rrotean ardientemente con el fuego abrasador de tu canal me-dular, ¡oh ARHAT!.
+21. Las siete ROSAS ÍGNEAS de la médula espinal chisporrotean ardientemente con el fuego abrasador de tu canal medular, ¡oh ARHAT!.
 
 ## CAPÍTULO XXIII
 
@@ -3034,31 +3038,31 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 1. Nuestra columna espinal tiene siete rosas ígneas,
 
-2. Estas siete rosas ígneas entran en actividad con el fuego sagrado del canal de Susumná. 3- El fuego sagrado se engendra cuando los átomos sola-res y lunares de nuestros dos cordones ganglionares hacen contacto.
+2. Estas siete rosas ígneas entran en actividad con el fuego sagrado del canal de Susumná. 3- El fuego sagrado se engendra cuando los átomos solares y lunares de nuestros dos cordones ganglionares hacen contacto.
 
 4. Estos dos cordones simpáticos son llamados en oriente Idá y Pingalá.
 
-5. Idá y Pingalá funcionan a lo largo de la superficie curva-da de nuestra médula espinal, donde esta el canal de Su-sumná.
+5. Idá y Pingalá funcionan a lo largo de la superficie curvada de nuestra médula espinal, donde esta el canal de Susumná.
 
 6. Estos cordones Simpáticos, son nuestros dos testigos, nuestras dos olivas y los dos candeleros que están delante del Dios de la Tierra.
 
-7. Estos dos cordones surgen del centro sacro llamado Tri-veni, de la médula oblonga.
+7. Estos dos cordones surgen del centro sacro llamado Triveni, de la médula oblonga.
 
-8. Cuando los átomos solares y lunares de estos dos cor-dones hacen contacto en el sacro, despierta el fuego sagrado, y entra en actividad el Triveni o Mulhadara, que es la Iglesia Coxígea, la cual tiene el poder de abrir el Chakra prostático o fundamental.
+8. Cuando los átomos solares y lunares de estos dos cordones hacen contacto en el sacro, despierta el fuego sagrado, y entra en actividad el Triveni o Mulhadara, que es la Iglesia Coxígea, la cual tiene el poder de abrir el Chakra prostático o fundamental.
 
 9. La columna vertebral es llamada por los Indos, Brahma-danda o Bastón de Brahma, y está también simbolizada por la caña de Bambú de siete nudos que llevan los Yoguis de la India.
 
 10. El Canal de Susumná, junto con los dos cordones simpáticos, está simbolizado por una caña de bambú con tres nudos, que usan los Yoguis Trans-himaláyicos que se reúnen constantemente en el lago Mansoravara, por eso se les llama: TRIDANDINES, esto simboliza el Síngulo Brahmánico de los tres aires vitales del akasha puro.
 
-11. El cordón ganglionar de la derecha corresponde a la fo-sa nasal derecha, el cordón ganglionar de la izquierda perte-nece a la fosa nasal izquierda.
+11. El cordón ganglionar de la derecha corresponde a la fosa nasal derecha, el cordón ganglionar de la izquierda pertenece a la fosa nasal izquierda.
 
 12. El cordón ganglionar de la derecha es solar, positivo; el cordón ganglionar de la izquierda es lunar, negativo. 13- Cuando los átomos solares y lunares del cordón Brahmánico hacen contacto en el centro sacro Triveni, entra en actividad el KUNDALINI y se abre paso hacia BRAHMARANDRA, que es la fontanela frontal de los recién nacidos, para brillar resplandeciente en el entrecejo, cuello y corazón en sucesivo orden.
 
 14. En el corazón está la sede de Brahma; el corazón es la sede de ATMAN-BUDDHI-MANAS. El hombre espiritual reside en el corazón.
 
-15. La primera serpiente, que corresponde al cuerpo físico, sólo llega hasta BRAHMARANDRA, para brillar esplendoro-samente en el Chakra frontal. Este centro tiene noventa y seis rayos.
+15. La primera serpiente, que corresponde al cuerpo físico, sólo llega hasta BRAHMARANDRA, para brillar esplendorosamente en el Chakra frontal. Este centro tiene noventa y seis rayos.
 
-16. La segunda serpiente, que corresponde al cuerpo etéri-co, llega únicamente hasta el entrecejo.
+16. La segunda serpiente, que corresponde al cuerpo etérico, llega únicamente hasta el entrecejo.
 
 17. Empero, las otras cinco culebras deben llegar hasta el corazón inevitablemente.
 
@@ -3076,13 +3080,13 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 24. La cuarta rosa ígnea nos abre las alas ígneas y está íntimamente relacionada con el tacto. 25- La quinta rosa ígnea nos abre el Chakra del Tiroides, relacionado con el oído oculto. Este Chakra tiene dieciséis pétalos.
 
-26. La sexta rosa ígnea pertenece a la vértebra treinta y dos de nuestra Columna Espinal. Este es la segunda cámara alta de la cabeza, y abre el Chakra frontal que nos da la clari-videncia.
+26. La sexta rosa ígnea pertenece a la vértebra treinta y dos de nuestra Columna Espinal. Este es la segunda cámara alta de la cabeza, y abre el Chakra frontal que nos da la clarividencia.
 
 27. Este centro tiene noventa y seis rayos, y con el fuego sagrado resplandece en el entrecejo.
 
 28. Este Chakra frontal es el órgano de visión del plano psíquico.
 
-29. Dicho órgano reside en la glándula pituitaria, la cual tie-ne siete clases de hormonas.
+29. Dicho órgano reside en la glándula pituitaria, la cual tiene siete clases de hormonas.
 
 30. La séptima rosa ígnea corresponde a la glándula pineal.
 
@@ -3090,7 +3094,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 32. La glándula pineal se corresponde con el útero, y sus pedúnculos, con la Trompa de Falopio en la mujer.
 
-33. En el varón, la glándula pineal se halla íntimamente re-lacionada con las glándulas sexuales.
+33. En el varón, la glándula pineal se halla íntimamente relacionada con las glándulas sexuales.
 
 34. Ahora nos explicamos por qué este Chakra no puede entrar en actividad en los fornicarios.
 
@@ -3100,13 +3104,13 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 37. Esta séptima rosa ígnea es la corona de los santos, y tiene mil pétalos de indescriptible esplendor.
 
-38. Nuestro cerebro tiene siete cavidades y nuestro co-razón tiene también siete centros. 39- Estas siete cavidades de nuestro cerebro corresponden a las siete escalas de las armonías divinas, y están ocupadas por el akasha puro...
+38. Nuestro cerebro tiene siete cavidades y nuestro corazón tiene también siete centros. 39- Estas siete cavidades de nuestro cerebro corresponden a las siete escalas de las armonías divinas, y están ocupadas por el akasha puro...
 
 40. El hombre psíquico mental reside en la cabeza con sus siete portales, y en el corazón reside ATMAN-BUDDHI-MANAS (el hombre celeste).
 
 41. Hemos de unir la mente con el corazón, mediante el fuego.
 
-42. El cáliz y el corazón deben marchar en completo equili-brio, y ello solamente es posible uniendo la cabeza y el co-razón, mediante el fuego.
+42. El cáliz y el corazón deben marchar en completo equilibrio, y ello solamente es posible uniendo la cabeza y el corazón, mediante el fuego.
 
 43. Las circunvoluciones cerebrales han sido formadas por la armadura argentada del cuerpo mental.
 
@@ -3114,19 +3118,19 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 45. La sexta cavidad pertenece a la glándula pineal.
 
-46. La glándula pineal o centro coronario es un cuerpo oblongo, redondeado, de ocho a seis milímetros de largo, po-see un color oscuro, grisáceo, ligeramente rojizo y está conec-tado con la parte posterior del tercer ventrículo del cerebro.
+46. La glándula pineal o centro coronario es un cuerpo oblongo, redondeado, de ocho a seis milímetros de largo, posee un color oscuro, grisáceo, ligeramente rojizo y está conectado con la parte posterior del tercer ventrículo del cerebro.
 
-47. Tiene en su base dos finísimas y hermosas fibras me-dulares, que se dirigen divergentemente hacia los tálamos ópticos.
+47. Tiene en su base dos finísimas y hermosas fibras medulares, que se dirigen divergentemente hacia los tálamos ópticos.
 
-48. El cuerpo pituitario se halla conectado con la glándula pineal, por un canalillo capilar sumamente fino, ya desapareci-do en los cadáveres.
+48. El cuerpo pituitario se halla conectado con la glándula pineal, por un canalillo capilar sumamente fino, ya desaparecido en los cadáveres.
 
-49. Esta glándula pineal está rodeada de una arenilla su-mamente fina.
+49. Esta glándula pineal está rodeada de una arenilla sumamente fina.
 
-50. Esta arenilla es el “ACERBULUS” “CEREBRI”, la con-creción del cuerpo mental, y el instrumento eficiente de la mente. 51- En la cabeza residen los siete Chakras capitales que gobiernan a los siete plexos.
+50. Esta arenilla es el “ACERBULUS” “CEREBRI”, la concreción del cuerpo mental, y el instrumento eficiente de la mente. 51- En la cabeza residen los siete Chakras capitales que gobiernan a los siete plexos.
 
 52. Cuando el cuerpo mental está ya totalmente Cristificado por la cuarta culebra, se convierte en un instrumento eficiente para el INTIMO.
 
-53. El real SER utiliza a la mente como elemento de regu-lación y control para los siete plexos astrales.
+53. El real SER utiliza a la mente como elemento de regulación y control para los siete plexos astrales.
 
 54. La mente controla sus plexos por medio de los siete Chakras capitales del cerebro.
 
@@ -3136,21 +3140,21 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 57. Los espiritualistas de todas las escuelas han estudiado los Chakras astrales, pero jamás se les ha ocurrido estudiar los siete candeleros del cuerpo mental, que resplandecen en el fuego del ARHAT.
 
-58. Nuestros Chakras son séptuples en su constitución, lo mismo que nuestra culebra sagrada y nuestro cordón Bra-hamánico.
+58. Nuestros Chakras son séptuples en su constitución, lo mismo que nuestra culebra sagrada y nuestro cordón Brahamánico.
 
 59. Las siete rosas ígneas de nuestra médula espinal son también séptuples en su constitución interna.
 
-60. Nuestro cerebro tiene siete cavidades y nuestro co-razón tiene también siete centros divinos.
+60. Nuestro cerebro tiene siete cavidades y nuestro corazón tiene también siete centros divinos.
 
-61. El fuego sagrado entra en actividad cuando los átomos solares y lunares del cordón brahamánico hacen contacto en el Triveni. Ese contacto sólo es posible practicando magia-sexual intensamente con la sacerdotisa, o mediante el sacrifi-cio de una abstención sexual, total y definitiva. 62- Los Mantrams más poderosos que se conocen en todo el infinito para despertar el fuego sagrado, son los siguientes: “KANDIL BANDIL Rrrrrrrrr”.
+61. El fuego sagrado entra en actividad cuando los átomos solares y lunares del cordón brahamánico hacen contacto en el Triveni. Ese contacto sólo es posible practicando magia-sexual intensamente con la sacerdotisa, o mediante el sacrificio de una abstención sexual, total y definitiva. 62- Los Mantrams más poderosos que se conocen en todo el infinito para despertar el fuego sagrado, son los siguientes: “KANDIL BANDIL Rrrrrrrrr”.
 
-63. Estos Mantrams se vocalizan en forma cantada, así: KAN en voz alta; DIL, en voz baja; BAN en voz alta, y DIL en voz baja. La letra R es pronunciada en forma alargada y agu-da, imitando el sonido producido por los cascabeles de la ser-piente cascabel.
+63. Estos Mantrams se vocalizan en forma cantada, así: KAN en voz alta; DIL, en voz baja; BAN en voz alta, y DIL en voz baja. La letra R es pronunciada en forma alargada y aguda, imitando el sonido producido por los cascabeles de la serpiente cascabel.
 
-64. La primera rosa ígnea de nuestra columna espinal co-rresponde a los órganos de reproducción y respiración de la raza.
+64. La primera rosa ígnea de nuestra columna espinal corresponde a los órganos de reproducción y respiración de la raza.
 
-65. La segunda rosa ígnea corresponde al sentido del gus-to. La tercera rosa ígnea corresponde al corazón. La cuarta rosa ígnea corresponde a las alas. La quinta rosa ígnea co-rresponde al oído. La sexta rosa ígnea corresponde al sentido de la visión. Y la séptima rosa ígnea corresponde al Ojo de Diamante, Ojo de Brahma, Chakra coronario o centro de la Polividencia, que nos permite ver en todos los planos de con-ciencia.
+65. La segunda rosa ígnea corresponde al sentido del gusto. La tercera rosa ígnea corresponde al corazón. La cuarta rosa ígnea corresponde a las alas. La quinta rosa ígnea corresponde al oído. La sexta rosa ígnea corresponde al sentido de la visión. Y la séptima rosa ígnea corresponde al Ojo de Diamante, Ojo de Brahma, Chakra coronario o centro de la Polividencia, que nos permite ver en todos los planos de conciencia.
 
-66. Todos nuestros sentidos se hallan íntimamente relacio-nados con los TATWAS y con las distintas esferas o planos de conciencia cósmica, que se expresan a través de las siete rosas ígneas de nuestra columna espinal.
+66. Todos nuestros sentidos se hallan íntimamente relacionados con los TATWAS y con las distintas esferas o planos de conciencia cósmica, que se expresan a través de las siete rosas ígneas de nuestra columna espinal.
 
 67. El despertar de estas siete rosas ígneas, nos da acceso a los planos superlativos de conciencia cósmica.
 
@@ -3174,7 +3178,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 5. El fuego sagrado se ha abierto paso a través de tu cráneo y ahora sale, hacia la atmósfera circundante, como hoguera de llamas que chisporrotean ardientemente.
 
-6. Brillas en el mundo de la mente como un sol esplenden-te, ¡oh ARHAT!
+6. Brillas en el mundo de la mente como un sol esplendente, ¡oh ARHAT!
 
 7. Te has vuelto una llama ardiente, en el mundo de la mente cósmica.
 
@@ -3186,9 +3190,9 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 11. Tendrás que arrastrar un tren muy pesado con el fuego abrasador de tu mente que flamea...
 
-12. Tendrás que arrastrar, hijo mío, este tren de la evolu-ción humana, sobre los carriles espirales de la vida, hasta lle-varlos al reino del PADRE.
+12. Tendrás que arrastrar, hijo mío, este tren de la evolución humana, sobre los carriles espirales de la vida, hasta llevarlos al reino del PADRE.
 
-13. MASICULA y PASICULO, así transformas a los hom-bres. 14- El fuego todo lo transforma, empero el hombre no pue-de poseer la vida, si no es partícipe de la GNOSIS.
+13. MASICULA y PASICULO, así transformas a los hombres. 14- El fuego todo lo transforma, empero el hombre no puede poseer la vida, si no es partícipe de la GNOSIS.
 
 15. La mente del ARHAT resplandece entre las llamas abrasadoras de MAHAT, cuando el fuego sagrado sale por BRAHMARANDRA.
 
@@ -3198,37 +3202,37 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 18. Todas esas personalidades han muerto, pero su aroma ha quedado injertado en el Árbol de la Vida (el INTIMO) y en el Huevo Áurico.
 
-19. No son las personalidades humanas las que se reen-carnan, sino el INTIMO, la divina TRÍADA, el Árbol de la Vida, dentro del cual se injerta el aroma de sus hojas pasajeras. (Las personalidades pasajeras).
+19. No son las personalidades humanas las que se reencarnan, sino el INTIMO, la divina TRÍADA, el Árbol de la Vida, dentro del cual se injerta el aroma de sus hojas pasajeras. (Las personalidades pasajeras).
 
 20. El Huevo Áurico es la armadura protectora que protege todos nuestros vehículos internos, es el aura del INTIMO.
 
 21. El Huevo Áurico está elaborado con la misma sustancia del INTIMO, y resplandece ahora con el fuego del ARHAT.
 
-22. Con los siete grados de poder del fuego, se sintetiza toda la sabiduría y toda la omnisciencia de los siete Cosmo-cratores.
+22. Con los siete grados de poder del fuego, se sintetiza toda la sabiduría y toda la omnisciencia de los siete Cosmocratores.
 
-23. Ahora debes unir tu glándula pineal con tu glándula pi-tuitaria totalmente, con el fuego...
+23. Ahora debes unir tu glándula pineal con tu glándula pituitaria totalmente, con el fuego...
 
 24. En el Hueco Áurico se registran nuestras deudas Kármicas.
 
-25. El INTIMO es un verdadero cordero inmolado, que tiene que pagar el karma de cada una de sus personalidades pasa-jeras. 26- Las personalidades tántricas se separan del INTIMO to-talmente, y se hunden en el AVITCHI, sin haber podido injertar su aroma en el Árbol de la Vida, en la divina TRÍADA REENCARNANTE.
+25. El INTIMO es un verdadero cordero inmolado, que tiene que pagar el karma de cada una de sus personalidades pasajeras. 26- Las personalidades tántricas se separan del INTIMO totalmente, y se hunden en el AVITCHI, sin haber podido injertar su aroma en el Árbol de la Vida, en la divina TRÍADA REENCARNANTE.
 
-27. En estos casos la TRÍADA eterna tiene que revestirse de una nueva personalidad para continuar su evolución cósmi-ca, mientras su ex-personalidad Tántrica se va desintegrando poco a poco en el AVITCHI.
+27. En estos casos la TRÍADA eterna tiene que revestirse de una nueva personalidad para continuar su evolución cósmica, mientras su ex-personalidad Tántrica se va desintegrando poco a poco en el AVITCHI.
 
-28. En estos instantes la evolución humana está fracasada, y la mayor parte de las personalidades humanas están ya se-paradas del INTIMO.
+28. En estos instantes la evolución humana está fracasada, y la mayor parte de las personalidades humanas están ya separadas del INTIMO.
 
 29. En la edad de ACUARIO solo podrán reencarnarse aquellos INTIMOS que no hayan perdido su personalidad.
 
-30. Los otros, los fracasados, deberán aguardar en los mundos internos, hasta que pase la luminosa edad de ACUARIO y en CAPRICORNIO se les brindará a sus persona-lidades tenebrosas, la última oportunidad.
+30. Los otros, los fracasados, deberán aguardar en los mundos internos, hasta que pase la luminosa edad de ACUARIO y en CAPRICORNIO se les brindará a sus personalidades tenebrosas, la última oportunidad.
 
-31. El amanecer de SAGITARIO será definitivo, los INTIMOS que hayan logrado entonces dominar sus rebeldes personalidades, podrán asimilarse el aroma de éstas, sus ex-tractos anímicos, para continuar su evolución cósmica a través de la rueda de nacimientos y de muertes.
+31. El amanecer de SAGITARIO será definitivo, los INTIMOS que hayan logrado entonces dominar sus rebeldes personalidades, podrán asimilarse el aroma de éstas, sus extractos anímicos, para continuar su evolución cósmica a través de la rueda de nacimientos y de muertes.
 
 32. Los fracasados perderán totalmente su personalidad Tántrica, y después de revestirse de su nueva personalidad, continuarán su evolución cósmica, como “REZAGADOS”.
 
 33. Las ex-personalidades tántricas de esos rezagados, separadas de su EGO superior, se irán desintegrando poco a poco en el AVITCHI.
 
-34. Nuestra TRÍADA reencarnante está formada por ATMAN-BUDDHI-MANAS. Esta es la TRÍADA eterna e indes-tructible.
+34. Nuestra TRÍADA reencarnante está formada por ATMAN-BUDDHI-MANAS. Esta es la TRÍADA eterna e indestructible.
 
-35. Este es el INTIMO con sus dos almas gemelas: la divi-na y la humana. 36- Este es el AOM dentro de nosotros.
+35. Este es el INTIMO con sus dos almas gemelas: la divina y la humana. 36- Este es el AOM dentro de nosotros.
 
 37. Las personalidades terrestres son como las hojas de este maravilloso Árbol de la Vida.
 
@@ -3236,7 +3240,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 39. Todo lo que hemos dicho sobre el AVITCHI en este capítulo, lo podemos sintetizar con los siguientes versículos bíblicos:
 
-40. “El que siembra la buena simiente es el Hijo del Hom-bre”.
+40. “El que siembra la buena simiente es el Hijo del Hombre”.
 
 “Y el campo es el mundo; y la buena simiente son los hijos del reino, y la cizaña son los hijos del malo”.
 
@@ -3254,33 +3258,33 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 # ADIVINOS Y PROFETAS
 
-1. “Porque las imágenes han hablado vanidad, y los adivi-nos han visto mentira, y han hablado sueños vanos, en vano consuelan: por lo cual se fueron ellos como ovejas, y fueron humillados porque no tuvieron pastor”. (Vers. 2, Cap. 10:
+1. “Porque las imágenes han hablado vanidad, y los adivinos han visto mentira, y han hablado sueños vanos, en vano consuelan: por lo cual se fueron ellos como ovejas, y fueron humillados porque no tuvieron pastor”. (Vers. 2, Cap. 10:
 
 ### ZACARÍAS).
 
 2. Hemos de hacer diferenciación entre los adivinos y los profetas.
 
-3. Eliphas Levi, dice lo siguiente: “Adivino viene de la pala-bra divinaris, divinus, que significa ejercer la divinidad”. Pero se le olvidó al Abate Alfonso Luis Constant la partícula A, que precede a la palabra divino.
+3. Eliphas Levi, dice lo siguiente: “Adivino viene de la palabra divinaris, divinus, que significa ejercer la divinidad”. Pero se le olvidó al Abate Alfonso Luis Constant la partícula A, que precede a la palabra divino.
 
-4. La Gramática dice lo siguiente: A, preposición que deno-ta separación, alejamiento, v. g.: Teo, significa Dios; pero si le anteponemos la partícula A, formamos la palabra ATEO, con el que denominamos al que no cree en Dios. Adivino, repre-senta precisamente lo contrario de lo divino, es decir, lo diabó-lico. Apolítico, significa un individuo no político.
+4. La Gramática dice lo siguiente: A, preposición que denota separación, alejamiento, v. g.: Teo, significa Dios; pero si le anteponemos la partícula A, formamos la palabra ATEO, con el que denominamos al que no cree en Dios. Adivino, representa precisamente lo contrario de lo divino, es decir, lo diabólico. Apolítico, significa un individuo no político.
 
 5. Si leemos la BIBLIA cuidadosamente, no encontramos una sola palabra a favor de los adivinos.
 
-6. Cuando el rey Nabucodonosor mandó a llamar magos, astrólogos, adivinos y encantadores para que le adivinaran el sueño de la estatua, no hubo un solo adivino que revelase al rey este arcano, sólo un profeta de Dios respondió delante del rey y dijo. “El misterio que el rey demanda, ni sabios, ni astró-logos, ni magos, ni adivinos, lo pueden enseñar al rey”.
+6. Cuando el rey Nabucodonosor mandó a llamar magos, astrólogos, adivinos y encantadores para que le adivinaran el sueño de la estatua, no hubo un solo adivino que revelase al rey este arcano, sólo un profeta de Dios respondió delante del rey y dijo. “El misterio que el rey demanda, ni sabios, ni astrólogos, ni magos, ni adivinos, lo pueden enseñar al rey”.
 
-“Mas hay un Dios en los cielos, el cual revela los misterios, y Él ha hecho saber al rey Nabucodonosor lo que ha de acon-tecer al cabo de días”.
+“Mas hay un Dios en los cielos, el cual revela los misterios, y Él ha hecho saber al rey Nabucodonosor lo que ha de acontecer al cabo de días”.
 
 7. Esto es textual del capítulo segundo del Libro de Daniel, e invita a meditar.
 
-8. Daniel el profeta del Dios vivo, fue el único que pudo re-velarle el sueño a Nabucodonosor.
+8. Daniel el profeta del Dios vivo, fue el único que pudo revelarle el sueño a Nabucodonosor.
 
-9. Los adivinos son videntes tenebrosos, son magos ne-gros.
+9. Los adivinos son videntes tenebrosos, son magos negros.
 
-10. Los profetas son videntes de la luz, son magos blancos. 11- Los adivinos ven las imágenes del abismo, y sueñan sueños del abismo, con los cuales pronostican acontecimien-tos que pueden fallar, porque no todas las veces cristalizan en el mundo físico las imágenes tenebrosas del abismo.
+10. Los profetas son videntes de la luz, son magos blancos. 11- Los adivinos ven las imágenes del abismo, y sueñan sueños del abismo, con los cuales pronostican acontecimientos que pueden fallar, porque no todas las veces cristalizan en el mundo físico las imágenes tenebrosas del abismo.
 
 12. Las escenas tenebrosas del abismo, son realmente en el abismo, pero no siempre cristalizan en el mundo físico.
 
-13. Los profetas son videntes de la luz, varones de Dios iluminados por el Espíritu Santo, y sus pronósticos son exac-tos porque sus glándulas pineal y pituitaria están totalmente iluminadas por el fuego sagrado.
+13. Los profetas son videntes de la luz, varones de Dios iluminados por el Espíritu Santo, y sus pronósticos son exactos porque sus glándulas pineal y pituitaria están totalmente iluminadas por el fuego sagrado.
 
 14. Los Chelas de la Fraternidad Blanca son aprendices, son discípulos de los profetas, y por ello pueden servir de mensajeros de los profetas, y hablar palabra de los santos Maestros a los hombres.
 
@@ -3298,19 +3302,19 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 21. Existe el vidente del vidente, y el profeta del profeta.
 
-22. El vidente del vidente es el INTIMO, el profeta del profe-ta, es el INTIMO.
+22. El vidente del vidente es el INTIMO, el profeta del profeta, es el INTIMO.
 
 23. Las visiones luminosas de nuestros discípulos vienen de las Jerarquías Blancas.
 
-24. No obstante, si nuestros discípulos se entregan a la fornicación y cogen por el camino negro, se alejan del camino de los profetas, y se vuelven adivinos. 25- Entonces sus sueños son sueños del abismo, son sue-ños vanos, y sus pronósticos tenebrosos fallarán lamentable-mente, produciendo en ellos confusión de rostro y vergüenza.
+24. No obstante, si nuestros discípulos se entregan a la fornicación y cogen por el camino negro, se alejan del camino de los profetas, y se vuelven adivinos. 25- Entonces sus sueños son sueños del abismo, son sueños vanos, y sus pronósticos tenebrosos fallarán lamentablemente, produciendo en ellos confusión de rostro y vergüenza.
 
 26. Los profetas son los Maestros de la Venerable LOGIA BLANCA.
 
-27. Los adivinos son los magos negros, los videntes tene-brosos, los profetas de los Baales, que comen en la mesa de Jezabel y enseñan a fornicar y a comer cosas ofrecidas a los ídolos.
+27. Los adivinos son los magos negros, los videntes tenebrosos, los profetas de los Baales, que comen en la mesa de Jezabel y enseñan a fornicar y a comer cosas ofrecidas a los ídolos.
 
-28. Nuestros discípulos deben seguir la senda de la perfec-ción, deben ser puros, puros, puros, para que el cristal purísi-mo de su imaginación sea un espejo perfecto, donde se pue-dan reflejar todas las imágenes preciosas del Fuego Universal.
+28. Nuestros discípulos deben seguir la senda de la perfección, deben ser puros, puros, puros, para que el cristal purísimo de su imaginación sea un espejo perfecto, donde se puedan reflejar todas las imágenes preciosas del Fuego Universal.
 
-29. Todos los pensamientos impuros, todos los odios, todas las envidias, celos, maldades, etc., empañan el cristal purísimo de la clarividencia, convirtiendo a nuestros discípulos en viden-tes de las sombras, en adivinos.
+29. Todos los pensamientos impuros, todos los odios, todas las envidias, celos, maldades, etc., empañan el cristal purísimo de la clarividencia, convirtiendo a nuestros discípulos en videntes de las sombras, en adivinos.
 
 ## CAPÍTULO XXVI
 
@@ -3326,7 +3330,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 2. Hijito mío, ya comiste del árbol de la ciencia del bien y del mal, y conociste su fruto, “dulce en la boca y amargo en el vientre”.
 
-3. Ya supiste hermano mío, lo que es la alegría de tener un hijo, el dolor de perderlo, gozaste todos los placeres de la ra-za, te revolcaste como el cerdo en el barro de la tierra, y bebis-te en todas las copas tentadoras.
+3. Ya supiste hermano mío, lo que es la alegría de tener un hijo, el dolor de perderlo, gozaste todos los placeres de la raza, te revolcaste como el cerdo en el barro de la tierra, y bebiste en todas las copas tentadoras.
 
 4. Ahora hijo mío, romped la copa de la fornicación, para que vuelvas al Edén conociendo el bien y el mal, como uno de Nos.
 
@@ -3342,29 +3346,29 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 10. No intentes, hermano mío, romper o saltarte los muros del Edén, porque al paraíso sólo puedes entrar por la puerta por donde saliste.
 
-11. El hombre salió del Paraíso por la puerta del sexo, y sólo por esa puerta puede entrar al Paraíso. 12- El Edén es el mismo sexo, y al Edén sólo podemos en-trar por donde salimos.
+11. El hombre salió del Paraíso por la puerta del sexo, y sólo por esa puerta puede entrar al Paraíso. 12- El Edén es el mismo sexo, y al Edén sólo podemos entrar por donde salimos.
 
-13. Inútilmente tratarán los hombres vanos, asaltar los mu-ros del Edén...
+13. Inútilmente tratarán los hombres vanos, asaltar los muros del Edén...
 
 14. Al Paraíso sólo se puede entrar por la puerta por donde salimos... esa puerta es el SEXO.
 
-15. Inútilmente tratarán de romper los muros los espiritua-listas teorizantes, fornicarios y demás profetas de los Baales, que comen en la mesa de Jezabel.
+15. Inútilmente tratarán de romper los muros los espiritualistas teorizantes, fornicarios y demás profetas de los Baales, que comen en la mesa de Jezabel.
 
-16. Ya conociste hijo mío, al griego y al romano, tomaste parte en todos los éxodos bíblicos y los austeros sacerdotes de todas las religiones de la tierra apenas te brindaron el con-suelo de un día...
+16. Ya conociste hijo mío, al griego y al romano, tomaste parte en todos los éxodos bíblicos y los austeros sacerdotes de todas las religiones de la tierra apenas te brindaron el consuelo de un día...
 
-17. Llevaste cilicios, ayunos y penitencias, y pórticos de to-dos los templos de todas las religiones de la tierra apenas pu-dieron consolar tu adolorido corazón, pero el aguijón del tiem-po te despertó a las duras asperezas de la existencia, y no pudiste encontrar en tu camino ningún viandante que te pudie-ra consolar. Católico o Protestante, Budista o Musulmán, son hojas ya marchitas en tu adolorido corazón...
+17. Llevaste cilicios, ayunos y penitencias, y pórticos de todos los templos de todas las religiones de la tierra apenas pudieron consolar tu adolorido corazón, pero el aguijón del tiempo te despertó a las duras asperezas de la existencia, y no pudiste encontrar en tu camino ningún viandante que te pudiera consolar. Católico o Protestante, Budista o Musulmán, son hojas ya marchitas en tu adolorido corazón...
 
 18. Fuiste varón, fuiste mujer y tuviste adoradores al pie de tu ventana... Y gozaste de orgías y banquetes... de festines y algarazas...
 
-19. Fuiste mendiga y humilde y pordiosera... anciana, des-valida... y los tenderos te arrojaron de sus tiendas, con los pies...
+19. Fuiste mendiga y humilde y pordiosera... anciana, desvalida... y los tenderos te arrojaron de sus tiendas, con los pies...
 
-20. Fuiste gran matrona entre perfumes, oro y sedas, y ca-da vez que la muerte te visitó, viste la vanidad de las cosas pasajeras.
+20. Fuiste gran matrona entre perfumes, oro y sedas, y cada vez que la muerte te visitó, viste la vanidad de las cosas pasajeras.
 
-21. Recuerda tu primer amor... Recuerda de dónde salis-te... y éntrate por la puerta del Edén, hermano mío. 22- La puerta del Edén es el SEXO... y por esa puerta salis-te cuando el Señor Jehová te echó por haber desobedecido su mandamiento.
+21. Recuerda tu primer amor... Recuerda de dónde saliste... y éntrate por la puerta del Edén, hermano mío. 22- La puerta del Edén es el SEXO... y por esa puerta saliste cuando el Señor Jehová te echó por haber desobedecido su mandamiento.
 
 23. Obedece ahora hijo mío, y entra.
 
-24. “Oh, Líbano, abre tus puertas y quemen fuego tus ce-dros”. (Vers. 1. Cap. 11: ZACARÍAS).
+24. “Oh, Líbano, abre tus puertas y quemen fuego tus cedros”. (Vers. 1. Cap. 11: ZACARÍAS).
 
 25. “Así dice Jehová de los ejércitos: Si anduvieras por mis caminos, y guardares mi ordenanza, también tu gobernarás mi casa, también tú guardarás mis atrios, y entre éstos que aquí están te daré plaza”. (Vers. 7, Cap. 2. ZACARÍAS).
 
@@ -3376,23 +3380,23 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 2. Entre los clarividentes, hay grados y grados, escalas y escalas, porque la iluminación se va realizando por grados... poco a poco...
 
-3. Hay que diferenciar entre la clarividencia de los discípu-los y la clarividencia de los Maestros.
+3. Hay que diferenciar entre la clarividencia de los discípulos y la clarividencia de los Maestros.
 
 4. Cuando el Maestro ha hecho subir su primera serpiente hasta el entrecejo, su cuerpo Buddhico recibe la clarividencia Buddhica, y entonces, resplandece sobre el entrecejo de su cuerpo Buddhico una estrella de cinco puntas, que irradia una luz blanca inmaculada y resplandeciente.
 
-5. Cuando el Maestro ha llevado su segunda serpiente has-ta el entrecejo, se abre el Chakra frontal del cuerpo Etérico, y entonces el Maestro adquiere la vista etérica. 6- Cuando el Maestro ha hecho llegar su tercera serpiente al Chakra frontal del cuerpo astral, entonces se hace clarivi-dente en el mundo astral.
+5. Cuando el Maestro ha llevado su segunda serpiente hasta el entrecejo, se abre el Chakra frontal del cuerpo Etérico, y entonces el Maestro adquiere la vista etérica. 6- Cuando el Maestro ha hecho llegar su tercera serpiente al Chakra frontal del cuerpo astral, entonces se hace clarividente en el mundo astral.
 
 7. Cuando el Maestro ha hecho llegar su cuarta serpiente al Chakra frontal del cuerpo mental, se hace clarividente del mundo mental, y así sucesivamente con los siete grados de poder del fuego.
 
 8. Empero, los discípulos pueden hacer rotar sus chakras y hacerse clarividentes...
 
-9. Así es como los discípulos se preparan para el adveni-miento del fuego...
+9. Así es como los discípulos se preparan para el advenimiento del fuego...
 
 10. Pero, por muy potente que sea la clarividencia de un discípulo, si se compara con el esplendor del chakra frontal de un Maestro de Misterios Mayores, resulta aquella como una mísera bujía ante la luz esplendente del sol.
 
-11. El fuego sagrado de tu cuerpo mental se ha abierto pa-so hasta el chakra frontal de tu mente. ¡Oh ARHAT!
+11. El fuego sagrado de tu cuerpo mental se ha abierto paso hasta el chakra frontal de tu mente. ¡Oh ARHAT!
 
-12. Habéis vencido las tinieblas, habéis vencido a los tene-brosos, y se abre la puerta de tu chakra frontal...
+12. Habéis vencido las tinieblas, habéis vencido a los tenebrosos, y se abre la puerta de tu chakra frontal...
 
 13. Por allí sale ahora la blanca paloma del Espíritu Santo entre las llamas abrasadoras del fuego que flamea...
 
@@ -3400,11 +3404,11 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 15. Entra al templo, hermano mío, para celebrar la fiesta...
 
-16. Ahora es necesario, hijo mío, unir la mente y el co-razón, mediante el fuego.
+16. Ahora es necesario, hijo mío, unir la mente y el corazón, mediante el fuego.
 
-17. El corazón y la cabeza deben marchar en perfecto equi-librio. El corazón y la cabeza deben marchar equilibrados. El corazón y la cabeza deben marchar en perfecta armonía, y esto sólo es posible, uniendo el corazón y la cabeza, mediante el FUEGO. 18- Del entrecejo al corazón, hay una avenida, hay un ca-mino, y ciertas cámaras secretas por donde el fuego debe pa-sar...
+17. El corazón y la cabeza deben marchar en perfecto equilibrio. El corazón y la cabeza deben marchar equilibrados. El corazón y la cabeza deben marchar en perfecta armonía, y esto sólo es posible, uniendo el corazón y la cabeza, mediante el FUEGO. 18- Del entrecejo al corazón, hay una avenida, hay un camino, y ciertas cámaras secretas por donde el fuego debe pasar...
 
-19. Es imposible que el corazón y la mente puedan armoni-zarse y equilibrarse, sin el poder del fuego.
+19. Es imposible que el corazón y la mente puedan armonizarse y equilibrarse, sin el poder del fuego.
 
 20. Los espiritualistas de todas las escuelas hablan del equilibrio entre la mente y el corazón, pero es imposible que la mente y el corazón puedan equilibrarse sin el poder del fuego.
 
@@ -3412,17 +3416,17 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 22. El fuego conecta a la mente con la divina TRÍADA, que reside en el corazón.
 
-23. La mente nos da el pan de la sabiduría cuando se co-necta con el corazón, mediante el fuego...
+23. La mente nos da el pan de la sabiduría cuando se conecta con el corazón, mediante el fuego...
 
-24. El hombre mental reside en la cabeza, y el hombre ce-leste reside en el corazón.
+24. El hombre mental reside en la cabeza, y el hombre celeste reside en el corazón.
 
 25. Hay que unir al hombre mental con el hombre celeste, por medio del FUEGO.
 
 26. El Kundalini, une la mente y el corazón.
 
-27. Los intelectuales son seres depravados moralmente, porque sólo se mueven bajo la dirección del Guardián del Um-bral del cuerpo mental, sin escuchar la voz del hombre celeste, que reside en el corazón.
+27. Los intelectuales son seres depravados moralmente, porque sólo se mueven bajo la dirección del Guardián del Umbral del cuerpo mental, sin escuchar la voz del hombre celeste, que reside en el corazón.
 
-28. La mente debe convertirse en un instrumento del co-razón.
+28. La mente debe convertirse en un instrumento del corazón.
 
 29. Debemos aprender a pensar con el corazón...
 
@@ -3446,7 +3450,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 2. Golpea fuertemente en las puertas de esa cámara, ¡oh ARHAT!
 
-3. Finas tentaciones te asaltan en el mundo del entendi-miento cósmico.
+3. Finas tentaciones te asaltan en el mundo del entendimiento cósmico.
 
 4. Se te ofrecen riquezas, en oportunidades eróticas, con fines sublimes...
 
@@ -3456,45 +3460,45 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 7. Ese contacto, sólo es posible mediante la magia sexual, pues las fosas nasales están íntimamente relacionadas con la Iglesia Coxígea mediante los dos cordones ganglionares de nuestra médula espinal.
 
-8. Los Yoguis de la India, mediante el Pranayama y la cas-tidad logran ese contacto de los átomos lunares y solares en la raíz de la nariz y en el mulhadara. 9- El Akasha puro circula por el canal de Sushumná y sus dos corrientes solar y lunar, hacen contacto en el campo magnético de la nariz cuando practicamos magia sexual inten-samente.
+8. Los Yoguis de la India, mediante el Pranayama y la castidad logran ese contacto de los átomos lunares y solares en la raíz de la nariz y en el mulhadara. 9- El Akasha puro circula por el canal de Sushumná y sus dos corrientes solar y lunar, hacen contacto en el campo magnético de la nariz cuando practicamos magia sexual intensamente.
 
 10. Estos son los tres aires vitales del cordón Brahmánico.
 
-11. Estos tres aires vitales los gobierna el INTIMO por me-dio del poder de su voluntad.
+11. Estos tres aires vitales los gobierna el INTIMO por medio del poder de su voluntad.
 
-12. Estos canales: solar y lunar, deben estar totalmente pu-ros, para que las corrientes solar y lunar puedan circular libre-mente por sus cordones ganglionares, y para que el Akasha puro del canal de Sushumná pueda fluir libremente por la co-lumna espinal.
+12. Estos canales: solar y lunar, deben estar totalmente puros, para que las corrientes solar y lunar puedan circular libremente por sus cordones ganglionares, y para que el Akasha puro del canal de Sushumná pueda fluir libremente por la columna espinal.
 
 13. Por este motivo se prohíbe tanto a los Gnósticos, como a los Yoguis y Místicos toda fornicación.
 
-14. Los tres aires vitales, vigorizados por el poder de la vo-luntad, convierten en magos negros a los fornicarios y en ma-gos blancos a los hombres santos y castos.
+14. Los tres aires vitales, vigorizados por el poder de la voluntad, convierten en magos negros a los fornicarios y en magos blancos a los hombres santos y castos.
 
 15. Estos tres aires vitales, mezclados con la fornicación y con la eyaculación “científica” del curso de magia sexual de Parsival o de Omar Cherenzi Lind, convierten a los seres humanos en magos negros.
 
-16. Durante el trance sexual, nuestra sustancia seminal desciende a su bolsa correspondiente... Al ser derramada esa sustancia seminal, perdemos millones de átomos solares Crísticos, que luego, mediante el movimiento de contracción genital, reemplazamos por millones de átomos demoníacos que ingresan al cordón Brahmánico, y si mediante la voluntad hemos vigorizado los tres aires vitales del Akasha puro, enton-ces la mezcla del Akasha con los átomos recogidos de los infiernos del hombre, resulta el despertar de la serpiente Lu-ciférica, en forma negativa y demoníaca...
+16. Durante el trance sexual, nuestra sustancia seminal desciende a su bolsa correspondiente... Al ser derramada esa sustancia seminal, perdemos millones de átomos solares Crísticos, que luego, mediante el movimiento de contracción genital, reemplazamos por millones de átomos demoníacos que ingresan al cordón Brahmánico, y si mediante la voluntad hemos vigorizado los tres aires vitales del Akasha puro, entonces la mezcla del Akasha con los átomos recogidos de los infiernos del hombre, resulta el despertar de la serpiente Luciférica, en forma negativa y demoníaca...
 
-17. Con el despertar de los poderes Tántricos, el cuaterna-rio inferior termina divorciándose de la divina TRÍADA y con-viértese en un demonio perverso del abismo. 18- Esta separación se realiza cuando se rompe el puente llamado Antakarana, que conecta al cuaternario inferior con la divina TRÍADA.
+17. Con el despertar de los poderes Tántricos, el cuaternario inferior termina divorciándose de la divina TRÍADA y con-viértese en un demonio perverso del abismo. 18- Esta separación se realiza cuando se rompe el puente llamado Antakarana, que conecta al cuaternario inferior con la divina TRÍADA.
 
-19. El ANTAKARANA se corresponde con el cordón umbili-cal del feto.
+19. El ANTAKARANA se corresponde con el cordón umbilical del feto.
 
-20. Con la magia sexual tenebrosa y negativa del mago negro Omar Cherenzi Lind y del traidor Parsival Krumm-Heller, se fortifican los tres aires vitales, que luego al mezclarse con los átomos satánicos recogidos de los órganos sexuales, des-pués de la eyaculación Tántrica, se despierta la ígnea serpien-te en forma negativa.
+20. Con la magia sexual tenebrosa y negativa del mago negro Omar Cherenzi Lind y del traidor Parsival Krumm-Heller, se fortifican los tres aires vitales, que luego al mezclarse con los átomos satánicos recogidos de los órganos sexuales, después de la eyaculación Tántrica, se despierta la ígnea serpiente en forma negativa.
 
-21. Así es como los discípulos de Cherenzi y los discípulos del traidor Parsival, se separan de la divina TRÍADA y se con-vierten en demonios perversos.
+21. Así es como los discípulos de Cherenzi y los discípulos del traidor Parsival, se separan de la divina TRÍADA y se convierten en demonios perversos.
 
-22. Desde Sushumná, Idá y Pingalá, se establece un mo-vimiento de circulación Akáshica que fluye por todo el cuerpo.
+22. Desde Sushumná, Idá y Pingalá, se establece un movimiento de circulación Akáshica que fluye por todo el cuerpo.
 
 23. El campo magnético de la nariz, es un campo de batalla y un puesto de vigilancia.
 
-24. Los átomos defensores del organismo tienen allí sus puestos de vigilancia para impedir la entrada de átomos indo-lentes y malignos, que producen enfermedades.
+24. Los átomos defensores del organismo tienen allí sus puestos de vigilancia para impedir la entrada de átomos indolentes y malignos, que producen enfermedades.
 
-25. Los átomos transformativos y los átomos aspirantes de nuestro organismo, entran por ese campo magnético para po-nerse bajo servicio del átomo NOUS del corazón.
+25. Los átomos transformativos y los átomos aspirantes de nuestro organismo, entran por ese campo magnético para ponerse bajo servicio del átomo NOUS del corazón.
 
 26. Todo el proceso de las Grandes Iniciaciones se realiza en las secretas cámaras ardientes del canal de Sushumná.
 
 27. Las cuatro grandes iniciaciones de Misterios Mayores son: SROTAPANNA, SAKRIDAGAMIN, ANAGAMIN, ARHAN. Estos son los cuatro senderos que conducen al NIRVANA.
 
-28. Empero, el ARHAN aunque sea un Adepto, todavía de-be levantar su Quinta, Sexta y Séptima Serpiente de su divina TRÍADA eternal, para convertirse en un ARHAT de la “Niebla de Fuego”. 29- Estas son las siete Grandes Iniciaciones de Misterios Mayores.
+28. Empero, el ARHAN aunque sea un Adepto, todavía debe levantar su Quinta, Sexta y Séptima Serpiente de su divina TRÍADA eternal, para convertirse en un ARHAT de la “Niebla de Fuego”. 29- Estas son las siete Grandes Iniciaciones de Misterios Mayores.
 
-30. Son siete serpientes que debemos levantar practicando magia sexual intensamente con la mujer, o mediante la fuerza del sacrificio de una abstención sexual total y definitiva, como la de aquellos Yoguis auténticos que siguen la senda de per-fección, o como la de los místicos sublimes, Ramakrishna, Francisco de Asís o Antonio de Padua.
+30. Son siete serpientes que debemos levantar practicando magia sexual intensamente con la mujer, o mediante la fuerza del sacrificio de una abstención sexual total y definitiva, como la de aquellos Yoguis auténticos que siguen la senda de perfección, o como la de los místicos sublimes, Ramakrishna, Francisco de Asís o Antonio de Padua.
 
 31. Los Maestros de la séptima escala ardiente, están ya tan solo a un paso de la raíz fundamental de su Jerarquía.
 
@@ -3512,35 +3516,35 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 38. El KARMA no es obstáculo para ello, porque nosotros podemos pagar todas nuestras deudas, sacrificando hasta nuestra última gota de sangre en favor de todos los seres humanos que pueblan toda la faz de la tierra. 39- “He aquí, bienaventurado es el hombre a quien Dios castiga”.
 
-“Por tanto, no menosprecies la corrección del Todopodero-so”. (Ver. 17, Cap. 5. JOB).
+“Por tanto, no menosprecies la corrección del Todopoderoso”. (Ver. 17, Cap. 5. JOB).
 
 40. El que tiene capital con qué pagar, paga y sale bien en los negocios.
 
 41. Haz buenas obras para que pagues tus deudas.
 
-42. Cuando una ley inferior es trascendida por una ley su-perior, la ley superior lava a la ley inferior.
+42. Cuando una ley inferior es trascendida por una ley superior, la ley superior lava a la ley inferior.
 
 43. Al León de la Ley se combate con la balanza.
 
 44. Así pues, el hombre puede romper sus cadenas a la hora que quiera, subir las siete escalas ardientes y convertirse en un Dragón de la sabiduría, entre la “Niebla de Fuego”...
 
-45. El átomo primordial ANU, es el átomo más puro que en-tra, por el campo magnético de nuestra nariz, este átomo no puede ser multiplicado, en el estado pre-genético, ni primo-genético, es la suma total, omniabarcante, omnisciente, omni-presente, limitada y absolutamente divina.
+45. El átomo primordial ANU, es el átomo más puro que entra, por el campo magnético de nuestra nariz, este átomo no puede ser multiplicado, en el estado pre-genético, ni primogenético, es la suma total, omniabarcante, omnisciente, omnipresente, limitada y absolutamente divina.
 
-46. Sobre este átomo se fundamenta toda actividad atómi-ca del campo magnético de la nariz y del chakra MULADHARA.
+46. Sobre este átomo se fundamenta toda actividad atómica del campo magnético de la nariz y del chakra MULADHARA.
 
 47. FOHAT, selecciona los átomos que han de penetrar por nuestras fosas nasales.
 
 48. FOHAT combina los distintos elementos atómicos para nuestros fines divinales.
 
-49. Cada ser humano posee su FOHAT PROPIO; cada mundo cósmico posee su FOHAT propio, y la suma total de todos los FOHATS constituye un FOHAT Universal, el fuego universal de vida, cuyas inteligentes llamas combinan los ele-mentos atómicos del espacio para fecundar la materia Caótica.
+49. Cada ser humano posee su FOHAT PROPIO; cada mundo cósmico posee su FOHAT propio, y la suma total de todos los FOHATS constituye un FOHAT Universal, el fuego universal de vida, cuyas inteligentes llamas combinan los elementos atómicos del espacio para fecundar la materia Caótica.
 
 50. “La madre duerme, aunque siempre está respirando”. 51- Cada átomo del Cosmos está condenado a incesantes diferenciaciones; sólo ANU no admite diferenciaciones.
 
-52. “El aliento del Padre-Madre sale frío y radiante, y se ca-lienta y corrompe, para enfriarse de nuevo y ser purificado en el eterno seno del espacio interno”.
+52. “El aliento del Padre-Madre sale frío y radiante, y se calienta y corrompe, para enfriarse de nuevo y ser purificado en el eterno seno del espacio interno”.
 
-53. Todo respira. Todo fluye y refluye, todo exhala y absor-be.
+53. Todo respira. Todo fluye y refluye, todo exhala y absorbe.
 
-54. Todo fenómeno de respiración se funda en la respira-ción del Absoluto.
+54. Todo fenómeno de respiración se funda en la respiración del Absoluto.
 
 55. El ABSOLUTO exhala y absorbe.
 
@@ -3550,13 +3554,13 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 58. Esa respiración del ABSOLUTO se repite en el átomo, se repite en la hormiga, se repite en el águila y en el hombre.
 
-59. Todo fluye y refluye, todo va y viene, todo pulsa y re-pulsa con este ritmo de la respiración divina.
+59. Todo fluye y refluye, todo va y viene, todo pulsa y repulsa con este ritmo de la respiración divina.
 
-60. Durante las primeras dinastías de los faraones del viejo Egipto, recibí yo la clave de la Magia Sexual, en el salón sa-grado de una vieja pirámide calcinada por el sol del desierto.
+60. Durante las primeras dinastías de los faraones del viejo Egipto, recibí yo la clave de la Magia Sexual, en el salón sagrado de una vieja pirámide calcinada por el sol del desierto.
 
 61. El Maestro, vestido con su blanca túnica, estaba de pie, junto a un vástago vertical que como símbolo, representaba el Phalo.
 
-62. Con esa voz sobria y austera de los viejos Hierofantes, me instruía detenidamente sobre los grandes misterios del sexo. 63- Yo sentado en un sillón, escuchaba atento al Hierofan-te...
+62. Con esa voz sobria y austera de los viejos Hierofantes, me instruía detenidamente sobre los grandes misterios del sexo. 63- Yo sentado en un sillón, escuchaba atento al Hierofante...
 
 64. Luego, dirigiendo sus ojos penetrantes hacia mí, con voz recia y autoritaria, díjome: “Descúbrete el CHE-CHE-RE”. Yo descubrí entonces mi órgano sexual, y el Maestro, de labio a oído, me comunicó el secreto indecible del Gran Arcano, que consiste en conectarse sexualmente con la mujer, y retirarse de ella sin eyaculación seminal, es decir, refrenando el acto.
 
@@ -3564,31 +3568,31 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 66. “Esto es maravilloso”, exclamé.
 
-67. Aquel que violaba el secreto indecible del Gran Arcano, era condenado a pena de muerte, se le cortaba su cabeza, se le arrancaba el corazón y sus cenizas eran echadas a los cua-tro vientos.
+67. Aquel que violaba el secreto indecible del Gran Arcano, era condenado a pena de muerte, se le cortaba su cabeza, se le arrancaba el corazón y sus cenizas eran echadas a los cuatro vientos.
 
-68. Al no ser derramado el semen, el deseo refrenado hace subir nuestra energía seminal llena de billonadas de átomos Crísticos, que iluminan con su luz y su esplendor los tres cana-les por donde circula el Akasha puro.
+68. Al no ser derramado el semen, el deseo refrenado hace subir nuestra energía seminal llena de billonadas de átomos Crísticos, que iluminan con su luz y su esplendor los tres canales por donde circula el Akasha puro.
 
-69. La mezcla de los átomos Crísticos, resultantes de nues-tro semen transmutado en energía, al combinarse con el Akasha puro, despierta el kundalini positivamente, y se abre paso hacia arriba, hacia Brahmarandra, a través de las treinta y tres cámaras de nuestra columna espinal; así es como se logra el ADEPTADO.
+69. La mezcla de los átomos Crísticos, resultantes de nuestro semen transmutado en energía, al combinarse con el Akasha puro, despierta el kundalini positivamente, y se abre paso hacia arriba, hacia Brahmarandra, a través de las treinta y tres cámaras de nuestra columna espinal; así es como se logra el ADEPTADO.
 
-70. Yo me eduqué a los pies de los grandes Hierofantes de las pirámides, y conocí la antigua sabiduría de los viejos sa-bios de los templos de Misterios...
+70. Yo me eduqué a los pies de los grandes Hierofantes de las pirámides, y conocí la antigua sabiduría de los viejos sabios de los templos de Misterios...
 
 71. Por ello, cuando hoy en día veo a estos hombrecillos del siglo veinte fornicando “místicamente”, no puedo menos que sentir infinita piedad por ellos...
 
-72. El aliento Akáshico penetra por nuestras fosas nasales y desciende por nuestro cordón Brahmánico. 73- Cuando Akasha es reforzado por nuestra voluntad, y por la voluntad de las Jerarquías cósmicas, desciende desde arriba, desde el cielo de Urania, y se precipita en las profundi-dades de nuestra Caña, produciendo el sonido sibilante de la Sssss.
+72. El aliento Akáshico penetra por nuestras fosas nasales y desciende por nuestro cordón Brahmánico. 73- Cuando Akasha es reforzado por nuestra voluntad, y por la voluntad de las Jerarquías cósmicas, desciende desde arriba, desde el cielo de Urania, y se precipita en las profundidades de nuestra Caña, produciendo el sonido sibilante de la Sssss.
 
 74. Y al chocar el aliento Akáshico con las corrientes solar y lunar, y con los átomos Crísticos que componen el kundalini, entonces el fuego sagrado sube una vértebra más, un cañón más, en su ascenso por los treinta y tres Cañones, hasta Brahmarandra.
 
-75. Si el aliento Akáshico, reforzado por la voluntad, al des-cender por nuestro Cordón Brahmánico, en lugar de átomos de fornicación, átomos satánicos recogidos de los infiernos del hombre con los movimientos de contracción genitales, que se suceden a la eyaculación seminal, entonces del choque de Alaska con los átomos satánicos, vendría el despertar del kundalini en forma negativa, y un átomo satánico que reside en el muladhara entraría en actividad controlando el kundalini, haciéndolo descender desde el coxis hacia abajo, hacia los infiernos atómicos del hombre, para formar la famosa cola con que se ha representado a Satán.
+75. Si el aliento Akáshico, reforzado por la voluntad, al descender por nuestro Cordón Brahmánico, en lugar de átomos de fornicación, átomos satánicos recogidos de los infiernos del hombre con los movimientos de contracción genitales, que se suceden a la eyaculación seminal, entonces del choque de Alaska con los átomos satánicos, vendría el despertar del kundalini en forma negativa, y un átomo satánico que reside en el muladhara entraría en actividad controlando el kundalini, haciéndolo descender desde el coxis hacia abajo, hacia los infiernos atómicos del hombre, para formar la famosa cola con que se ha representado a Satán.
 
-76. Por la eyaculación seminal aconsejada por el mago ne-gro Omar Cherenzi Lind, y por el extraviado y tenebroso Parsi-val Krumm-Heller, los órganos sexuales recogen por contrac-ción genital, átomos satánicos del enemigo secreto, que, al intentar ascender hacia arriba, hacia Urania, son rechazados violentamente por el aliento Akáshico, que los precipita hacia abajo, hacia el Coxis, para despertar el mulhadara negativa-mente, y hacer entrar en actividad a cierto átomo del enemigo secreto, el cual, ejerce entonces control sobre el kundalini, dirigiéndolo hacia abajo, hacia mundos sumergidos de con-ciencia, formándose la famosa cola de los demonios.
+76. Por la eyaculación seminal aconsejada por el mago negro Omar Cherenzi Lind, y por el extraviado y tenebroso Parsival Krumm-Heller, los órganos sexuales recogen por contracción genital, átomos satánicos del enemigo secreto, que, al intentar ascender hacia arriba, hacia Urania, son rechazados violentamente por el aliento Akáshico, que los precipita hacia abajo, hacia el Coxis, para despertar el mulhadara negativamente, y hacer entrar en actividad a cierto átomo del enemigo secreto, el cual, ejerce entonces control sobre el kundalini, dirigiéndolo hacia abajo, hacia mundos sumergidos de conciencia, formándose la famosa cola de los demonios.
 
-77. Así es como los discípulos de los magos negros se se-paran de la divina TRÍADA, formada por ATMAN - BUDDHI - MANAS, y se convierten en personalidades tántricas del abis-mo. 78- El Akasha no es el Éter, como muchos creen.
+77. Así es como los discípulos de los magos negros se separan de la divina TRÍADA, formada por ATMAN - BUDDHI - MANAS, y se convierten en personalidades tántricas del abismo. 78- El Akasha no es el Éter, como muchos creen.
 
 79. El Akasha es la causa del sonido, la causa espiritual del verbo, el Anima-Mundi, lo Divinal, las Jerarquías divinas, cuyo aliento entra por el campo magnético de nuestra nariz.
 
 80. En consecuencia, dicen las sagradas escrituras, que Dios sopló aliento de vida en la nariz de ADÁN, y le infundió alma viviente.
 
-81. “Firmo, pues, Jehová Dios al hombre del polvo de la tie-rra, y alentó en su nariz soplo de vida; y fue el hombre en alma viviente”. (Vers. 7, Cap. 2: GENESIS).
+81. “Firmo, pues, Jehová Dios al hombre del polvo de la tierra, y alentó en su nariz soplo de vida; y fue el hombre en alma viviente”. (Vers. 7, Cap. 2: GENESIS).
 
 ## CAPÍTULO XXIX
 
@@ -3612,7 +3616,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 8. Canta, corazón, porque la mente avanza entre el fuego abrasador con dirección a ti... 9- Canta, corazón, porque ahora la sabiduría se convertirá en amor...
 
-10. Habéis entrado en la cámara santa del campo magnéti-co de la raíz de la nariz...
+10. Habéis entrado en la cámara santa del campo magnético de la raíz de la nariz...
 
 11. El templo está de fiesta, hijo mío, porque el barco de tu mente está volviendo desde la otra orilla a las playas inefables del Edén, donde los ríos de agua pura de la vida manan leche y miel...
 
@@ -3620,11 +3624,11 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 13. Canta, corazón... canta, porque tu barco velero avanza hacia el puerto de la luz...
 
-14. Canta, corazón, porque tu mente ya se liberto de toda clase de escuelas, religiones, órdenes, sectas, logias, aulas, conceptos de patria y de bandera, prejuicios, apetencias, te-mores, odios, envidias, intelectualismos, sofismas, teorías, etc.
+14. Canta, corazón, porque tu mente ya se liberto de toda clase de escuelas, religiones, órdenes, sectas, logias, aulas, conceptos de patria y de bandera, prejuicios, apetencias, temores, odios, envidias, intelectualismos, sofismas, teorías, etc.
 
 15. El intelectualismo sólo puede conducir a los hombres a la magia negra, pues va acompañado siempre de orgullo y de egoísmo.
 
-16. ¿No son acaso los orgullosos, no son acaso los erudi-tos del espiritualismo, aquellos que siempre nos han atacado y criticado y que iracundos han despedazado nuestras obras?
+16. ¿No son acaso los orgullosos, no son acaso los eruditos del espiritualismo, aquellos que siempre nos han atacado y criticado y que iracundos han despedazado nuestras obras?
 
 17. El intelecto por si mismo, sólo conduce a los hombres a la magia negra.
 
@@ -3634,9 +3638,9 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 20. Los poderes de los Maestros dimanan de su pureza de vida y de los méritos del corazón. 21- Los poderes de un Maestro dimanan de su Dios interno, y de la armonía con la naturaleza y con la ley.
 
-22. Después de cada reencarnación, cuando el EGO per-sonal se restituye a su divina TRÍADA eternal, y abandona el cuerpo mental, éste se desintegra y sus átomos quedan es-parcidos en el plano mental.
+22. Después de cada reencarnación, cuando el EGO personal se restituye a su divina TRÍADA eternal, y abandona el cuerpo mental, éste se desintegra y sus átomos quedan esparcidos en el plano mental.
 
-23. Estos átomos mentales son atraídos nuevamente cuando el INTIMO vuelve a reconstruir su nuevo cuerpo men-tal para ingresar por las puertas de una nueva reencarnación a la escuela de la vida.
+23. Estos átomos mentales son atraídos nuevamente cuando el INTIMO vuelve a reconstruir su nuevo cuerpo mental para ingresar por las puertas de una nueva reencarnación a la escuela de la vida.
 
 24. Estos átomos Manásicos, “causas” Tánhicas y de otra clase, son de la naturaleza misma del Manas, es decir, de la naturaleza misma del cuerpo mental, y vienen a componer las estructuras atómicas de este nuevo cuerpo mental.
 
@@ -3646,7 +3650,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 27. Cuando estos átomos de la mente se han unido con el INTIMO mediante el fuego de la cuarta serpiente, entonces ya nos libertamos de la rueda de nacimientos y de muertes.
 
-28. No obstante, para ser NIRVANI SIN RESIDUOS, de-bemos libertarnos, tanto del buen karma como del mal karma.
+28. No obstante, para ser NIRVANI SIN RESIDUOS, debemos libertarnos, tanto del buen karma como del mal karma.
 
 29. No debemos deber, ni que nos deban.
 
@@ -3656,17 +3660,17 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 32. Debemos pasar más allá del bien y del mal, debemos pasar más allá de la inteligencia, y aun más allá de las esferas inefables del amor. 33- A esas cumbres de la luz, sólo podemos subir por las gradas del amor y del sacrificio.
 
-34. Debemos hacer mucho bien, por amor a la humani-dad...
+34. Debemos hacer mucho bien, por amor a la humanidad...
 
 35. Así pagamos nuestras deudas...
 
-36. Más tarde, los Señores de la Ley también deberán pa-garnos el saldo a favor...
+36. Más tarde, los Señores de la Ley también deberán pagarnos el saldo a favor...
 
-37. Al fin, nos libertaremos del buen karma y del mal kar-ma, y nos convertiremos en NIRVANIS SIN RESIDUOS...
+37. Al fin, nos libertaremos del buen karma y del mal karma, y nos convertiremos en NIRVANIS SIN RESIDUOS...
 
 38. La mente debe unirse con su divina TRÍADA, junto con los extractos anímicos de los vehículos astral, vital y físico.
 
-39. Así es como nuestra TRÍADA es reforzada por su cua-ternario inferior.
+39. Así es como nuestra TRÍADA es reforzada por su cuaternario inferior.
 
 40. El MANAS inferior, junto con KAMAS FRANA y LINGA, refuerza a la divina TRÍADA, mediante el fuego.
 
@@ -3674,7 +3678,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 42. Cuando ya el ser humano es capaz de conversar con su INTIMO, frente a frente, cara a cara, ha llegado al estado de TURIYA.
 
-43. Muchos se preguntan: ¿Cómo es el INTIMO? ¿Qué fi-gura tiene?, etc.
+43. Muchos se preguntan: ¿Cómo es el INTIMO? ¿Qué figura tiene?, etc.
 
 44. Mientras más humilde y sencilla una persona, más fácilmente puede comprender la naturaleza de nuestra divina TRÍADA eternal.
 
@@ -3688,23 +3692,23 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 1. El camino ígneo que va del entrecejo al corazón, está gobernado por un Dios atómico de infinito poder.
 
-2. Avanzad con firme paso hacia la segunda cámara de es-te camino ardiente, ¡OH ARHAT!
+2. Avanzad con firme paso hacia la segunda cámara de este camino ardiente, ¡OH ARHAT!
 
 3. Finas tentaciones te asedian...
 
-4. Se te ofrecen licores y placeres, aparentemente ineludi-bles.
+4. Se te ofrecen licores y placeres, aparentemente ineludibles.
 
 5. El monstruo verde de los celos te asalta sutilmente en el mundo del entendimiento cósmico, donde tu mente flamea abrasadoramente...
 
 6. ¡Avanza ARHAT y permanece alerta y vigilante como el vigía en época de guerra...
 
-7. Este camino ardiente, que va del entrecejo al corazón, es muy angosto, muy difícil, y está lleno de sutilísimas tentacio-nes.
+7. Este camino ardiente, que va del entrecejo al corazón, es muy angosto, muy difícil, y está lleno de sutilísimas tentaciones.
 
-8. Lo más peligroso es el pasado doloroso de tu vida, mez-clado con sutiles tentaciones…
+8. Lo más peligroso es el pasado doloroso de tu vida, mezclado con sutiles tentaciones…
 
-9. Tienes que permanecer firme contra esos sutiles peli-gros...
+9. Tienes que permanecer firme contra esos sutiles peligros...
 
-10. Mientras más fina es una tentación, resulta más peli-grosa...
+10. Mientras más fina es una tentación, resulta más peligrosa...
 
 11. Durante estas pruebas, debes demostrar el equilibrio total de la mente y del corazón. 12- Te acercas a la segunda cámara del ígneo camino que va desde el entrecejo hasta el corazón.
 
@@ -3718,7 +3722,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 17. Entra en tu cámara, hijo mío, para celebrar tu fiesta. Eres un NIRVANI.
 
-18. Habéis entrado en la dicha inefable del NIRVANA, y to-das las jerarquías divinas están llenas de alegría por tu triunfo.
+18. Habéis entrado en la dicha inefable del NIRVANA, y todas las jerarquías divinas están llenas de alegría por tu triunfo.
 
 19. Sois ahora un Bienaventurado...
 
@@ -3726,7 +3730,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 # LA LARINGE CREADORA
 
-1. Habéis llegado ahora a la flor resplandeciente de tu la-ringe creadora.
+1. Habéis llegado ahora a la flor resplandeciente de tu laringe creadora.
 
 2. El verbo de los Dioses se expresa a través de la laringe creadora.
 
@@ -3738,27 +3742,27 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 6. Este es también el nombre del SOL central.
 
-7. Puede vocalizarse cada una de estas letras, en el si-guiente orden: Ssssss Uuuuuu Luuuuu - ssssss gggggg iiiiii - ssssss iiiiii gggggg. 8- Se vocalizará letra por letra, alargando el sonido de cada letra, tal como aquí lo acabamos de indicar.
+7. Puede vocalizarse cada una de estas letras, en el siguiente orden: Ssssss Uuuuuu Luuuuu - ssssss gggggg iiiiii - ssssss iiiiii gggggg. 8- Se vocalizará letra por letra, alargando el sonido de cada letra, tal como aquí lo acabamos de indicar.
 
-9. Lo importante es prolongar el sonido de cada vocal. La vocal S es como un silbido dulce y apacible. Ya la Biblia nos habla de ese silbido dulce y apacible, en los siguientes versí-culos:
+9. Lo importante es prolongar el sonido de cada vocal. La vocal S es como un silbido dulce y apacible. Ya la Biblia nos habla de ese silbido dulce y apacible, en los siguientes versículos:
 
-10. “Y él le dijo: Sal fuera, y ponte en el monte delante de Jehová. Y he aquí Jehová que pasaba, y un grande y podero-so viento que rompía los montes, y quebraba las peñas delan-te de Jehová: más Jehová no estaba en el viento. Y tras el viento un terremoto: más Jehová no estaba en el terremoto.
+10. “Y él le dijo: Sal fuera, y ponte en el monte delante de Jehová. Y he aquí Jehová que pasaba, y un grande y poderoso viento que rompía los montes, y quebraba las peñas delante de Jehová: más Jehová no estaba en el viento. Y tras el viento un terremoto: más Jehová no estaba en el terremoto.
 
 “Y tras el terremoto un fuego: más Jehová no estaba en el fuego. Y tras el fuego, un silbido apacible y delicado.
 
-“Y cuando lo oyó Elías, cubrió su rostro con su manto y sa-lió, y paróse a la puerta de la cueva. Y he aquí llego una voz a él diciendo: ¿Qué haces aquí, ELÍAS? (Vers. 11, 12, 13. Cap. 19: Reyes).”
+“Y cuando lo oyó Elías, cubrió su rostro con su manto y salió, y paróse a la puerta de la cueva. Y he aquí llego una voz a él diciendo: ¿Qué haces aquí, ELÍAS? (Vers. 11, 12, 13. Cap. 19: Reyes).”
 
 11. La S como Mantram, nos permite salir de nuestra cueva (el centro físico) y entrar en el monte (el plano astral).
 
 12. La vocal S, es un Mantram para salir en cuerpo astral.
 
-13. Adormézcase el discípulo, haciendo resonar con sus labios el sonido dulce y apacible de la S, y cuando ya se halle en ese estado de transición de la vigilia al sueño, levántese de su cama y salga de su cuarto, en dirección a la Iglesia Gnósti-ca.
+13. Adormézcase el discípulo, haciendo resonar con sus labios el sonido dulce y apacible de la S, y cuando ya se halle en ese estado de transición de la vigilia al sueño, levántese de su cama y salga de su cuarto, en dirección a la Iglesia Gnóstica.
 
-14. Allí nosotros le enseñaremos e instruiremos en la sabi-duría divina.
+14. Allí nosotros le enseñaremos e instruiremos en la sabiduría divina.
 
 15. Empero, debemos aclarar a nuestros discípulos, que esta explicación que acabamos de dar, debe traducirse en acción inmediata.
 
-16. Debe el estudiante levantarse de su lecho, con tanta naturalidad como lo haría un niño que no supiera ocultismo. No es práctica mental, y debe traducirse en hechos concretos, como cuando se levanta uno por la mañana a tomar el des-ayuno.
+16. Debe el estudiante levantarse de su lecho, con tanta naturalidad como lo haría un niño que no supiera ocultismo. No es práctica mental, y debe traducirse en hechos concretos, como cuando se levanta uno por la mañana a tomar el desayuno.
 
 17. La vocal S tiene un poder terrible.
 
@@ -3770,7 +3774,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 21. El kundalini le da a la laringe todo el poder omnipotente del verbo creador.
 
-22. Lo importante es aprender a manejar el principio feme-nino de las fuerzas solares.
+22. Lo importante es aprender a manejar el principio femenino de las fuerzas solares.
 
 23. Las fuerzas solares femeninas están simbolizadas por un águila con cabeza de mujer.
 
@@ -3778,117 +3782,117 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 25. Debemos realizar en nosotros al CRISTO, para parlar el verbo creador, empero esto solamente es posible aprendiendo a manipular el principio femenino del sol...
 
-26. Sin embargo, sabemos que la magia sexual es muy ar-dua y muy difícil para los hombres de voluntad débil, y por ello recomendamos a nuestros discípulos, practicar primero los ejercicios de la Runa THOROS para adquirir la fuerza de vo-luntad que les permita manipular con heroísmo la magia sexual.
+26. Sin embargo, sabemos que la magia sexual es muy ardua y muy difícil para los hombres de voluntad débil, y por ello recomendamos a nuestros discípulos, practicar primero los ejercicios de la Runa THOROS para adquirir la fuerza de voluntad que les permita manipular con heroísmo la magia sexual.
 
-27. Este ejercicio se realizará poniendo el discípulo su ma-no derecha sobre la cintura o cadera, y luego vocalizará las sílabas: TI-TE-TO-TU-TA, alargando el sonido de cada vocal. Enseguida vocalizará el Mantram THORN, así: Tooooo-orrrrrrrrrnnnnnnnnn. 28- Con este ejercicio practicado diariamente, adquirirá el discípulo una poderosa fuerza de voluntad, con la cual podrá practicar magia sexual y dominar la bestia pasional.
+27. Este ejercicio se realizará poniendo el discípulo su mano derecha sobre la cintura o cadera, y luego vocalizará las sílabas: TI-TE-TO-TU-TA, alargando el sonido de cada vocal. Enseguida vocalizará el Mantram THORN, así: Toooooorrrrrrrrrnnnnnnnnn. 28- Con este ejercicio practicado diariamente, adquirirá el discípulo una poderosa fuerza de voluntad, con la cual podrá practicar magia sexual y dominar la bestia pasional.
 
 29. La fuerza de la voluntad esta simbolizada por la corona de espinas del Nazareno.
 
 30. Hay que golpear fuertemente el duro pedernal para hacer saltar la chispa de la inmortalidad.
 
-31. La fuerza de la voluntad es la fuerza tremenda del sa-crificio... es la corona de espinas del Maestro.
+31. La fuerza de la voluntad es la fuerza tremenda del sacrificio... es la corona de espinas del Maestro.
 
-32. La voluntad y el movimiento del kundalini, están ínti-mamente unidos.
+32. La voluntad y el movimiento del kundalini, están íntimamente unidos.
 
-33. La fuerza de la voluntad es la Runa ESPINA, y el mo-vimiento esta simbolizado por el signo OLIN de los mejicanos aztecas.
+33. La fuerza de la voluntad es la Runa ESPINA, y el movimiento esta simbolizado por el signo OLIN de los mejicanos aztecas.
 
-34. Las Runas ESPINA y MOVIMIENTO, encierran el se-creto de nuestra liberación.
+34. Las Runas ESPINA y MOVIMIENTO, encierran el secreto de nuestra liberación.
 
-35. Hay que tener fuerza de voluntad para poner en movi-miento el kundalini.
+35. Hay que tener fuerza de voluntad para poner en movimiento el kundalini.
 
-36. Las Jerarquías relacionadas con el departamento ele-mental de los cedros, tienen el poder de abrir la puerta de OLIN.
+36. Las Jerarquías relacionadas con el departamento elemental de los cedros, tienen el poder de abrir la puerta de OLIN.
 
 37. Esa puerta esta situada en el orificio inferior de la médula espinal, y por ella entramos en los grandes misterios del fuego.
 
-38. El Mantram para abrir esa puerta es THORN que se pronuncia alargando el sonido de cada vocal, así: Toooo-orrrrrrrnnnn.
+38. El Mantram para abrir esa puerta es THORN que se pronuncia alargando el sonido de cada vocal, así: Tooooorrrrrrrnnnn.
 
-39. El Mantram THORN tiene el poder de poner en movi-miento el Akasha puro, para despertar el Kundalini y hacerlo subir a través de cada una de las treinta y tres vértebras de nuestra columna espinal. 40- Este Mantram tiene el poder de reforzar el Akasha puro, dentro de nuestro cordón Brahmánico.
+39. El Mantram THORN tiene el poder de poner en movimiento el Akasha puro, para despertar el Kundalini y hacerlo subir a través de cada una de las treinta y tres vértebras de nuestra columna espinal. 40- Este Mantram tiene el poder de reforzar el Akasha puro, dentro de nuestro cordón Brahmánico.
 
 41. OLIN, el signo sagrado de los indios aztecas, es la puerta de entrada a los grandes misterios del fuego.
 
-42. Los ejercicios de OLIN se harán colocando el brazo de-recho en la cintura; luego se bajarán ambos brazos, por el lado izquierdo, y por último, se pondrán sobre la cintura ambos bra-zos, vocalizando el Mantram THORN.
+42. Los ejercicios de OLIN se harán colocando el brazo derecho en la cintura; luego se bajarán ambos brazos, por el lado izquierdo, y por último, se pondrán sobre la cintura ambos brazos, vocalizando el Mantram THORN.
 
-43. Debe vocalizarse, haciendo inhalaciones y exhalacio-nes de aire puro, con la intención de llevar el Cristo vital a ca-da uno de los siete cuerpos.
+43. Debe vocalizarse, haciendo inhalaciones y exhalaciones de aire puro, con la intención de llevar el Cristo vital a cada uno de los siete cuerpos.
 
 44. El signo de OLIN está gobernado por el signo Scorpio, el cual rige los órganos sexuales.
 
-45. Ya sabemos, que todo el poder del kundalini se halla encerrado en el Phalo y en el Útero, y que en la unión de am-bos esta el secreto para despertar el kundalini.
+45. Ya sabemos, que todo el poder del kundalini se halla encerrado en el Phalo y en el Útero, y que en la unión de ambos esta el secreto para despertar el kundalini.
 
-46. En cierta ocasión, conferenciando con un Maestro de la Gran Jerarquía Blanca, tocó mis órganos sexuales para exa-minarme. Entonces sentí en todo mi cuerpo como el choque de una descarga eléctrica, y el Maestro se alegró mucho y me dijo: VAIS MUY BIEN.
+46. En cierta ocasión, conferenciando con un Maestro de la Gran Jerarquía Blanca, tocó mis órganos sexuales para examinarme. Entonces sentí en todo mi cuerpo como el choque de una descarga eléctrica, y el Maestro se alegró mucho y me dijo: VAIS MUY BIEN.
 
-47. La naturaleza tiene su origen en el fuego y todo el po-der del fuego se halla encerrado en nuestros órganos sexua-les.
+47. La naturaleza tiene su origen en el fuego y todo el poder del fuego se halla encerrado en nuestros órganos sexuales.
 
-48. El Maestro HUIRACOCHA en su curso de Magia Rúni-ca, enseña todas estas cosas, empero las Runas sagradas no son propiedad del Maestro HUIRACOCHA, pues este conoci-miento es tan antiguo como el mundo y pertenece a las gran-des Escuelas de Misterios Internos.
+48. El Maestro HUIRACOCHA en su curso de Magia Rúnica, enseña todas estas cosas, empero las Runas sagradas no son propiedad del Maestro HUIRACOCHA, pues este conocimiento es tan antiguo como el mundo y pertenece a las grandes Escuelas de Misterios Internos.
 
-49. No podemos aceptar aquella afirmación del Maestro Huiracocha de que los negros ni los amarillos puedan pertene-cer a la LOGIA BLANCA, porque esta es únicamente para la gente de raza blanca. 50- Esta clase de prejuicios raciales no podemos aceptarla, porque la LOGIA BLANCA es universal.
+49. No podemos aceptar aquella afirmación del Maestro Huiracocha de que los negros ni los amarillos puedan pertenecer a la LOGIA BLANCA, porque esta es únicamente para la gente de raza blanca. 50- Esta clase de prejuicios raciales no podemos aceptarla, porque la LOGIA BLANCA es universal.
 
 51. En nuestra venerable LOGIA BLANCA hay Maestros de todas las razas. No debemos olvidar que los Maestros MORIA y K-H son de raza amarilla.
 
 52. La raza blanca no es ni superior ni inferior a las otras, sino sencillamente diferente, eso es todo...
 
-53. Tampoco estamos de acuerdo nosotros con aquel des-precio que Huiracocha siente por la sabiduría oriental.
+53. Tampoco estamos de acuerdo nosotros con aquel desprecio que Huiracocha siente por la sabiduría oriental.
 
 54. Cristo enseñó tres caminos para llegar a la unión con el INTIMO.
 
-55. Cuando predicaba a las multitudes, cuando se exaltaba místicamente, nos mostró el camino de Ramakrishna, el cami-no de Kempis y el camino de Francisco de Asís. Este es el sendero de Antonio de Padua y de Teresa de Jesús. Este es el sendero Místico.
+55. Cuando predicaba a las multitudes, cuando se exaltaba místicamente, nos mostró el camino de Ramakrishna, el camino de Kempis y el camino de Francisco de Asís. Este es el sendero de Antonio de Padua y de Teresa de Jesús. Este es el sendero Místico.
 
-56. Cuando andaba entre publicanos y pescadores y bebe-dores de vino, con Magdala la prostituta arrepentida, nos mostró el sendero Gnóstico.
+56. Cuando andaba entre publicanos y pescadores y bebedores de vino, con Magdala la prostituta arrepentida, nos mostró el sendero Gnóstico.
 
 57. Cuando se retiro a la soledad del desierto, cuarenta días con sus noches, enseñó el camino de la Yoga oriental.
 
-58. Los siete rayos de evolución cósmica, se reducen a es-tos tres caminos que mostró el Nazareno.
+58. Los siete rayos de evolución cósmica, se reducen a estos tres caminos que mostró el Nazareno.
 
 59. Así pues, no podemos despreciar la sabiduría oriental...
 
-60. Todos los INTIMOS humanos, sujetos a la rueda de na-cimientos y de muertes, pertenecen a estos tres caminos.
+60. Todos los INTIMOS humanos, sujetos a la rueda de nacimientos y de muertes, pertenecen a estos tres caminos.
 
-61. Con todo, sostenemos que la magia sexual entre hom-bre y mujer, es el camino para llegar al NIRVANA.
+61. Con todo, sostenemos que la magia sexual entre hombre y mujer, es el camino para llegar al NIRVANA.
 
 62. No podemos aceptar por ningún motivo los prejuicios raciales del Maestro Huiracocha. 63- Dios no tiene preferencia con nadie. Todos los seres humanos, sin distinción de raza, sexo, casta o color, son hijos amados del PADRE y tienen los mismos derechos.
 
-64. Tampoco podemos aceptar la absurda tesis de Huira-cocha, de que es un pecado que un hombre de una raza que se case con una mujer de otra raza, y que los hijos bastardos sean hijos del diablo.
+64. Tampoco podemos aceptar la absurda tesis de Huiracocha, de que es un pecado que un hombre de una raza que se case con una mujer de otra raza, y que los hijos bastardos sean hijos del diablo.
 
-65. Reconocemos que el Maestro Huiracocha es un GURÚ de la Fraternidad Universal Blanca, y me consta que es Arzo-bispo de la Iglesia Gnóstica, pero cuando hizo el esas afirma-ciones en su Curso de Magia-Rúnica, se equivoco lamenta-blemente.
+65. Reconocemos que el Maestro Huiracocha es un GURÚ de la Fraternidad Universal Blanca, y me consta que es Arzobispo de la Iglesia Gnóstica, pero cuando hizo el esas afirmaciones en su Curso de Magia-Rúnica, se equivoco lamentablemente.
 
 66. No hay duda de que, si el Gurú Huiracocha tuviera cuerpo físico rectificaría esos errores, porque del hombre es el errar y del necio, permanecer en el error.
 
 67. “Sed TÚ, oh HADIT, el secreto Gnóstico de mi SER, el punto céntrico de mi conexión y florece en mis labios fecundos hecho verbo”.
 
-68. Cuando el kundalini del cuerpo mental llega a esta rosa ígnea de la laringe creadora, resuena en los mundos internos una trompeta del templo y entramos en él para celebrar la fies-ta...
+68. Cuando el kundalini del cuerpo mental llega a esta rosa ígnea de la laringe creadora, resuena en los mundos internos una trompeta del templo y entramos en él para celebrar la fiesta...
 
 69. Todos los seres humanos: blancos, negros, amarillos, rojos, cobrizos, tienen derecho a parlar el verbo de la luz y de formar parte de la Gran Fraternidad Universal Blanca, porque todos somos hijos muy amados del Padre.
 
-70. Dios no tiene preferencia con nadie, de la propia mane-ra cuida al hombre y a la hormiga, al ave y al reptil.
+70. Dios no tiene preferencia con nadie, de la propia manera cuida al hombre y a la hormiga, al ave y al reptil.
 
-71. Dios no tiene prejuicios raciales y ama con un amor in-finito a todos sus hijos sin distinción de raza, sexo, casta o color. 72- Debemos amar a todos los seres humanos, dar hasta nuestra última gota de sangre por todos nuestros hermanos de esta gran familia humana.
+71. Dios no tiene prejuicios raciales y ama con un amor infinito a todos sus hijos sin distinción de raza, sexo, casta o color. 72- Debemos amar a todos los seres humanos, dar hasta nuestra última gota de sangre por todos nuestros hermanos de esta gran familia humana.
 
 73. A mí me critican los malvados, porque enseño a la humanidad la doctrina secreta de los Gnósticos.
 
 74. Difundo todas las enseñanzas esotéricas para salvar a todos mis hermanos de la humanidad.
 
-75. Todo lo que yo sé es para mis hermanos y estoy dis-puesto a enseñarles las cosas más sagradas del Universo para que entren al Edén, como yo entré.
+75. Todo lo que yo sé es para mis hermanos y estoy dispuesto a enseñarles las cosas más sagradas del Universo para que entren al Edén, como yo entré.
 
 ## CAPÍTULO XXXII
 
 # LA CUARTA CÁMARA
 
-1. Habéis llegado a la cuarta cámara del estrecho camino que va del entrecejo al corazón. Esta cámara está situada de-bajo de la glándula tiroides, arriba del esternón, parte superior de la caja toráxica.
+1. Habéis llegado a la cuarta cámara del estrecho camino que va del entrecejo al corazón. Esta cámara está situada debajo de la glándula tiroides, arriba del esternón, parte superior de la caja toráxica.
 
-2. Finas tentaciones te han asaltado en el mundo del en-tendimiento cósmico. Habéis comprendido cómo el delito se esconde dentro de la misma espiritualidad.
+2. Finas tentaciones te han asaltado en el mundo del entendimiento cósmico. Habéis comprendido cómo el delito se esconde dentro de la misma espiritualidad.
 
-3. Habéis entendido que en el incienso de la oración tam-bién se esconde el delito.
+3. Habéis entendido que en el incienso de la oración también se esconde el delito.
 
-4. Ya habéis visto, cómo entre el Pleroma de una Fraterni-dad Espiritual, también se esconde el delito.
+4. Ya habéis visto, cómo entre el Pleroma de una Fraternidad Espiritual, también se esconde el delito.
 
-5. Ya viste hermano mío, cómo de una simple amistad espi-ritual entre dos seres de sexo opuesto, puede surgir un fino adulterio mental, con tintes trascendentales de espiritualidad.
+5. Ya viste hermano mío, cómo de una simple amistad espiritual entre dos seres de sexo opuesto, puede surgir un fino adulterio mental, con tintes trascendentales de espiritualidad.
 
-6. Ahora, hijo mío, vais comprendiendo en qué forma y de qué manera la mente y el corazón se unen y equilibran me-diante el fuego. 7- Se ha abierto la puerta, entra hijo mío para celebrar tu fiesta.
+6. Ahora, hijo mío, vais comprendiendo en qué forma y de qué manera la mente y el corazón se unen y equilibran mediante el fuego. 7- Se ha abierto la puerta, entra hijo mío para celebrar tu fiesta.
 
-8. Ya llegó el instante hermano mío, en que debéis preocu-parte un poco más por la música.
+8. Ya llegó el instante hermano mío, en que debéis preocuparte un poco más por la música.
 
-9. Las orquestas del Edén resuenan en los espacios infini-tos, en los grandes ritmos del fuego.
+9. Las orquestas del Edén resuenan en los espacios infinitos, en los grandes ritmos del fuego.
 
-10. Todo el Universo se sostiene con la magnífica orques-tación de las esferas.
+10. Todo el Universo se sostiene con la magnífica orquestación de las esferas.
 
 ## CAPÍTULO XXXIII
 
@@ -3900,27 +3904,27 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 3. Escucha ahora, oh ARHAT, lo que el ángel te lee en el libro...
 
-4. Ahora se te enseñan, hermano mío, muchas cosas su-blimes relacionadas con el mundo de entendimiento cósmico.
+4. Ahora se te enseñan, hermano mío, muchas cosas sublimes relacionadas con el mundo de entendimiento cósmico.
 
 5. Estáis actuando intensamente en el mundo del espíritu puro, sin necesidad de vehículos materiales...
 
 6. Todas las enseñanzas principales, se te están dando en lengua sagrada.
 
-7. Brilló el sol sobre el árbol de tu vida y entraste en la quin-ta cámara.
+7. Brilló el sol sobre el árbol de tu vida y entraste en la quinta cámara.
 
 8. Ya veis, hermano mío, cómo vais acercándoos al templo sagrado del corazón.
 
-9. Ahora vais entendiendo cómo se equilibran la mente y el corazón. 10- Cada vez más os vais dando cuenta de cómo podéis actuar a plena conciencia, en tu YO SUPERIOR, sin necesi-dad de los cuatro cuerpos de pecado.
+9. Ahora vais entendiendo cómo se equilibran la mente y el corazón. 10- Cada vez más os vais dando cuenta de cómo podéis actuar a plena conciencia, en tu YO SUPERIOR, sin necesidad de los cuatro cuerpos de pecado.
 
 11. Realmente eres un ARHAN, eres un NIRVANI, ¡hijo mío!
 
-12. Eres un Maestro de Misterios Mayores, pero en el mun-do del NIRVANA habéis comenzado ahora a vivir como un discípulo de los Dioses.
+12. Eres un Maestro de Misterios Mayores, pero en el mundo del NIRVANA habéis comenzado ahora a vivir como un discípulo de los Dioses.
 
-13. Eres Maestro y eres discípulo, habéis aprendido a obe-decer y a mandar...
+13. Eres Maestro y eres discípulo, habéis aprendido a obedecer y a mandar...
 
 14. Eres un súper-hombre...
 
-15. En el mundo Astral y en el mundo Mental, habéis levan-tado un templo majestuoso, hijo mío, pero en el mundo del NIRVANA tan solo poseéis una pequeña capillita...
+15. En el mundo Astral y en el mundo Mental, habéis levantado un templo majestuoso, hijo mío, pero en el mundo del NIRVANA tan solo poseéis una pequeña capillita...
 
 16. ¿Cuándo tendrás una gran catedral en el NIRVANA?
 
@@ -3928,7 +3932,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 18. ¿Cuándo podréis vivir en aquella gran ciudad de oro del séptimo salón del NIRVANA?
 
-19. ¡Mirad a esos seres inefables, que ofician en sus gran-des catedrales del NIRVANA!
+19. ¡Mirad a esos seres inefables, que ofician en sus grandes catedrales del NIRVANA!
 
 20. ¿Cuándo serás tú como uno de ellos?
 
@@ -3938,13 +3942,13 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 23. La tarea es ahora más ardua para ti, ¡oh ARHAT!
 
-24. Si queréis progresar en el NIRVANA, deberéis sacrifi-carte por la humanidad.
+24. Si queréis progresar en el NIRVANA, deberéis sacrificarte por la humanidad.
 
 25. Debes convertirte, hermano mío, en un BODDHISATTWA de Compasión. 26- Cada sacrificio tuyo se te pagará en el NIRVANA...
 
 27. Sólo así, hermano mío, podréis progresar en el NIRVANA.
 
-28. Ya veis hermano mío, cómo te ha transformado el fue-go.
+28. Ya veis hermano mío, cómo te ha transformado el fuego.
 
 29. Ya veis, hermano de mi alma, que todo el secreto del NIRVANA lo llevabais escondido en tus órganos sexuales...
 
@@ -3954,7 +3958,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 32. Te olvidaste de la puerta del Edén, y por eso sufriste, hermano de mi alma...
 
-33. Ya viste que el NIRVANA estaba en tus mismos órga-nos sexuales...
+33. Ya viste que el NIRVANA estaba en tus mismos órganos sexuales...
 
 34. ¡CUANTO TRABAJO, HIJO MÍO!
 
@@ -3972,13 +3976,13 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 5. La altura causa vértigo, hermano mío...
 
-6. ¡Ay! del ARHAT que no sepa controlar el vértigo de la al-tura, porque caerá al abismo...
+6. ¡Ay! del ARHAT que no sepa controlar el vértigo de la altura, porque caerá al abismo...
 
 7. Quien tenga entendimiento que entienda, y quien tenga oídos, que oiga lo que yo hablo a los ARHAT.
 
 8. Estáis muy alto, ¡Oh ARHAT! Y desde las profundidades del Santuario, sube hasta tu ventana un coro inefable...
 
-9. Los Maestros cantan deliciosamente en lengua sagra-da...
+9. Los Maestros cantan deliciosamente en lengua sagrada...
 
 10. Persevera, ¡Oh ARHAT! Sed cauto, sed prudente y no te envanezcas con el vértigo de la altura.
 
@@ -3992,7 +3996,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 15. ¿Te acuerdas de vuestros errores?
 
-16. ¿Te acuerdas, hermano mío, de aquellas épocas tene-brosas de tu vida cuando experimentabas en ti mismo el arca-no seis del Tarot?
+16. ¿Te acuerdas, hermano mío, de aquellas épocas tenebrosas de tu vida cuando experimentabas en ti mismo el arcano seis del Tarot?
 
 17. ¿Te acuerdas de aquellos tiempos, cuando errabas por los tortuosos caminos de la fornicación y adulterio?
 
@@ -4006,9 +4010,9 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 1. Estáis ante la puerta de la séptima cámara, ¡Oh ARHAT!
 
-2. Esta cámara está simbolizada por el Arcano siete del Ta-rot. (EL CARRO DE GUERRA).
+2. Esta cámara está simbolizada por el Arcano siete del Tarot. (EL CARRO DE GUERRA).
 
-3. Recuerda tu primer amor, hermano mío. Recuerda a tu divina Madre, la bendita Diosa Madre del Mundo, que tú aban-donaste cuando comiste del fruto prohibido.
+3. Recuerda tu primer amor, hermano mío. Recuerda a tu divina Madre, la bendita Diosa Madre del Mundo, que tú abandonaste cuando comiste del fruto prohibido.
 
 4. ¿No te amaba acaso Ella? ¿Qué te hacía falta, hermano mío? ¿Por qué abandonasteis a tu Madre?
 
@@ -4018,11 +4022,11 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 7. Este es el Arcano siete del Tarot, y debes luchar mucho, hermano mío, para que los dioses te abran la puerta de esta cámara.
 
-8. El Arcano siete del Tarot está representado por un carro de guerra arrastrado por dos esfinges: una blanca y otra ne-gra.
+8. El Arcano siete del Tarot está representado por un carro de guerra arrastrado por dos esfinges: una blanca y otra negra.
 
-9. La Esfinge blanca, simboliza la bendita Diosa Madre del Mundo y la esfinge negra simboliza la sombra de la divina Ma-dre, HÉCATE, PROSERPINA, la Reina de los infiernos atómi-cos de esta Naturaleza, la diosa negra que tanto adoran los demonios de la Sombra. 10- Tú abandonaste a tu Madre por seguir a la diosa tene-brosa de las pasiones carnales y ahora debes arrepentirte de tu ingratitud y golpear fuertemente la séptima cámara, para que los dioses te abran.
+9. La Esfinge blanca, simboliza la bendita Diosa Madre del Mundo y la esfinge negra simboliza la sombra de la divina Madre, HÉCATE, PROSERPINA, la Reina de los infiernos atómicos de esta Naturaleza, la diosa negra que tanto adoran los demonios de la Sombra. 10- Tú abandonaste a tu Madre por seguir a la diosa tenebrosa de las pasiones carnales y ahora debes arrepentirte de tu ingratitud y golpear fuertemente la séptima cámara, para que los dioses te abran.
 
-11. Entra con tu carro de guerra, ¡Oh ARHAT! Golpea fuer-temente para que te abran.
+11. Entra con tu carro de guerra, ¡Oh ARHAT! Golpea fuertemente para que te abran.
 
 12. La puerta se ha abierto, entra en tu cámara, ¡Oh ARHAT!
 
@@ -4038,15 +4042,15 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 2. Alégrate, hermano mío, alégrate, que ya habéis llegado a la meta del Corazón.
 
-3. Ya le pagaron al especialista que despertó tu cuarta cu-lebra y que a través de supremos esfuerzos ha conducido sa-biamente tu serpiente hasta aquellos centros sagrados del corazón.
+3. Ya le pagaron al especialista que despertó tu cuarta culebra y que a través de supremos esfuerzos ha conducido sabiamente tu serpiente hasta aquellos centros sagrados del corazón.
 
-4. Todo trabajo hay que pagarlo y ya le pagaron a tu espe-cialista, el servicio grandioso de haber conducido tu culebra sabiamente desde el coxis hasta estas cámaras inefables del corazón.
+4. Todo trabajo hay que pagarlo y ya le pagaron a tu especialista, el servicio grandioso de haber conducido tu culebra sabiamente desde el coxis hasta estas cámaras inefables del corazón.
 
 5. Sólo el servicio desinteresado, la castidad y la santidad, nos llevan a las cumbres inefables.
 
 6. Ya viste, hermano mío, qué es el gran servicio. 7- Conozco a muchos hermanos espiritualistas buenos y virtuosos que luchan por la perfección.
 
-8. Conozco a muchos hermanos que luchan lo indecible por corregir sus defectos y purificarse, pero no se acuerdan de los demás... Ellos se sienten solos y luchan por su auto-superación espiritual y por su auto-enaltecimiento moral, pero no se acuerdan que tienen más hermanos y de que todos so-mos hijos de una misma Madre.
+8. Conozco a muchos hermanos que luchan lo indecible por corregir sus defectos y purificarse, pero no se acuerdan de los demás... Ellos se sienten solos y luchan por su autosuperación espiritual y por su auto-enaltecimiento moral, pero no se acuerdan que tienen más hermanos y de que todos somos hijos de una misma Madre.
 
 9. Su espiritualidad es una espiritualidad egoísta y como no le sirven a nadie, ni se sacrifican por nadie, ni están luchando por la espiritualidad de nadie, los Maestros no les deben a ellos nada, y por lo tanto no hay que pagarles nada, porque nada se les debe.
 
@@ -4064,13 +4068,13 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 16. ¡Tu mente cuelga de un madero! ¡Está Cristificada! Y es ahora desprendida de su cruz para celebrar la fiesta.
 
-17. Tu mente es ahora un Cristo viviente. Tu mente res-plandece con el poder sagrado del fuego.
+17. Tu mente es ahora un Cristo viviente. Tu mente resplandece con el poder sagrado del fuego.
 
 18. Música inefable resuena en los ámbitos divinos... 19- Dentro de la cámara sacra de tu corazón, resplandece el fuego del ARHAT.
 
-20. Ahora llevas el Cristo en tu corazón y la paloma blanca del Espíritu Santo ha formado su morada en tu templo co-razón.
+20. Ahora llevas el Cristo en tu corazón y la paloma blanca del Espíritu Santo ha formado su morada en tu templo corazón.
 
-21. Algunos ángeles inefables llevan la larga cola de tu ca-pa... Danzan las beldades con la danza de las Runas...
+21. Algunos ángeles inefables llevan la larga cola de tu capa... Danzan las beldades con la danza de las Runas...
 
 22. El Rey del Mundo sentado en su trono, te aguarda, hermano mío...
 
@@ -4084,29 +4088,29 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 27. Te habéis libertado de la ilusión de la separatividad. Tú eres AQUELLO... AQUELLO... AQUELLO...
 
-28. Tú vives en todos los corazones, tú ves a través de to-dos los ojos, tú oyes a través de todos los oídos, porque eres AQUELLO... AQUELLO... AQUELLO...
+28. Tú vives en todos los corazones, tú ves a través de todos los ojos, tú oyes a través de todos los oídos, porque eres AQUELLO... AQUELLO... AQUELLO...
 
 29. Ahora podréis exclamar: ¡YO SOY ATMAN! el INEFABLE.
 
 30. Yo soy el que soy, el que siempre ha sido, y el que siempre seré.
 
-31. Todo el infinito estrellado es mi cuerpo... Todo el Uni-verso es mi personalidad y por ello me expreso con fuerza y con poder a través de mis ARHAT...
+31. Todo el infinito estrellado es mi cuerpo... Todo el Universo es mi personalidad y por ello me expreso con fuerza y con poder a través de mis ARHAT...
 
-32. Lloro en el niño, canto en el ave, florezco en mis grana-dos... 33- Ahora debéis entender hermano mío, la personalidad dentro de la impersonalidad...
+32. Lloro en el niño, canto en el ave, florezco en mis granados... 33- Ahora debéis entender hermano mío, la personalidad dentro de la impersonalidad...
 
-34. Ahora debéis comprender, hermano mío, que la ilusión de la separatividad es una herejía y que la personalidad egoís-ta de aquellos que únicamente quieren ser ellos y nada más, es la peor de las herejías.
+34. Ahora debéis comprender, hermano mío, que la ilusión de la separatividad es una herejía y que la personalidad egoísta de aquellos que únicamente quieren ser ellos y nada más, es la peor de las herejías.
 
-35. Cuando YO, AUN WEOR, afirmo que debemos tener un YO fuerte y potente, y una robusta y poderosa personalidad, no me refiero a la personalidad egoísta, ni al YO ANIMAL... Me refiero únicamente al YO DIVINO, y a nuestra gigantesca per-sonalidad formada por todos los seres del Infinito...
+35. Cuando YO, AUN WEOR, afirmo que debemos tener un YO fuerte y potente, y una robusta y poderosa personalidad, no me refiero a la personalidad egoísta, ni al YO ANIMAL... Me refiero únicamente al YO DIVINO, y a nuestra gigantesca personalidad formada por todos los seres del Infinito...
 
-36. ATMAN truena y relampaguea en todos los espacios in-finitos y se manifiesta con potencia a través de sus ARHAT.
+36. ATMAN truena y relampaguea en todos los espacios infinitos y se manifiesta con potencia a través de sus ARHAT.
 
 37. ATMAN el Inefable, no tiene nada de debilidades, se expresa con poder y majestad a través de sus profetas.
 
-38. Nuestro YO es UNIVERSAL y todos los cuerpos de to-dos los seres vivientes, son los cuerpos de nuestro YO interno y divinal.
+38. Nuestro YO es UNIVERSAL y todos los cuerpos de todos los seres vivientes, son los cuerpos de nuestro YO interno y divinal.
 
-39. Cuando nosotros hemos hablado de una recia y pode-rosa personalidad, muchos no han entendido lo que es la per-sonalidad dentro de la impersonalidad, y han caído en la horri-ble herejía de la separatividad.
+39. Cuando nosotros hemos hablado de una recia y poderosa personalidad, muchos no han entendido lo que es la personalidad dentro de la impersonalidad, y han caído en la horrible herejía de la separatividad.
 
-40. No os dejéis guiar, hermanos míos, por la egoísta per-sonalidad de nuestro cuerpo mental, ni por el intelecto animal.
+40. No os dejéis guiar, hermanos míos, por la egoísta personalidad de nuestro cuerpo mental, ni por el intelecto animal.
 
 41. Vosotros debéis escuchar únicamente al INTIMO, que reside en el corazón, vosotros debéis aprender a oír la voz del silencio...
 
@@ -4114,7 +4118,7 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 43. Nosotros reconocemos la individualidad dentro de la Unidad de la vida, y aunque sabemos que la gota se hunde dentro del océano, también sabemos que el océano se hunde dentro de la gota.
 
-44. ATMAN es uno que se expresa como muchos; el mar ardiente de la vida libre en su movimiento tiene muchas lla-mas...
+44. ATMAN es uno que se expresa como muchos; el mar ardiente de la vida libre en su movimiento tiene muchas llamas...
 
 45. Empero, todas las llamas forman en su conjunto el mar de fuego ardiente... el Mundo de la Niebla de Fuego...
 
@@ -4134,21 +4138,21 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 2. En cada una de las 7 Grandes Iniciaciones de Misterios Mayores, el Iniciado tiene acceso a cada uno de estos centros.
 
-3. En la primera Iniciación de Misterios Mayores, el Iniciado tiene derecho a entrar en el primer centro. Con la segunda, entra en el Segundo, con la tercera en el tercero, con la cuarta en el cuarto, con la quinta en el quinto, con la sexta en el sex-to, y con la séptima en el séptimo.
+3. En la primera Iniciación de Misterios Mayores, el Iniciado tiene derecho a entrar en el primer centro. Con la segunda, entra en el Segundo, con la tercera en el tercero, con la cuarta en el cuarto, con la quinta en el quinto, con la sexta en el sexto, y con la séptima en el séptimo.
 
-4. Un monte de una blancura inmaculada con figura de pirámide, se presenta ante ti. Entra hermano en esta cámara sagrada, donde resplandece la imagen del crucificado; ya an-tes habíais penetrado en este centro, pero ahora entráis en él por cuarta vez, en forma muy elevada.
+4. Un monte de una blancura inmaculada con figura de pirámide, se presenta ante ti. Entra hermano en esta cámara sagrada, donde resplandece la imagen del crucificado; ya antes habíais penetrado en este centro, pero ahora entráis en él por cuarta vez, en forma muy elevada.
 
 5. Siempre pasamos por los mismos centros en forma cada vez más elevada, siguiendo la curva de la evolución cósmica.
 
 6. Entra ahora hermano mío, en el segundo centro, y recibe tus regalos y tus fiestas.
 
-7. Entra en el tercer centro, y haz girar tu esfera ardiente, que pende de la cuerda... Recibe hermano mío, música y fies-tas.
+7. Entra en el tercer centro, y haz girar tu esfera ardiente, que pende de la cuerda... Recibe hermano mío, música y fiestas.
 
 8. Entra ahora, ¡oh! ARHAT, IMPERATOR de la mente cósmica, en tu cuarto centro.
 
 9. Este cuarto centro corresponde a la Cuarta Iniciación de Misterios Mayores.
 
-10. Estáis ante el amanecer de la vida, hermano mío... erais un indio salvaje primitivo entre las selvas vírgenes de la Arcadia... Adorabais al Sol naciente, y no usabais el razona-miento... Sólo te guiabas sabiamente por la voz del instinto...
+10. Estáis ante el amanecer de la vida, hermano mío... erais un indio salvaje primitivo entre las selvas vírgenes de la Arcadia... Adorabais al Sol naciente, y no usabais el razonamiento... Sólo te guiabas sabiamente por la voz del instinto...
 
 11. Al fin de la jornada, hermano mío, después de haber Cristificado tu mente, te encontráis con que el fin es igual al principio, más la experiencia del ciclo.
 
@@ -4156,45 +4160,45 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 13. La razón es un delito de lesa majestad contra Dios.
 
-14. Con tus pobres razonamientos creíais que podíais sa-ber más que el Creador... y te equivocasteis, hermano mío...
+14. Con tus pobres razonamientos creíais que podíais saber más que el Creador... y te equivocasteis, hermano mío...
 
-15. Ahora has vuelto, hermano mío, al polo positivo del ins-tinto, porque el fin siempre es igual al principio, mas la expe-riencia del ciclo.
+15. Ahora has vuelto, hermano mío, al polo positivo del instinto, porque el fin siempre es igual al principio, mas la experiencia del ciclo.
 
 16. Habéis vuelto al reino de la Intuición. 17- Ya te convenciste, hermano mío, de la inutilidad de los razonamientos.
 
 18. Sólo el sendero de la acción recta, regido por la voz del silencio, puede llevarnos a las cimas inefables del NIRVANA.
 
-19. En lugar de estar razonando, y destrozando el cuerpo mental con el batallar de la antítesis, es mejor trabajar inten-samente por el beneficio de la especie humana.
+19. En lugar de estar razonando, y destrozando el cuerpo mental con el batallar de la antítesis, es mejor trabajar intensamente por el beneficio de la especie humana.
 
 20. Cuando los razonamientos te asalten, véncelos con el látigo de la voluntad.
 
-21. Cuando la lucha antitética de conceptos quiera fraccio-nar tu mente, arrójalos fuera de ti con el látigo de la voluntad, y ocúpate en tus oficios, para no dejar campo a la inutilidad de los razonamientos.
+21. Cuando la lucha antitética de conceptos quiera fraccionar tu mente, arrójalos fuera de ti con el látigo de la voluntad, y ocúpate en tus oficios, para no dejar campo a la inutilidad de los razonamientos.
 
 22. A los señores del Karma lo único que les interesa son tus obras.
 
 23. A los señores del Karma no les interesan tus procesos razonativos.
 
-24. El proceso de la elección conceptual, el proceso depri-mente de la opción, causan gravísimos daños en el cuerpo mental.
+24. El proceso de la elección conceptual, el proceso deprimente de la opción, causan gravísimos daños en el cuerpo mental.
 
-25. Cuando los daños cristalizan en el cerebro físico, vie-nen enfermedades cerebrales, manías intelectuales, alco-holismo, neurastenia y locura.
+25. Cuando los daños cristalizan en el cerebro físico, vienen enfermedades cerebrales, manías intelectuales, alcoholismo, neurastenia y locura.
 
-26. Tú no puedes saber más que Dios, hermano mío, de nada te sirven pues, tus razonamientos, arroja del templo de tu mente a todos los mercaderes, con el látigo terrible de la vo-luntad.
+26. Tú no puedes saber más que Dios, hermano mío, de nada te sirven pues, tus razonamientos, arroja del templo de tu mente a todos los mercaderes, con el látigo terrible de la voluntad.
 
-27. Cristifica tu mente, buen discípulo, transmuta el agua en vino, y abre tus puertas a tu Dios interno, para que Él te enseñe la sabiduría divina, y así comerás el pan de la sabidur-ía, sin necesidad de los inútiles razonamientos, que destrozan el cuerpo mental. 28- En el plano mental existen hospitales y clínicas donde actualmente están recluidos millares de cuerpos mentales en-fermos, por el proceso doloroso de los razonamientos.
+27. Cristifica tu mente, buen discípulo, transmuta el agua en vino, y abre tus puertas a tu Dios interno, para que Él te enseñe la sabiduría divina, y así comerás el pan de la sabiduría, sin necesidad de los inútiles razonamientos, que destrozan el cuerpo mental. 28- En el plano mental existen hospitales y clínicas donde actualmente están recluidos millares de cuerpos mentales enfermos, por el proceso doloroso de los razonamientos.
 
-29. En esos hospitales del mundo de la Mente, se hospitali-zan los cuerpos mentales de muchos Iniciados que han des-trozado sus mentes con el proceso del razonamiento.
+29. En esos hospitales del mundo de la Mente, se hospitalizan los cuerpos mentales de muchos Iniciados que han destrozado sus mentes con el proceso del razonamiento.
 
 30. La mente debe fluir silenciosa e integralmente, sin el proceso deprimente de los razonamientos.
 
-31. Lo importante es el sendero de la acción recta, lo im-portante es la acción intuitiva.
+31. Lo importante es el sendero de la acción recta, lo importante es la acción intuitiva.
 
 32. La acción intuitiva es acción justa, es pensar justo, es sentir justo, es transmutación divina, es acción de plenitud, es actividad plena, es actividad justa, es santidad expresada, es trabajo en plenitud, es sabiduría en acción, amor activo.
 
-33. La Humanidad de ACUARIO, será la Humanidad intuiti-va.
+33. La Humanidad de ACUARIO, será la Humanidad intuitiva.
 
 34. Ya viste, ¡oh IMPERATOR!, cuántos seres comenzaron contigo la jornada.
 
-35. Millones de seres humanos empezaron a subir la mon-taña espiral de la vida, pero la mayoría de ellos rodaron al abismo, y se convirtieron en demonios...
+35. Millones de seres humanos empezaron a subir la montaña espiral de la vida, pero la mayoría de ellos rodaron al abismo, y se convirtieron en demonios...
 
 36. Sólo un puñado de seres llegaron contigo hasta la cumbre de la montaña...
 
@@ -4232,24 +4236,26 @@ KAN, en voz alta, y DIL en voz baja, BAN en voz alta, y DIL en voz baja. La letr
 
 54. Ahora resplandece con inmaculada belleza entre esta ROSA ÍGNEA de la naturaleza.
 
-55. El Manas se ha fusionado con el ATMAN-BUDDHI-MANAS, en la sede de Brahma puro, donde solamente res-plandece la sagrada sabiduría del BODDHIDHARMA.
+55. El Manas se ha fusionado con el ATMAN-BUDDHI-MANAS, en la sede de Brahma puro, donde solamente resplandece la sagrada sabiduría del BODDHIDHARMA.
 
 56. La Diosa Madre del Mundo exclama: ¡He aquí un hijo muy amado, he aquí un nuevo Buddha! 57- Esta es la sabiduría del Corazón, esta es la sabiduría del SELLO DEL CORAZÓN...
 
 58. Al fin la muerte y el Corazón se fusionaron totalmente...
 
-59. Resuena la música de las esferas entre los ámbitos di-vinos y en el templo de los Dioses, las beldades danzan las RUNAS sagradas...
+59. Resuena la música de las esferas entre los ámbitos divinos y en el templo de los Dioses, las beldades danzan las RUNAS sagradas...
 
 **INDICE** INTRODUCCIÓN ....................................................................................................... 1 CAPÍTULO I - UNA REINA DEL FUEGO .................................................................... 9 CAPÍTULO II - LOS SIETE CANDELEROS DEL ARHAT ......................................... 11 CAPÍTULO III - LA CALABACERA ........................................................................... 14 CAPÍTULO IV - EL TERCER GUARDIÁN ................................................................. 18 CAPÍTULO V - EL CÁLIZ ......................................................................................... 21 CAPÍTULO VI - EL MANZANO ................................................................................. 22 CAPÍTULO VII - EL CUERPO DE LA LIBERACIÓN ................................................. 27 CAPÍTULO VIII - LA DIOSA MADRE DEL MUNDO .................................................. 29 CAPÍTULO IX - EL CEDRO ...................................................................................... 30 CAPÍTULO X - LA CAÑA DE BAMBÚ ...................................................................... 32 CAPÍTULO XI - ELÍAS EL PROFETA ....................................................................... 41 CAPÍTULO XII - EL PINO Y LA MENTE ................................................................... 45 CAPÍTULO XIII - EL SEÑOR JEHOVÁ ..................................................................... 51 CAPÍTULO XIV - EL VERBO .................................................................................... 54 CAPÍTULO XV - ..................................................................................................... 58 MAGIA DEL GRANADO ...................................................................................... 58 DEPARTAMENTO ELEMENTAL DE LOS NARANJOS ...................................... 61 MAGIA ELEMENTAL DEL NARDO ...................................................................... 62 MAGIA ELEMENTAL DEL AZAFRÁN .................................................................. 63 MAGIA ELEMENTAL DE LA CANELA ................................................................. 66 MAGIA ELEMENTAL DEL INCIENSO ................................................................. 67 MAGIA ELEMENTAL DE LA MIRRA .................................................................... 69 MAGIA ELEMENTAL DE LA ZÁBILA ................................................................... 74 MAGIA ELEMENTAL DEL ESTORAQUE ............................................................ 81 MAGIA ELEMENTAL DE LA MENTA ................................................................... 82 MAGIA ELEMENTAL DE LA HIGUERA ............................................................... 88 CAPÍTULO XVI - LA MENTE Y LA SEXUALIDAD .................................................... 97 CAPÍTULO XVII - DISCIPLINA ESOTÉRICA DE LA MENTE ................................. 103 CAPÍTULO XVIII - LA CRUZ DEL ARHAT .............................................................. 120 CAPÍTULO XIX - LA MUJER .................................................................................. 122 CAPÍTULO XX - EL LEÓN DE LA LEY ................................................................... 129 CAPÍTULO XXI - LA MESA DE JEZABEL .............................................................. 131 CAPÍTULO XXIII - LAS SIETE ROSAS ÍGNEAS DE LA CAÑA .............................. 139 CAPÍTULO XXIV - LA CAÑA DE TU CUERPO MENTAL ....................................... 146 CAPÍTULO XXV - ADIVINOS Y PROFETAS .......................................................... 149 CAPÍTULO XXVI - EL ÁRBOL DE LA CIENCIA DEL BIEN Y DEL MAL ................. 152 CAPÍTULO XXVII - LA CLARIVIDENCIA ................................................................ 155 CAPÍTULO XXVIII - EL CAMPO MAGNÉTICO DE LA RAÍZ DE LA NARIZ ............ 158 CAPÍTULO XXIX - LA PRIMERA CÁMARA SANTA DE LA RAÍZ DE LA NARIZ .... 166 CAPÍTULO XXX - EL CAMINO ARDIENTE ............................................................ 170 CAPÍTULO XXXI - LA LARINGE CREADORA ....................................................... 171 CAPÍTULO XXXII - LA CUARTA CÁMARA ............................................................ 178 CAPÍTULO XXXIII - LA QUINTA CÁMARA ............................................................. 179 CAPÍTULO XXXIV - LA SEXTA CÁMARA .............................................................. 181 CAPÍTULO XXXV - LA SÉPTIMA CÁMARA ........................................................... 183 CAPÍTULO XXXVI - LA OCTAVA CÁMARA ........................................................... 184 CAPÍTULO XXXVII - LOS SIETE CENTROS DEL CORAZÓN ............................... 188
 
+![Imagen 3](Rosa Ignea/Rosa Ignea - 003 - CAPÍTULO XXXVII - LOS SIETE CENTROS DEL.jpeg)
+
 ### AÑO OBRAS ESCRITAS O COMPILADAS DEL V. M.
 
-**1950- El Matrimonio Perfecto de Kinder** (esta obra fue luego ampliada y corregida por el Maestro Samael y la llamó: “El Matrimonio Perfecto”), **La Revolución de Bel-cebú**. **1952- Curso Zodiacal, Apuntes Secretos de un Gurú, Tratado de Medicina Oculta y Magia Pratica, Conciencia Cristo, Libro de la Virgen del Carmen, Catecismo Gnóstico, El Poder está en la Cruz, Mensaje de Navidad 1952-1953.**
+**1950- El Matrimonio Perfecto de Kinder** (esta obra fue luego ampliada y corregida por el Maestro Samael y la llamó: “El Matrimonio Perfecto”), **La Revolución de Belcebú**. **1952- Curso Zodiacal, Apuntes Secretos de un Gurú, Tratado de Medicina Oculta y Magia Pratica, Conciencia Cristo, Libro de la Virgen del Carmen, Catecismo Gnóstico, El Poder está en la Cruz, Mensaje de Navidad 1952-1953.**
 
 **1953- Las Siete Palabras, Rosa Ígnea, Tratado de Alquimia Sexual, Mensaje de Navidad 1953-1954. 1954- Mensaje de navidad 1954-1955.**
 
 **1955 Mensaje de navidad 1955-1956, Manual de Magia Práctica, Los Platillos Voladores, Significado Oculto de los Sueños. 1956- Los Misterios Mayores, Mensaje de Navidad 1956-1957. 1957- Nociones Fundamentales de la Endocrinología y Criminología, Mensaje de Navidad de 1957-1958. 1958- Mensaje de Navidad de 1958-1959.**
 
-**1959- Tratado Esotérico de Teurgia, Voluntad Cristo, La Montaña de la Juratena, Logos-Mantram Teurgia, El Libro Amarillo, Mensaje de Navidad 1959-1960.** **1960- Introducción a la Gnosis, El Mensaje de Acuario, Mensaje de Navidad 1960- 1961. 1961- La Caridad Universal, Mensaje de Navidad 1961-1962. 1962- Magia Crística Azteca, El Libro de los Muertos, Los Misterios de la Vida y de la Muerte, Los Misterios del Fuego, Mensaje de Navidad 1962-1963. 1963- El Matrimonio Perfecto** (edición ampliada y corregida), **Mensaje de Navidad 1963-1964, Manifiesto Gnóstico Nº 1 y 2.** **1964- El Cristo Social, Las Naves Cósmicas, Mensaje de Navidad 1964-1965** *(Lla-mado la Liberación de la Conciencia, Eliminación del Yo),* **Gnosis en el siglo XX** *(Recopilación de doce Mensajes de Navidad: 1952 a 1963*), **Manifiesto Gnóstico Nº3**. **1965- Transformación Social de la Humanidad, Mensaje de Navidad 1965-1966** *(Llamado la Ciencia de la Música).* **1966- Educación Fundamental, Mensaje de Navidad 1966-1967** *(Llamado El Collar de Buddha).* **1967- Plataforma del Socialismo Cristiano, Tratado Esotérico de Astrología Hermé-tica, Mensaje de Navidad 1967-1968** (*Llamado Los cuerpos Solares y Sabiduria Gnostica*), **Manifiesto Gnóstico Nº4**. **1968- A los Mil llegamos pero a los Dos Mil no, Constitución y Liturgia del Movi-miento Gnóstico** *(Rituales de Primer y Segundo Grado)*​**, Mensaje de Navidad 1968-1969** *(Llamado Tratado Esotérico de Magia Rúnica).* **1969- Curso Esotérico de Cabala, Mensaje de Navidad 1969-1970** *(Llamado Mi Regreso al Tibet)* **1970- Mas allá de la Muerte, Mensaje de Navidad 1970-1971** *(Llamado El Parsifal develado)* **1971- Mensaje de Navidad de 1971-1972** *(Llamado El Misterio del Áureo Florecer),* **Manifiesto Gnóstico Nº5.**
+**1959- Tratado Esotérico de Teurgia, Voluntad Cristo, La Montaña de la Juratena, Logos-Mantram Teurgia, El Libro Amarillo, Mensaje de Navidad 1959-1960.** **1960- Introducción a la Gnosis, El Mensaje de Acuario, Mensaje de Navidad 1960- 1961. 1961- La Caridad Universal, Mensaje de Navidad 1961-1962. 1962- Magia Crística Azteca, El Libro de los Muertos, Los Misterios de la Vida y de la Muerte, Los Misterios del Fuego, Mensaje de Navidad 1962-1963. 1963- El Matrimonio Perfecto** (edición ampliada y corregida), **Mensaje de Navidad 1963-1964, Manifiesto Gnóstico Nº 1 y 2.** **1964- El Cristo Social, Las Naves Cósmicas, Mensaje de Navidad 1964-1965** *(Llamado la Liberación de la Conciencia, Eliminación del Yo),* **Gnosis en el siglo XX** *(Recopilación de doce Mensajes de Navidad: 1952 a 1963*), **Manifiesto Gnóstico Nº3**. **1965- Transformación Social de la Humanidad, Mensaje de Navidad 1965-1966** *(Llamado la Ciencia de la Música).* **1966- Educación Fundamental, Mensaje de Navidad 1966-1967** *(Llamado El Collar de Buddha).* **1967- Plataforma del Socialismo Cristiano, Tratado Esotérico de Astrología Hermética, Mensaje de Navidad 1967-1968** (*Llamado Los cuerpos Solares y Sabiduria Gnostica*), **Manifiesto Gnóstico Nº4**. **1968- A los Mil llegamos pero a los Dos Mil no, Constitución y Liturgia del Movimiento Gnóstico** *(Rituales de Primer y Segundo Grado)*​**, Mensaje de Navidad 1968-1969** *(Llamado Tratado Esotérico de Magia Rúnica).* **1969- Curso Esotérico de Cabala, Mensaje de Navidad 1969-1970** *(Llamado Mi Regreso al Tibet)* **1970- Mas allá de la Muerte, Mensaje de Navidad 1970-1971** *(Llamado El Parsifal develado)* **1971- Mensaje de Navidad de 1971-1972** *(Llamado El Misterio del Áureo Florecer),* **Manifiesto Gnóstico Nº5.**
 
-**1972- Mirando al Misterio, Mensaje de Navidad 1973-1974** *(Llamado Las Tres Monta-ñas),* **Manifiesto Gnóstico Nº6.** **1973- Mensaje de Navidad 1973-1974** *(Llamado Sí, Hay Infierno, Sí, Hay Diablo, Sí, Hay Karma)* **1974- La Gran Rebelión, Los Planetas Metálicos de la Alquimia, Mensaje de Navi-dad 1974-1975** *(Llamado La Doctrina Secreta de Anahuác).* **1975- Liturgia del Movimiento Gnóstico** *(Ritual del Tercer y Cuarto grado)*, **Mensaje de Navidad 1975-1976** *(Llamado Psicología Revolucionaria)* **1976- Tarot y Cabala** *(conjunto de cátedras dictadas en Terceras Cámaras)*, **Libro Sagrado de Liturgia** *(Rituales de Quinto, Sexto y Séptimo Grado).* **1977- Misterios Mayas, Antropología Gnóstica** *(7 Cátedras dictadas por el Maestro en tercera cámara)*, **Pistis Sophia** *(en cuya develación estaba trabajando en el momento en que desencarnó y que fue publicada en 1981)* **Las Respuestas que dio un Lama.** Recopilación de temas dados por el V.M. Samael Aun Weor: **Para los Pocos, La Revolución de la Dialéctica, La Piedra Filosofal, Didactica del Autoconoci-miento, El Despertar del Hombre, Las Escuelas Esotericas, Ejercicios de Lamaseria, El Quinto Evangelio, El Verbo de Oro** *(Tomos I - II)*. Debemos, hacer un llamado a todo el estudiantado gnóstico para que se luche por la integridad doctrinaria del Avatara de Acuario. Vemos con asombro y estupor cómo algunos, por una razón, han modificado en alguna manera el legado escrito de nuestro Maestro, lo cual debe ser rechazado por todo aquel, que verdaderamente se considere “Samaeliano”.
+**1972- Mirando al Misterio, Mensaje de Navidad 1973-1974** *(Llamado Las Tres Montañas),* **Manifiesto Gnóstico Nº6.** **1973- Mensaje de Navidad 1973-1974** *(Llamado Sí, Hay Infierno, Sí, Hay Diablo, Sí, Hay Karma)* **1974- La Gran Rebelión, Los Planetas Metálicos de la Alquimia, Mensaje de Navidad 1974-1975** *(Llamado La Doctrina Secreta de Anahuác).* **1975- Liturgia del Movimiento Gnóstico** *(Ritual del Tercer y Cuarto grado)*, **Mensaje de Navidad 1975-1976** *(Llamado Psicología Revolucionaria)* **1976- Tarot y Cabala** *(conjunto de cátedras dictadas en Terceras Cámaras)*, **Libro Sagrado de Liturgia** *(Rituales de Quinto, Sexto y Séptimo Grado).* **1977- Misterios Mayas, Antropología Gnóstica** *(7 Cátedras dictadas por el Maestro en tercera cámara)*, **Pistis Sophia** *(en cuya develación estaba trabajando en el momento en que desencarnó y que fue publicada en 1981)* **Las Respuestas que dio un Lama.** Recopilación de temas dados por el V.M. Samael Aun Weor: **Para los Pocos, La Revolución de la Dialéctica, La Piedra Filosofal, Didactica del Autoconocimiento, El Despertar del Hombre, Las Escuelas Esotericas, Ejercicios de Lamaseria, El Quinto Evangelio, El Verbo de Oro** *(Tomos I - II)*. Debemos, hacer un llamado a todo el estudiantado gnóstico para que se luche por la integridad doctrinaria del Avatara de Acuario. Vemos con asombro y estupor cómo algunos, por una razón, han modificado en alguna manera el legado escrito de nuestro Maestro, lo cual debe ser rechazado por todo aquel, que verdaderamente se considere “Samaeliano”.

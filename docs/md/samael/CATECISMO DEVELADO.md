@@ -2,6 +2,10 @@
 
 ### (POR: SAMAEL AUN WEOR)
 
+![Imagen 1](CATECISMO DEVELADO/CATECISMO DEVELADO - 001 - (POR SAMAEL AUN WEOR).jpeg)
+
+![Imagen 2](CATECISMO DEVELADO/CATECISMO DEVELADO - 002 - VM SAMAEL AUN WEOR.jpeg)
+
 #### VM SAMAEL AUN WEOR
 
 ## PROLOGO
@@ -204,7 +208,7 @@ La subconciencia deviene de la cristalización mental de nuestros errores psicol
 
 #### 6.- ¿EXISTEN VARIOS ESTADOS DE CONCIENCIA?
 
-Sí, existen cuatro estados de conciencia, a saber: a) *Eikasia*; ignorancia, crueldad humana, barbarie, sueño demasiado profundo, mundo instintivo y brutal, subconciencia máxima. b) *Pistis*; Mundo de opiniones y creencias, subconciente normal de la humanidad. c) *Dianoia*; Análisis revisión de creencias, conciencia cultural-intelectual, pensamiento científico. d) *Nous*; Conciencia despierta, eliminación completa del subconsciente, facultades internas despiertas, iluminación interior profunda, objetividad absoluta. Estado del TURIYA.
+Sí, existen cuatro estados de conciencia, a saber: a) *Eikasia*; ignorancia, crueldad humana, barbarie, sueño demasiado profundo, mundo instintivo y brutal, subconciencia máxima. b) *Pistis*; Mundo de opiniones y creencias, subconciente normal de la humanidad. c) *Dianoia*; Análisis revisión de creencias, conciencia culturalintelectual, pensamiento científico. d) *Nous*; Conciencia despierta, eliminación completa del subconsciente, facultades internas despiertas, iluminación interior profunda, objetividad absoluta. Estado del TURIYA.
 
 #### 7.- ¿COMO ES POSIBLE ELIMINAR EL SUBCONSCIENTE?
 
@@ -458,7 +462,7 @@ El Kundalini es de sustancia electrónica, Es una poderosísima energía de tipo
 
 La serpiente tentadora del Edén representa el polo opuesto del Kundalini, el abominable órgano Kundartiguador, que parte del cóccix hacia los infiernos atómicos del hombre. Se le conoce como la cola del diablo.
 
-#### 7.- ¿QUIÉNES DESARROLLAN EL ORGANO KUNDARTI- GUADOR?
+#### 7.- ¿QUIÉNES DESARROLLAN EL ORGANO KUNDARTIGUADOR?
 
 Desarrollan el órgano Kundartiguador los terribles demonios, mediante la fornicación combinada con ciertos ritos demoníacos.
 
@@ -999,6 +1003,8 @@ Toda persona, después de haber llegado al uso de razón, debe buscar a Dios med
 #### V. M. SAMAEL AUN WEOR
 
 **Indice** PROLOGO ..................................................................................................... 5 CAPITULO PRIMERO - EL OBJETO DE NUESTRA EXISTENCIA .............. 7 CAPÍTULO SEGUNDO - LA PERFECCIÓN .................................................. 9 CAPÍTULO TERCERO - LA MUERTE MISTICA .......................................... 11 CAPÍTULO CUARTO - PECADOS CAPITALES .......................................... 13 CAPITULO QUINTO - CONCIENCIA Y SUB-CONCIENCIA ....................... 16 CAP. SEXTO - LA AUTORREALIZACIÓN Y LOS TRES FACTORES ........ 19 CAPITULO SEPTIMO - LA TRANSMUTACIÓN .......................................... 21 CAPITULO OCTAVO - ADAN Y EVA EN EL PARAÍSO .............................. 25 CAPITULO NOVENO - EL BAUTISMO........................................................ 28 CAPITULO DECIMO - EL KUNDALINI Y SU OPUESTO ............................. 30 CAPITULO UNDECIMO - LA VIRGEN SANTÍSIMA .................................... 32 CAPITULO DOCEAVO - LOS SIETE CHAKRAS ........................................ 34 CAPITULO TRECEAVO - LOS SIETE CUERPOS ...................................... 37 CAPITULO CATORCEAVO - LA MUERTE Y LOS SUEÑOS ...................... 41 CAP QUINCE - LOS CIELOS Y LAS JERARQUIAS CELESTIALES .......... 44 CAPITULO DIECISÉIS - LOS INFIERNOS Y LOS DEMONIOS .................. 46 CAPITULO DIECISIETE - EL PURGATORIO .............................................. 49 CAPITULO DIECIOCHO - EVOLUCIÓN E INVOLUCIÓN ........................... 50 CAPITULO DIECINUEVE - RETORNO Y REENCARNACIÓN .................... 53 CAPITULO VEINTE - KARMA Y DARMA - LA GRAN LEY .......................... 56 CAPITULO VEINTIUNO - LA SANTÍSIMA TRINIDAD ................................. 58 CAPITULO VEINTIDÓS - QUIEN FUE JESÚS ............................................ 60 CAPITULO VEINTITRÉS - LAS TRES IGLESIAS ....................................... 62 CAPITULO VEINTICUATRO - LA ORACIÓN .............................................. 64
+
+![Imagen 3](CATECISMO DEVELADO/CATECISMO DEVELADO - 003 - CAPITULO VEINTICUATRO - LA ORACIÓN.jpeg)
 
 #### AÑO OBRAS ESCRITAS O COMPILADAS DEL V. M. SAMAELAUN WEOR
 

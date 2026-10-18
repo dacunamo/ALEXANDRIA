@@ -140,7 +140,7 @@ Por la Editorial.
 
 (Quienes dejan en suspenso el Telar de Dios no trabajan en la Gran Obra.)
 
-(Adorar a Iod- Heve es necesario.)
+(Adorar a Iod-Heve es necesario.)
 
 (Sin embargo, el Adorador queda estancado si no trabaja en la Gran Obra.)
 
@@ -332,7 +332,7 @@ Por la Editorial.
 
 (Jamás pudo faltar la figura hermética del Baphometo en las casas de los viejos Alquimistas medievales.)
 
-(Lucifer- Baphometo nos otorga el impulso sexual mediante el cual es posible la realización de la Gran Obra.)
+(Lucifer-Baphometo nos otorga el impulso sexual mediante el cual es posible la realización de la Gran Obra.)
 
 (Cuando herimos de muerte al Baphometo con la Lanza de Longinus, transmutamos el plomo en Oro.)
 
@@ -342,7 +342,7 @@ Por la Editorial.
 
 (Quienes aprenden a usar inteligentemente el impulso sexual pueden realizar la Gran Obra.)
 
-(La Ascensión del Cristo Intimo en nosotros se hace absolutamente posible cuando se comprende el Misterio Quince que es el mismo que el del Lucifer- Baphometo.)
+(La Ascensión del Cristo Intimo en nosotros se hace absolutamente posible cuando se comprende el Misterio Quince que es el mismo que el del Lucifer-Baphometo.)
 
 **La confusión de los poderes y el gran terremoto**
 
@@ -392,7 +392,7 @@ Por la Editorial.
 
 (Bajo la Constelación de la Ballena se desarrolla el Iniciado.)
 
-(Sin Lucifer- Baphometo sería imposible la Auto - realización Intima del Ser.)
+(Sin Lucifer-Baphometo sería imposible la Auto - realización Intima del Ser.)
 
 (Lucifer origina el impulso sexual en cada uno de nos.)
 
@@ -486,7 +486,7 @@ Por la Editorial.
 
 (La Luz del Cristo deslumbra a los moradores de la Tierra.)
 
-(Osiris- Cristo es por eso negro para los seres humanos.)
+(Osiris-Cristo es por eso negro para los seres humanos.)
 
 (Los esplendores del Cristo ofuscan a los moradores de la Tierra.)
 
@@ -542,7 +542,7 @@ Por la Editorial.
 
 (Ella, Stella Maris, obedece las órdenes del Jesús - Cristo Intimo y trabaja con Él eliminando de nosotros los elementos psíquicos indeseables.)
 
-(Gracias al Primer Misterio, es decir, gracias al Anciano de los Días, gracias al Padre de todas las Luces, el Jesús- Cristo Interior puede enseñar a los Iniciados.)
+(Gracias al Primer Misterio, es decir, gracias al Anciano de los Días, gracias al Padre de todas las Luces, el Jesús-Cristo Interior puede enseñar a los Iniciados.)
 
 (El Señor no oculta nada a los que en verdad están despiertos.)
 
@@ -718,9 +718,9 @@ Así que si os dijeren: Mirad, está en el desierto, no salgáis; o Mirad, está
 
 (Todas las partes autónomas y auto - conscientes del Ser deben trabajar en la Auto - realización.)
 
-(En tanto no se hayan desintegrado todos los elementos indeseables que en nuestro interior cargamos, la Auto- realización íntima de cada una de las partes autónomas y auto- conscientes del Ser resulta algo más que imposible.)
+(En tanto no se hayan desintegrado todos los elementos indeseables que en nuestro interior cargamos, la Auto-realización íntima de cada una de las partes autónomas y auto-conscientes del Ser resulta algo más que imposible.)
 
-(Las Doce Potestades son tan sólo doce partes de las tantas partes autónomas y auto-conscientes del Ser.)
+(Las Doce Potestades son tan sólo doce partes de las tantas partes autónomas y autoconscientes del Ser.)
 
 (Quien logre perfeccionar la parte más elevada del Ser, recibe por tal motivo, el grado de Ishmesch.)
 
@@ -742,7 +742,7 @@ Incuestionablemente, las Doce Potestades son vertidas por el Cristo Intimo en el
 
 (En nuestros cuerpos deben habitar las Doce Potestades, esto es posible desintegrando todos los elementos psíquicos que en nuestro interior cargamos.)
 
-(Los Doce Apóstoles, partes fundamentales del Ser, son siempre calumniados y perseguidos por los perversos, esto lo sabe todo Maestro Iluminado.) (El Jesús- Cristo histórico y sus Doce Apóstoles, simbolizan al Cristo Intimo y a las Doce Potestades encarnadas en todo Hombre Verdadero.)
+(Los Doce Apóstoles, partes fundamentales del Ser, son siempre calumniados y perseguidos por los perversos, esto lo sabe todo Maestro Iluminado.) (El Jesús-Cristo histórico y sus Doce Apóstoles, simbolizan al Cristo Intimo y a las Doce Potestades encarnadas en todo Hombre Verdadero.)
 
 (Existen Doce Salvadores que simbolizan a las Doce Constelaciones Zodiacales.)
 
@@ -830,7 +830,7 @@ Jesús, el Cristo Intimo, es el Sol Divino en nosotros.)
 
 (Sabaoth es el nombre dado en hebreo al Ejército de la Voz, a la Hueste o a las Huestes Creadoras de los Elohim.)
 
-(En el Antiguo Testamento, se aplica el nombre de Jehová, en su acepción original de Iod- Heve, a la Hueste de los Andróginos Divinos o Cosmocratores que crearon este Universo.)
+(En el Antiguo Testamento, se aplica el nombre de Jehová, en su acepción original de Iod-Heve, a la Hueste de los Andróginos Divinos o Cosmocratores que crearon este Universo.)
 
 (Isis - María recibe siempre la Primera Fuerza, el Santo Afirmar.)
 
@@ -868,7 +868,7 @@ Jesús, el Cristo Intimo, es el Sol Divino en nosotros.)
 
 (La Fuerza del Salvador del Mundo se encuentra en un nivel muy superior, con relación a las Fuerzas de los Cinco Auxiliares.)
 
-(La fuerza del Redentor del Mundo está vertida en el Primer Mandamiento, que dice: "Amad a Dios sobre todas las cosas y al prójimo como a ti mismo".) (El Primer Mandamiento, eso que es Amor, vierte una parte de esa fuerza en la Gran Luz.) Incuestionablemente, la Gran Luz, vierte a su vez una parte de la Fuerza- Amor en los Cinco Auxiliares.)
+(La fuerza del Redentor del Mundo está vertida en el Primer Mandamiento, que dice: "Amad a Dios sobre todas las cosas y al prójimo como a ti mismo".) (El Primer Mandamiento, eso que es Amor, vierte una parte de esa fuerza en la Gran Luz.) Incuestionablemente, la Gran Luz, vierte a su vez una parte de la Fuerza-Amor en los Cinco Auxiliares.)
 
 (El Quinto Auxiliar, actuando con gran fuerza, toma cierta cantidad de la Sustancia del Amor para verterla en la Mezcla, en el Mundo.)
 
@@ -894,7 +894,7 @@ Jesús, el Cristo Intimo, es el Sol Divino en nosotros.)
 
 (En la Hora de la Consumación de la Gran Obra, dentro de nosotros mismos, aquí y ahora, es terriblemente Divina.)
 
-(Las Doce Potestades, los Doce Apóstoles, son, repito: Doce partes autónomas y auto-conscientes de nuestro propio Ser.)
+(Las Doce Potestades, los Doce Apóstoles, son, repito: Doce partes autónomas y autoconscientes de nuestro propio Ser.)
 
 (Los Doce Apóstoles, bajo la dirección del Cristo Intimo, se expresan a través del Iniciado cuando se está trabajando por la humanidad doliente.)
 
@@ -904,7 +904,7 @@ Jesús, el Cristo Intimo, es el Sol Divino en nosotros.)
 
 *Sucedió que cuando Jesús había concluido de decir estas palabras a sus discípulos, continuó con su exposición y les dijo: "Ved aquí, que me he puesto mi vestidura y con ella toda autoridad que se me ha concedido a través del Primer Misterio. Un momento más y os diré el misterio del universo y la plenitud del mismo y no ocultaré nada a vosotros a partir de esta hora. Yo os perfeccionaré por completo con toda la perfección y en todos los misterios que son la perfección de todas las perfecciones y la grandeza de todas las grandezas y la Gnosis de toda la Gnosis, quienes están en mi vestidura. Yo os diré todos los misterios desde los exteriores de los exteriores hasta los interiores de los interiores. Pero escuchadme, que puedo deciros todas las cosas que me han sucedido".*
 
-(Con la Vestidura Sagrada de la Púrpura Divina, que usan Aquellos que han hecho la Gran Obra, el Cristo Intimo se reviste.) ("Ved aquí, - dice el Cristo- que me he puesto mi Vestidura y con ella toda autoridad que se me ha concedido a través del Primer Misterio.")
+(Con la Vestidura Sagrada de la Púrpura Divina, que usan Aquellos que han hecho la Gran Obra, el Cristo Intimo se reviste.) ("Ved aquí, - dice el Cristo-que me he puesto mi Vestidura y con ella toda autoridad que se me ha concedido a través del Primer Misterio.")
 
 (Bien sabemos que el Primer Misterio es el del Padre que está en secreto. Hay tantos Padres en el Cielo cuantas criaturas en la Tierra; cada uno de nosotros tiene su Padre.)
 
@@ -920,7 +920,7 @@ Jesús, el Cristo Intimo, es el Sol Divino en nosotros.)
 
 (No está de más repetir que durante la Manifestación del Ser es múltiple.)
 
-(El Cristo Intimo, disolviendo los elementos indeseables que en nuestro interior cargamos, perfecciona las distintas partes autónomas y auto- conscientes de nuestro Ser.)
+(El Cristo Intimo, disolviendo los elementos indeseables que en nuestro interior cargamos, perfecciona las distintas partes autónomas y auto-conscientes de nuestro Ser.)
 
 (El Ser es el Ser y la razón de ser del Ser es el mismo Ser.)
 
@@ -1064,7 +1064,7 @@ Jesús, el Cristo Intimo, es el Sol Divino en nosotros.)
 
 (El Revelador es siempre el Espíritu Santo.)
 
-(El Gentil- Hombre, iluminado y perfecto, es el resultado concreto de la cristalización del Espíritu Santo en nosotros.)
+(El Gentil-Hombre, iluminado y perfecto, es el resultado concreto de la cristalización del Espíritu Santo en nosotros.)
 
 (La esposa del Espíritu Santo es la Divina Madre Kundalini, Marah, el Gran Mar, nuestra Madre Cósmica Particular, pues cada uno de nosotros tiene su Madre.)
 
@@ -1080,7 +1080,7 @@ Jesús, el Cristo Intimo, es el Sol Divino en nosotros.)
 
 (El Arcano A. Z. F., es el Misterio Revelador.)
 
-(Conexión del Lingam- Yoni sin eyaculación del Ens- Seminis, allí está la clave del Gran Misterio.)
+(Conexión del Lingam-Yoni sin eyaculación del Ens-Seminis, allí está la clave del Gran Misterio.)
 
 (El Misterio de las Cinco Impresiones es la Estrella flamígera, tú lo sabes.)
 
@@ -1092,7 +1092,7 @@ Jesús, el Cristo Intimo, es el Sol Divino en nosotros.)
 
 (Los Cinco Guías son los Cinco Auxiliares dentro de nosotros mismos aquí y ahora.)
 
-(Así como existen Cinco Auxiliares en el Sistema Solar: GABRIEL, RAPHAEL. URIEL, MICHAEL, SAMAEL; así también, dentro del Micro- Cosmos hombre existen Cinco Auxiliares, Cinco partes autónomas e independientes del Ser.)
+(Así como existen Cinco Auxiliares en el Sistema Solar: GABRIEL, RAPHAEL. URIEL, MICHAEL, SAMAEL; así también, dentro del Micro-Cosmos hombre existen Cinco Auxiliares, Cinco partes autónomas e independientes del Ser.)
 
 (Los Cinco Auxiliares Íntimos guían al Iniciado bajo la dirección suprema del Padre.)
 
@@ -1110,13 +1110,13 @@ Jesús, el Cristo Intimo, es el Sol Divino en nosotros.)
 
 (Del Tesoro de la Luz, oculto entre las profundidades íntimas de los Adeptos iluminados, deviene el Misterio de los Salvadores.)
 
-(El Misterio de las Ordenes de las Ordenes deviene del Tesoro de la Luz, oculto en el Ser del Ser de todo Adepto auto- realizado.)
+(El Misterio de las Ordenes de las Ordenes deviene del Tesoro de la Luz, oculto en el Ser del Ser de todo Adepto auto-realizado.)
 
 (Las Ordenes de las Ordenes están constituidas por los Siete Amens, las Siete Voces, los Cinco Árboles y el Salvador Gemelo, que es el Hijo del Hijo.)
 
 (Los Nueve Guardias del Tesoro de la Luz están ocultos dentro de cada uno de nosotros.)
 
-(Los Nueve Guardias del Gran Tesoro son Nueve Partes auto- independientes y auto- conscientes de nuestro propio Ser.)
+(Los Nueve Guardias del Gran Tesoro son Nueve Partes auto-independientes y auto-conscientes de nuestro propio Ser.)
 
 (El Noveno Sendero es inteligencia pura.)
 
@@ -1194,7 +1194,7 @@ Jesús, el Cristo Intimo, es el Sol Divino en nosotros.)
 
 (La Mente, el Astral, y el Físico, constituyen el Tercer Triple que deviene del Logos.)
 
-(El asiento vital o Lingam- Sarira es tan sólo la sección superior del cuerpo físico, no olvidemos jamás que el cuerpo físico es tetradimensional.)
+(El asiento vital o Lingam-Sarira es tan sólo la sección superior del cuerpo físico, no olvidemos jamás que el cuerpo físico es tetradimensional.)
 
 (El Treceavo Aeón, más allá de las Doce Puertas, es Ain, es SAT, el Inmanifestado.)
 
@@ -1206,7 +1206,7 @@ Jesús, el Cristo Intimo, es el Sol Divino en nosotros.)
 
 (El Elohim interior es el Ser de nuestro Ser.)
 
-(El Elohim interior es nuestro Padre- Madre.)
+(El Elohim interior es nuestro Padre-Madre.)
 
 (El Elohim interior es el Rayo que emana de Aelohim.)
 
@@ -1262,9 +1262,9 @@ El día en que vino a nosotros.
 
 *"He aquí que te hemos enviado, por lo tanto, esta vestidura que nadie conocía desde el Primer Mandamiento para abajo porque la gloria de la luz estaba oculta en ella y las esferas y todas las regiones del Primer Mandamiento para abajo no la han conocido. Apresúrate por lo tanto, ponte esta vestidura y ven a nosotros. Para acercarnos a ti y vestirte por mandato del Primer Misterio con tus dos vestiduras, que existieron para ti desde el principio con el Primer Misterio hasta que el tiempo señalado por el inefable fuese consumado. Ven pronto a nosotros para que te vistamos con ellas, hasta que hayas logrado el Misterio total de la perfección del Primer Misterio que es señalado por el Inefable. Ven pronto a nosotros para que te las pongamos de acuerdo con los mandatos del Primer Misterio. Falta aún un momento, un pequeño momento y vendrás a nosotros y dejarás al mundo. Ven, por tanto, pronto, para que recibas tu gloria completa que es la Gloria del Primer Misterio".*
 
-(El Jesús- Cristo Intimo, dentro de cada uno de nos, tiene pleno derecho a usar su Vestidura.)
+(El Jesús-Cristo Intimo, dentro de cada uno de nos, tiene pleno derecho a usar su Vestidura.)
 
-(En la Vestidura del Jesús- Cristo Intimo, resplandece la Gloria de la Luz.)
+(En la Vestidura del Jesús-Cristo Intimo, resplandece la Gloria de la Luz.)
 
 (Las múltiples Esferas Cósmicas y todas las Regiones suprasensibles del Universo y de los Universos del Primer Mandamiento, brillan en el Espacio Infinito.)
 
@@ -1290,7 +1290,7 @@ Jesús se pone su vestidura.
 
 *"Sucedió entonces que cuando vi el misterio de todas esas palabras en la vestidura que me enviaron y que me puse; brillé entonces con excelsitud y ascendí a las alturas".*
 
-(El Jesús- Cristo Intimo, en cada uno de nos, se viste con su Sagrada Vestidura para ascender.)
+(El Jesús-Cristo Intimo, en cada uno de nos, se viste con su Sagrada Vestidura para ascender.)
 
 (Resplandece el Cristo Intimo cuando asciende.)
 
@@ -1340,13 +1340,13 @@ Los Poderes del firmamento se asombraron y se postraron y le rindieron culto.
 
 (Dulce es el trabajo de quien trabaja contento, y dulce es el descanso de quien lo tiene merecido.)
 
-(El Hombre Crístificado, el Bendito, el Cristo- hombre, cual Gran Emperador del Cosmos, tiene las llaves de todos los firmamentos.)
+(El Hombre Crístificado, el Bendito, el Cristo-hombre, cual Gran Emperador del Cosmos, tiene las llaves de todos los firmamentos.)
 
 (Trabajar sobre sí mismo es fundamental para llegar a la cristificación.)
 
 (Escrito está: Al trabajo de tus manos da bendición y en el pensamiento pon corazón.)
 
-Con el traje de luz resplandeciente, el Jesús- Cristo Intimo atraviesa el mundo suprasensible y remontándose de esfera en esfera, aunque le han sido franqueadas todas las puertas, amedrenta a los mismos Arcontes o Guardianes de aquellos lugares, quienes siempre le adoran.)
+Con el traje de luz resplandeciente, el Jesús-Cristo Intimo atraviesa el mundo suprasensible y remontándose de esfera en esfera, aunque le han sido franqueadas todas las puertas, amedrenta a los mismos Arcontes o Guardianes de aquellos lugares, quienes siempre le adoran.)
 
 (En todas las cosas de la esfera de manifestación se adora al Cristo.)
 
@@ -1354,11 +1354,11 @@ Los poderes de la primera esfera se asombraron y glorificaron.
 
 *"Penetré en las casas de la esfera, brillando radiantemente y no había modo de medir la intensidad de la luz que me rodeaba. Y todos los Arcontes y todos aquellos que estaban en esa esfera se agitaron entre sí. Y ellos vieron la gran luz que estaba en mí y observaron con atención mi vestidura y vieron en ella el misterio de sus nombres. Y fueron poseídos de mayor agitación y mostrando gran temor decían: ¿Cómo es que el Señor del Universo pasó entre nosotros sin nuestro conocimiento?" Y todos sus lazos fueron desatados y sus regiones y sus órdenes, y cada uno dejó su orden y se postraron todos ante mí y ante mi vestidura; me adoraron y cantaron todos juntos alabanzas a los interiores de los interiores, con gran temor y poseídos de una gran agitación".*
 
-(Los Arcontes y todos aquellos que están en la esfera de manifestación, se agitan siempre ante el Jesús- Cristo victorioso.)
+(Los Arcontes y todos aquellos que están en la esfera de manifestación, se agitan siempre ante el Jesús-Cristo victorioso.)
 
-(El Jesús- Cristo victorioso dentro de cualquier Adepto Crístificado, resplandece gloriosamente.)
+(El Jesús-Cristo victorioso dentro de cualquier Adepto Crístificado, resplandece gloriosamente.)
 
-(En la vestidura del Jesús- Cristo Intimo resplandece el misterio de los nombres sagrados.)
+(En la vestidura del Jesús-Cristo Intimo resplandece el misterio de los nombres sagrados.)
 
 (Ante el Cristo Intimo se doblega toda rodilla.)
 
@@ -1408,7 +1408,7 @@ Los poderes de la segunda esfera se postraron y lo glorificaron.
 
 *"Y abandoné esa región y ascendí a la de los Aeones de los Regidores y llegué ante sus velos y sus puertas, brillando con gran intensidad y no había medida para la luz que esta en mí. Sucedió entonces, cuando llegué donde los Doce Aeones, que sus velos y sus puertas fueron sacudidas una contra la otra. Sus velos se apartaron a sí mismos espontáneamente y sus puertas se abrieron una contra la otra. Y entré en los Aeones, brillando con gran intensidad, y no había medida para la luz que me rodeaba, cuarenta y nueve veces con más intensidad que la luz con la que brillé en las casas del Destino".*
 
-(El Cristo- Jesús Intimo, victorioso, puede entrar en los Doce Aeones o Regiones.)
+(El Cristo-Jesús Intimo, victorioso, puede entrar en los Doce Aeones o Regiones.)
 
 (El Cristo victorioso tiene poder para pasar las doce puertas y llegar al Aeón Trece.)
 
@@ -1434,7 +1434,7 @@ Los poderes de los Aeones se asombraron y se postraron y lo glorificaron.
 
 (Se agitan siempre los Aeones y sus esferas y sus órdenes ante el Cristo Cósmico.)
 
-(El Jesús- Cristo Intimo totalmente encarnado en cualquier Adepto Crístificado, resplandece gloriosamente.)
+(El Jesús-Cristo Intimo totalmente encarnado en cualquier Adepto Crístificado, resplandece gloriosamente.)
 
 (Lograr pues la cristificación, es urgente, inaplazable, impostergable...)
 
@@ -1446,11 +1446,11 @@ Los poderes de los Aeones se asombraron y se postraron y lo glorificaron.
 
 (Tiphón Baphometo, Lucifer, es el Arcano Quince.)
 
-(El Misterio del Baphometo se fundamenta en la transmutación sexual.) (Tiphón- Baphometo es la reflexión del Logos Solar dentro de nosotros mismos, aquí y ahora.)
+(El Misterio del Baphometo se fundamenta en la transmutación sexual.) (Tiphón-Baphometo es la reflexión del Logos Solar dentro de nosotros mismos, aquí y ahora.)
 
-(Lucifer- Baphometo da siempre el impulso sexual, si lo refrenamos en el acto sexual, logramos la transmutación.)
+(Lucifer-Baphometo da siempre el impulso sexual, si lo refrenamos en el acto sexual, logramos la transmutación.)
 
-(Lucifer- Baphometo da el gran impulso, mas si clavamos la Lanza de la Voluntad en su costado, le venceremos.)
+(Lucifer-Baphometo da el gran impulso, mas si clavamos la Lanza de la Voluntad en su costado, le venceremos.)
 
 (Vencer a la tentación equivale a subir por la espalda de Lucifer.)
 
@@ -1534,7 +1534,7 @@ Les quita un tercio de sus poderes.
 
 (Isis, María, es nuestro propio Ser, derivado.)
 
-(Isis, María, es Dios- Madre en nosotros, la Virgen del Mar.)
+(Isis, María, es Dios-Madre en nosotros, la Virgen del Mar.)
 
 (Isis, Marah es el desdoblamiento del Espíritu Santo en cada uno de nos.) (Maria, Isis, es nuestra Divina Madre Kundalini.)
 
@@ -1604,7 +1604,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (Siempre Kundry se arroja a los pies de Parsifal para manifestar su amor y obediencia.)
 
-(El Jesús- Cristo Intimo revela a Magdalena los misterios.)
+(El Jesús-Cristo Intimo revela a Magdalena los misterios.)
 
 **Capítulo 20**
 
@@ -1762,7 +1762,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (Quienes aniquilen a los demonios rojos de Seth, liberarán su Conciencia, la despertarán radicalmente.)
 
-(Sólo comprendiendo radicalmente nuestros errores a través de la Meditación y de la Auto-reflexión evidente del Ser, se hace posible la aniquilación de los agregados psíquicos.)
+(Sólo comprendiendo radicalmente nuestros errores a través de la Meditación y de la Autoreflexión evidente del Ser, se hace posible la aniquilación de los agregados psíquicos.)
 
 (La mente jamás puede aniquilar ningún defecto psicológico; ella puede esconderlo de sí misma, justificarlo, condenarlo, esconderlo de los demás, rotularlo con distintos nombres, mas nunca alterarlo fundamentalmente.)
 
@@ -1776,7 +1776,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (Dios Madre dentro de nosotros, en nosotros, puede reducir a polvareda cósmica cualquier elemento indeseable de nuestra psiquis, a condición de haberlo comprendido previamente.)
 
-(La Divina Mujer- Serpiente posee poderes terriblemente divinos.)
+(La Divina Mujer-Serpiente posee poderes terriblemente divinos.)
 
 (Isis es nuestra Divina Madre Cósmica particular; cada uno tiene su Isis.)
 
@@ -1788,9 +1788,9 @@ María Magdalena pide y recibe permiso para hablar
 
 (La Electricidad Sexual Trascendente intensifica el poder de Isis.)
 
-(Durante la Cópula química podemos invocar a Isis- Marah entonces seremos auxiliados.)
+(Durante la Cópula química podemos invocar a Isis-Marah entonces seremos auxiliados.)
 
-(La Divina Madre- Serpiente Isis Adonía, podrá desintegrar cualquier defecto psicológico si le invocamos en la Novena Esfera, es decir, en el Sexo y en pleno Coito Químico.)
+(La Divina Madre-Serpiente Isis Adonía, podrá desintegrar cualquier defecto psicológico si le invocamos en la Novena Esfera, es decir, en el Sexo y en pleno Coito Químico.)
 
 **Capítulo 25**
 
@@ -1868,9 +1868,9 @@ María Magdalena pide y recibe permiso para hablar
 
 (El Cáliz simboliza al Yoni femenino y la Lanza alegoriza al Phalus de los Misterios Griegos.)
 
-(En el Cáliz y la Lanza se hallan ocultos los misterios del Lingam- Yoni.)
+(En el Cáliz y la Lanza se hallan ocultos los misterios del Lingam-Yoni.)
 
-(El camino que conduce a la Auto- Realización íntima del Ser es absolutamente Sexual.)
+(El camino que conduce a la Auto-Realización íntima del Ser es absolutamente Sexual.)
 
 (Melquisedec, en medio de los Aeones y de los Regidores, arrebata siempre lo que tiene que arrebatar, para bien de la Humanidad doliente.)
 
@@ -1886,7 +1886,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (Melquisedec, en nosotros y por nosotros, como Señor de esta morada planetaria en que vivimos, pone en movimiento al Apresurador, que está por encima de ellos, y lo hace girar en círculos, velozmente.)
 
-(Esto quiere decir que acelerar nuestra Auto- Realización íntima es siempre posible a base de trabajos conscientes, padecimientos voluntarios, negociaciones y perdón.)
+(Esto quiere decir que acelerar nuestra Auto-Realización íntima es siempre posible a base de trabajos conscientes, padecimientos voluntarios, negociaciones y perdón.)
 
 (Melquisedec responde por todas las Almas de la Tierra.)
 
@@ -1896,7 +1896,7 @@ María Magdalena pide y recibe permiso para hablar
 
 ("A quien a sí mismo dio Abraham los diezmos de todo, cuyo nombre significa primeramente Rey de Justicia, y también Rey de Salem, esto es, Rey de Paz,")
 
-("Sin Padre- terrenal, sin Madre- terrenal, sin genealogía; que ni tiene principio de días, ni fin de vida, sino hechos semejantes al Hijo de Dios, permanece Sacerdote para siempre." (HEBREOS 7).)
+("Sin Padre-terrenal, sin Madre-terrenal, sin genealogía; que ni tiene principio de días, ni fin de vida, sino hechos semejantes al Hijo de Dios, permanece Sacerdote para siempre." (HEBREOS 7).)
 
 **Del moldeado de las almas de los hombres.**
 
@@ -1908,7 +1908,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (Melquisedec debe, así, purificar los poderes del Alma del Mundo y llevar su luz al Tesoro de la Luz.)
 
-(Una paralela correcta nos indica que dentro del Micro- cosmos hombre debe ocurrir lo mismo cuando se quiere llegar a la Auto- Realización íntima del Ser.)
+(Una paralela correcta nos indica que dentro del Micro-cosmos hombre debe ocurrir lo mismo cuando se quiere llegar a la Auto-Realización íntima del Ser.)
 
 (Los Trabajadores de la Gran Obra trabajan incesantemente sobre sí mismos y sobre el Universo; esto se halla especificado en todo Génesis religioso.)
 
@@ -2008,7 +2008,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (Esto es fácil comprenderlo cuando sabemos que los Señores de la Ley también se reencarnan, y que, por lo tanto, poseen humano cuerpo.)
 
-(El término "Tirano" es meramente simbólico, o alegórico, o simplemente visto desde otro ángulo, esto es, desde el punto de vista del "Súper- Hombre".)
+(El término "Tirano" es meramente simbólico, o alegórico, o simplemente visto desde otro ángulo, esto es, desde el punto de vista del "Súper-Hombre".)
 
 (Los poderes de los Regidores están dentro de nuestra propia Alma.)
 
@@ -2066,11 +2066,11 @@ María Magdalena pide y recibe permiso para hablar
 
 (Los Sabios deben trabajar por épocas en la Luz y por épocas en las Tinieblas del no Ser.)
 
-(Esta clase de Trabajo Gnóstico, por épocas en la Luz y por épocas en las Tinieblas, confunde a muchos, y por ello son pocos los que logran la total Auto- Realización Intima del Ser.)
+(Esta clase de Trabajo Gnóstico, por épocas en la Luz y por épocas en las Tinieblas, confunde a muchos, y por ello son pocos los que logran la total Auto-Realización Intima del Ser.)
 
 (Recordad el Arcano Seis, el Sexo, el Amor, el trabajo en la Forja de los Cíclopes.)
 
-(Trabajar entre la súper- oscuridad y el silencio augusto de los Sabios, es urgente en determinadas épocas.)
+(Trabajar entre la súper-oscuridad y el silencio augusto de los Sabios, es urgente en determinadas épocas.)
 
 (Trabajar en la Luz, durante ciertos tiempos, es indispensable.)
 
@@ -2094,7 +2094,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (Es la fuerza, fuerte con toda fuerza, pues vencerá toda cosa sutil y penetrará toda cosa sólida. Así ha sido creado el mundo. De allí saldrán admirables adaptaciones, cuyo método se da aquí.) (Sin la Magia Sexual y los Mundos Infiernos, no sería posible comprender los párrafos anteriores de Hermes Trismegisto.)
 
-(Incuestionablemente, el Sendero de la Auto- Realización íntima del Ser resulta espantosamente difícil.)
+(Incuestionablemente, el Sendero de la Auto-Realización íntima del Ser resulta espantosamente difícil.)
 
 (El Iniciado tiene que pasar mucho más allá del bien y del mal.)
 
@@ -2146,7 +2146,7 @@ María Magdalena pide y recibe permiso para hablar
 
 *Y sucedió entonces, cuando Jesús terminó de decir estas palabras a sus discípulos, que todos ellos cayeron juntos, lo adoraron, y le dijeron: Bendito seas ante todos los hombres, pues nos has revelado estas grandes hazañas.*
 
-*(*Los Regidores de los Aeones y del Destino y de la Esfera, los cuales se encuentran representados dentro de nuestra propia Alma por las diversas partes autónomas y auto- conscientes del Ser, no desean devorar la materia del desecho de la purificación de la Luz.)
+*(*Los Regidores de los Aeones y del Destino y de la Esfera, los cuales se encuentran representados dentro de nuestra propia Alma por las diversas partes autónomas y auto-conscientes del Ser, no desean devorar la materia del desecho de la purificación de la Luz.)
 
 (El Cristo Señor nuestro, reduce tiempos y períodos a fin de que podamos recibir prontamente los Misterios y estar en el Tesoro de la Luz.)
 
@@ -2238,7 +2238,7 @@ María Magdalena pide y recibe permiso para hablar
 
 *Jesús continuó de nuevo su discurso y dijo a sus discípulos: Escuchad lo relativo a las cosas que me ocurrieron entre los regidores de los doce Aeones y de todos sus regidores y todos sus señores y sus autoridades y de sus ángeles y sus arcángeles. Cuando vieron la vestimenta de luz que yo traía, ellos y sus impares, vieron cada uno de ellos el misterio de sus nombres, que estaba en la vestimenta de luz que me rodeaba. Cayeron todos juntos, adoraron la vestimenta de luz que me cubría y lloraron diciendo: ¿Cómo es que el Señor del Universo ha pasado por entre nosotros, sin nosotros saberlo? Y todos juntos cantaron alabanzas a los interiores de los interiores. Y todos sus triples poderes y sus antepasados y sus no generados y sus autogenerados y sus generados y sus dioses y sus chispas de luz y sus portadores de luz - en una palabra, todos sus grandes - vieron a los tiranos de su región, que su poder disminuía en ellos y se volvieron débiles y cayeron en grande, inmensurable temor. Contemplaron el misterio de sus nombres en mi vestimenta, y se propusieron venir a adorar el misterio de sus nombres que estaban en mi vestimenta, pero no pudieron debido a la gran luz que me rodeaba; pero adoraron un poco lejos de mí, y adoraron la luz de mi vestimenta y lloraron juntos, cantando alabanzas a los interiores de os interiores.*
 
-(Los Arcontes de los doce Aeones, los Señores y las Autoridades, los Ángeles y los Arcángeles, están representados dentro de nosotros por las distintas partes autónomas y auto- conscientes de nuestro propio Ser.)
+(Los Arcontes de los doce Aeones, los Señores y las Autoridades, los Ángeles y los Arcángeles, están representados dentro de nosotros por las distintas partes autónomas y auto-conscientes de nuestro propio Ser.)
 
 (Los poderes de los Regentes de los Aeones y del destino y de la esfera se encuentran dentro de nuestra propia Alma.)
 
@@ -2256,7 +2256,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (Todos los divinales poderes íntimos adoran al Cristo interior.)
 
-(Esto se repite en el universo y en el hombre, en el Macro- cosmos y en el Micro- cosmos.)
+(Esto se repite en el universo y en el hombre, en el Macro-cosmos y en el Micro-cosmos.)
 
 #### Los Tiranos asemejaban muertos.
 
@@ -2280,9 +2280,9 @@ María Magdalena pide y recibe permiso para hablar
 
 (El Aeón Trece es terriblemente divino.)
 
-(Los Regentes de los Aeones, cada uno de ellos, está sujeto a su Orden, y todos ellos, en el Macro- cosmos y dentro del Micro- cosmos hombre, trabajan de acuerdo con el Logos Solar.)
+(Los Regentes de los Aeones, cada uno de ellos, está sujeto a su Orden, y todos ellos, en el Macro-cosmos y dentro del Micro-cosmos hombre, trabajan de acuerdo con el Logos Solar.)
 
-(Parte de las obras, hay que realizarla en la luz, y parte, entre la súper- oscuridad y el silencio augusto de los Sabios.)
+(Parte de las obras, hay que realizarla en la luz, y parte, entre la súper-oscuridad y el silencio augusto de los Sabios.)
 
 (No debemos olvidar jamás que el Infierno y el Paraíso existen aquí mismo y no en ningún otro mundo.)
 
@@ -2334,7 +2334,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (Pistis Sophia es una palabra compuesta.)
 
-(Pistis Sophia significa: Poder- Sabiduría.)
+(Pistis Sophia significa: Poder-Sabiduría.)
 
 (Pistis significa Poder. Sophia quiere decir Sabiduría.)
 
@@ -2344,7 +2344,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (Existe el Fuego del Fuego, la Llama de la Llama, la Signatura Astral del Fuego.)
 
-(Obviamente, Cristo- Sabiduría, es la signatura astral del Fuego.)
+(Obviamente, Cristo-Sabiduría, es la signatura astral del Fuego.)
 
 (En el Treceavo Aeón están los terribles Misterios de la Pistis Sophia.)
 
@@ -2364,9 +2364,9 @@ María Magdalena pide y recibe permiso para hablar
 
 (Incuestionablemente, uno de los tres triples poderes, Eros desviado, o Cupido desencaminado, ocasiona a la Pistis Sophia el peor daño.)
 
-(Nunca nos pronunciaremos contra Eros, Shiva, Espíritu Santo, o contra Cupido- Eros, pues bien sabemos que en los misterios tántricos del Lingam-Yoni, se halla la clave de todo poder.)
+(Nunca nos pronunciaremos contra Eros, Shiva, Espíritu Santo, o contra Cupido-Eros, pues bien sabemos que en los misterios tántricos del Lingam-Yoni, se halla la clave de todo poder.)
 
-(Caos- Gae, Eros, la Trinidad Griega, nos invita a la reflexión.)
+(Caos-Gae, Eros, la Trinidad Griega, nos invita a la reflexión.)
 
 (Realmente, sólo nos pronunciamos contra la fornicación, el adulterio y el abuso sexual.)
 
@@ -2376,7 +2376,7 @@ María Magdalena pide y recibe permiso para hablar
 
 *Y sucedió entonces, cuando ella persistió en cantar alabanzas a la luz más alta, que todos los regidores que están con los dos grandes triples - poderes y su (de ella) invisible que es su par, y las otras dos y veinte emanaciones invisibles contemplaron (a la luz), - por cuanto Pistis Sophia y su par, ellas y las otras dos y veinte emanaciones forman cuatro y veinte emanaciones que el Antepasado invisible y los dos grandes triples poderes han emanado.*
 
-(Pistis Sophia, la divina Sabiduría- Poder, resplandece entre los Crísticos misterios, y agitada palpita y se estremece en las vestiduras Logoicas.)
+(Pistis Sophia, la divina Sabiduría-Poder, resplandece entre los Crísticos misterios, y agitada palpita y se estremece en las vestiduras Logoicas.)
 
 (El misterio del nombre de la Pistis Sophia está oculto en el Logos Solar.)
 
@@ -2384,7 +2384,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (La Pistis Sophia parla con el Verbo sagrado de los grandes Hierofantes.)
 
-(La Pistis Sophia, Sabiduría- Poder, resplandece gloriosa hecha carne, en los Dioses encarnados.)
+(La Pistis Sophia, Sabiduría-Poder, resplandece gloriosa hecha carne, en los Dioses encarnados.)
 
 **Capítulo 30**
 
@@ -2458,7 +2458,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (Cuando no se derrama el vaso de Hermes, el esperma sagrado se transforma en el Mercurio de los Sabios.)
 
-(Conexión del Lingam- Yoni, sin eyaculación del Ens- Seminis, es fundamental para la preparación del Mercurio de los Sabios.)
+(Conexión del Lingam-Yoni, sin eyaculación del Ens-Seminis, es fundamental para la preparación del Mercurio de los Sabios.)
 
 (El Mercurio preparado asciende a lo largo del canal medular espinal, abriendo centros y revolucionando la Conciencia.)
 
@@ -2496,7 +2496,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (Los poderes de los veinticuatro Ancianos se encuentran depositados en el fondo de nuestra Alma.)
 
-(Las veinticuatro partes autónomas y auto- conscientes de nuestro propio Ser son los veinticuatro Ancianos dentro de nuestro zodíaco individual.)
+(Las veinticuatro partes autónomas y auto-conscientes de nuestro propio Ser son los veinticuatro Ancianos dentro de nuestro zodíaco individual.)
 
 (Por mandato del Primer Misterio, Sophia contempla la luz, ella ve los misterios del Tesoro secreto de la Luz.)
 
@@ -2536,7 +2536,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (No sería posible perfeccionar las partes superiores de nuestro propio Ser si antes no hemos desintegrado todos esos elementos indeseables que en nuestro interior cargamos.)
 
-(En modo alguno se lograría la perfección de todas las partes autónomas y auto- conscientes de nuestro propio Ser sin los esplendores de Pistis Sophia.)
+(En modo alguno se lograría la perfección de todas las partes autónomas y auto-conscientes de nuestro propio Ser sin los esplendores de Pistis Sophia.)
 
 (Cuando Pistis Sophia asciende a los Aeones superiores, los niveles menos elevados del Ser sufren terriblemente.)
 
@@ -2584,9 +2584,9 @@ María Magdalena pide y recibe permiso para hablar
 
 (Se encuentran disgustados los Regidores porque Sophia no manifiesta su misterio por todas partes; ella esconde sus misterios cuando se debe esconder: "El silencio es la elocuencia de la Sabiduría".)
 
-(Nunca debemos olvidar que los Arcontes de los Aeones y los guardianes de los mismos son las diversas partes auto- conscientes de nuestro propio Ser.)
+(Nunca debemos olvidar que los Arcontes de los Aeones y los guardianes de los mismos son las diversas partes auto-conscientes de nuestro propio Ser.)
 
-(Nuestro Ser parece un ejército de niños inocentes, cada parte del Ser individual es auto-consciente y hasta autónoma.)
+(Nuestro Ser parece un ejército de niños inocentes, cada parte del Ser individual es autoconsciente y hasta autónoma.)
 
 (Dichoso quien logre la integración del Ser.)
 
@@ -2664,7 +2664,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (Los grados de desarrollo de la Razón Objetiva del Ser se conocen por el número de tridentes que lucen en los cuernos de Lucifer individual de cada uno de nosotros.)
 
-(Obviamente, el Lucifer individual de cada uno de nosotros es una reflexión del Logos en nuestro interior, por eso se le llama Christus- Lucifer.)
+(Obviamente, el Lucifer individual de cada uno de nosotros es una reflexión del Logos en nuestro interior, por eso se le llama Christus-Lucifer.)
 
 (Lucifer nos da el Impulso sexual, Lucifer es, por ello, escalera para subir y escalera para bajar.)
 
@@ -2680,7 +2680,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (El Sexto Tridente sobre los cuernos señala el grado del sagrado Anklad.)
 
-(Es necesario conocer los Misterios Taurinos para no alarmarnos con los cuernos luminosos de Christus- Lucifer dentro de cada uno de nosotros.)
+(Es necesario conocer los Misterios Taurinos para no alarmarnos con los cuernos luminosos de Christus-Lucifer dentro de cada uno de nosotros.)
 
 (Recordemos los Cuernos de plata de los grandes Hierofantes.)
 
@@ -2698,7 +2698,7 @@ María Magdalena pide y recibe permiso para hablar
 
 *Pensando así salió de su propia región, la del treceavo Aeón, y bajó a la de los doce Aeones. Los regidores de los Aeones la persiguieron y se enfurecieron contra ella por haber ella pensado en la grandeza. Y ella abandonó también la región de los doce Aeones y entró en las regiones del caos y se acercó a ese poder luz con rostro de león, que la devoraría.*
 
-(Sophia, saliendo del Treceavo Aeón, es algo tremendo que nos invita a la auto- reflexión evidente del Ser.)
+(Sophia, saliendo del Treceavo Aeón, es algo tremendo que nos invita a la auto-reflexión evidente del Ser.)
 
 (El Treceavo Aeón, "13 Serpiente", resulta espantosamente divino.)
 
@@ -2726,7 +2726,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (Quien posee la Piedra Filosofal, el Carbunclo Rojo, puede llegar hasta el Aeón Trece desposando con Pistis Sophia.)
 
-(Mujer- serpiente, numeral trece, indica muerte suprema y suprema liberación.) (Pistis Sophia baja a los doce Aeones cuando lo considera indispensable.)
+(Mujer-serpiente, numeral trece, indica muerte suprema y suprema liberación.) (Pistis Sophia baja a los doce Aeones cuando lo considera indispensable.)
 
 (En modo alguno los Arcontes de los Aeones, que están dentro de nosotros mismos, gustan quedarse sin Sophia.)
 
@@ -2930,9 +2930,9 @@ María Magdalena pide y recibe permiso para hablar
 
 (Esto es posible transmutando el Esperma Sagrado en Energía creadora.)
 
-(Existen dos Caos, el del Macro- cosmos y el del Micro- cosmos.)
+(Existen dos Caos, el del Macro-cosmos y el del Micro-cosmos.)
 
-(El Caos del Micro- cosmos se encuentra en nuestros órganos sexuales.)
+(El Caos del Micro-cosmos se encuentra en nuestros órganos sexuales.)
 
 (En el Caos de la Creación, los elementos y los principios, las tinieblas y la luz, se encuentran confundidos, entremezclados y sin posibilidad de reaccionar unos sobre otros.)
 
@@ -2940,7 +2940,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (Del Caos sale el Cosmos y de las Tinieblas la Luz.)
 
-(En modo alguno podría brotar el Cosmos y la Luz en el Macro- cosmos o en el Micro- cosmos sin el auxilio de Pistis Sophia.)
+(En modo alguno podría brotar el Cosmos y la Luz en el Macro-cosmos o en el Micro-cosmos sin el auxilio de Pistis Sophia.)
 
 (Empero, Sophia quiere ascender hasta el Aeón Trece.)
 
@@ -2970,13 +2970,13 @@ María Magdalena pide y recibe permiso para hablar
 
 (Los Regidores necesitan a Sophia en el Caos para poder realizar la Gran Obra dentro de sí mismos.)
 
-(Ya hemos dicho, y volvemos a repetir, que los Arcontes son las diversas partes autónomas y auto- conscientes de nuestro propio Ser.)
+(Ya hemos dicho, y volvemos a repetir, que los Arcontes son las diversas partes autónomas y auto-conscientes de nuestro propio Ser.)
 
 (La Esencia, por sí misma, dentro de cada uno de nosotros, jamás podría realizar toda la Gran Obra.)
 
-(Es necesario que los Regidores, esto es, las diversas partes auto- conscientes e independientes de nuestro propio Ser, trabajen intensivamente en la Gran Obra.)
+(Es necesario que los Regidores, esto es, las diversas partes auto-conscientes e independientes de nuestro propio Ser, trabajen intensivamente en la Gran Obra.)
 
-(Sólo así, trabajando todas las partes del Ser, podemos llegar a la Auto- realización Intima.)
+(Sólo así, trabajando todas las partes del Ser, podemos llegar a la Auto-realización Intima.)
 
 (La parte superior del Ser debe ayudar intensivamente al hombre, porque si no le auxilia, éste último fracasa, y si el hombre fracasa, la parte superior o las partes superiores, también fracasan.)
 
@@ -3030,7 +3030,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (Pistis Sophia baja hasta el Caos por orden del Padre de todas las luces y por orden del Obstinado.)
 
-(Pistis Sophia, adulterada y absorbida por los bribones del intelecto, convertida en intelectualismo, es la calamidad de esta época del Kali- Yuga.)
+(Pistis Sophia, adulterada y absorbida por los bribones del intelecto, convertida en intelectualismo, es la calamidad de esta época del Kali-Yuga.)
 
 (Ahora abundan las personalidades Kalkianas de esta Edad de Hierro.)
 
@@ -3192,7 +3192,7 @@ María Magdalena pide y recibe permiso para hablar
 
 *- Las simientes de tus ciervos la poseerán y aquellos que amen su nombre morarán ahí.*
 
-(Marah, Isis, Adonía, la Serpiente Ígnea de nuestros mágicos poderes, la "Mujer- serpiente", sufre muchísimo dentro de nosotros mismos.)
+(Marah, Isis, Adonía, la Serpiente Ígnea de nuestros mágicos poderes, la "Mujer-serpiente", sufre muchísimo dentro de nosotros mismos.)
 
 (Isis siempre sufre por su hijo, en nosotros y dentro de nosotros mismos, aquí y ahora.)
 
@@ -3216,7 +3216,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (La Divina Madre Kundalini sufre lo indecible por el hijo. Lucha desintegrando los elementos psíquicos indeseables y responde por su hijo sintiéndose una con el hijo.)
 
-(La Divina Mujer- serpiente siente vergüenza por los pecados del hijo.)
+(La Divina Mujer-serpiente siente vergüenza por los pecados del hijo.)
 
 (Es demasiado lo que hacemos sufrir a nuestra Madre Kundalini.) (El Iniciado, caído en el cieno, sufre lo indecible y las injurias hieren su corazón.) (Aquellos que perdieron su Alma y la recobraron, sufren al ver sus errores.)
 
@@ -3278,7 +3278,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (Los cuatro elementos: Fuego, Agua, Aire y Tierra, se hallan contenidos en el Mercurio de los Sabios; por ello, éstos pueden gobernar los elementos de la Naturaleza.)
 
-(Los elementos de la Naturaleza son gobernados por el Súper- Hombre.)
+(Los elementos de la Naturaleza son gobernados por el Súper-Hombre.)
 
 (La Jerusalem celestial resplandece dentro del Adepto resurrecto.)
 
@@ -3352,7 +3352,7 @@ María Magdalena pide y recibe permiso para hablar
 
 (Obviamente, la piedra cúbica de Yesod es el fundamento de la ciudad de Heliópolis.)
 
-(Indubitablemente, Yesod- Mercurio se encuentra en el Sexo.)
+(Indubitablemente, Yesod-Mercurio se encuentra en el Sexo.)
 
 (Yesod significa a la vez Fundamento y Mercurio, porque éste último es el fundamento del arte transmutatorio.)
 
@@ -3494,21 +3494,21 @@ María Magdalena pide y recibe permiso para hablar
 
 (Ya afirmamos, en forma enfática, que las Doce Potestades son doce partes de nuestro propio Ser.)
 
-(Ya explicamos que las doce partes autónomas y auto- conscientes de nuestro propio ser son los Doce Apóstoles del Drama Cósmico dentro de nosotros mismos, aquí y ahora.)
+(Ya explicamos que las doce partes autónomas y auto-conscientes de nuestro propio ser son los Doce Apóstoles del Drama Cósmico dentro de nosotros mismos, aquí y ahora.)
 
-(Debemos, pues, comprender que Pedro en nosotros todos es esa parte auto- consciente de nuestro Ser interior profundo relacionada con los misterios del sexo.)
+(Debemos, pues, comprender que Pedro en nosotros todos es esa parte auto-consciente de nuestro Ser interior profundo relacionada con los misterios del sexo.)
 
 (Pedro, muriendo crucificado con la cruz invertida y la cabeza hacia abajo, nos está indicando la necesidad de bajar a la Novena Esfera, el sexo, para trabajar con el Fuego y el Agua; toda iniciación Blanca comienza por allí.)
 
-(Pedro da a entender que la Mujer- Serpiente discurre muchas veces.)
+(Pedro da a entender que la Mujer-Serpiente discurre muchas veces.)
 
-(Sin embargo, Pedro y la Mujer- Serpiente, dentro de nosotros, se encuentran íntimamente relacionados.)
+(Sin embargo, Pedro y la Mujer-Serpiente, dentro de nosotros, se encuentran íntimamente relacionados.)
 
-(La Mujer- Serpiente, Stella Maris, debe interrogar a su hijo el Cristo muchas veces, durante la Gran Obra, para ayudarnos.)
+(La Mujer-Serpiente, Stella Maris, debe interrogar a su hijo el Cristo muchas veces, durante la Gran Obra, para ayudarnos.)
 
-(La Mujer- Serpiente es la esposa del Espíritu Santo y la Hija de su Hijo.)
+(La Mujer-Serpiente es la esposa del Espíritu Santo y la Hija de su Hijo.)
 
-(La Mujer- Serpiente es Marah, María, Isis, nuestra Divina Madre Kundalini.)
+(La Mujer-Serpiente es Marah, María, Isis, nuestra Divina Madre Kundalini.)
 
 (Bien sabe el Cristo íntimo que el Pedro interior de cada uno de nos comprende en forma íntegra la solución del Arrepentimiento que Pistis Sophia pronunciara.)
 
@@ -3518,13 +3518,13 @@ María Magdalena pide y recibe permiso para hablar
 
 (Sólo el poder del Espíritu puede comprender las palabras del Cristo íntimo.)
 
-(Es necesario recibir el "Donum- Dei" para comprender toda la ciencia de la Gran Obra.)
+(Es necesario recibir el "Donum-Dei" para comprender toda la ciencia de la Gran Obra.)
 
 (El Arrepentimiento verdadero tiene su fundamento en los misterios sexuales.)
 
 (Es Pedro quien debe expresar la idea del Arrepentimiento en medio de sus Hermanos.)
 
-(Hermanos de Pedro son las otras partes autónomas y auto- conscientes de nuestro propio Ser individual.) **Pedro interpreta el segundo arrepentimiento en el Salmo LXX**
+(Hermanos de Pedro son las otras partes autónomas y auto-conscientes de nuestro propio Ser individual.) **Pedro interpreta el segundo arrepentimiento en el Salmo LXX**
 
 *Y Pedro respondió diciendo a Jesús: Oh! Señor, escucha, pues podría decir la idea de su arrepentimiento, del cual tiempo antes tu poder profetizó a través del Profeta David, quien expresó este arrepentimiento en el Salmo Septuagésimo:*
 
@@ -3932,7 +3932,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 *Y Juan respondió diciendo: "Mi Señor y Salvador, por cuanto a este arrepentimiento que Pistis Sophia expresara, tu poder luz, que estuvo en David, lo profetizó hace tiempo en el Salmo centésimo primero”*
 
-*(*Juan, dentro de nosotros, es el Verbo, la Palabra, una parte autónoma y auto- consciente de nuestro propio Ser.)
+*(*Juan, dentro de nosotros, es el Verbo, la Palabra, una parte autónoma y auto-consciente de nuestro propio Ser.)
 
 (El Poder luz que estuvo en David, esto es: el poder Cristo que en David estuvo, profetizó hace tiempo en el Salmo centésimo Primero.)
 
@@ -4022,7 +4022,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (El nombre del Señor glorificará a Jerusalem.)
 
-(Sión como Hombre real y Jerusalem como Hombre Solar o Súper- Hombre, resplandecerán en el Señor.)
+(Sión como Hombre real y Jerusalem como Hombre Solar o Súper-Hombre, resplandecerán en el Señor.)
 
 **Capítulo 41**
 
@@ -4168,7 +4168,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Son multifacéticos los terrores de los mundos infiernos, dentro de las entrañas de la Tierra.)
 
-(Las diversas partes autónomas y auto- conscientes de nuestro propio Ser deben auxiliar a los Adeptos.)
+(Las diversas partes autónomas y auto-conscientes de nuestro propio Ser deben auxiliar a los Adeptos.)
 
 (El Buddhi, la Beatriz del Dante, la Bella Helena de Troya, el Alma Espíritu, debe auxiliar al Adepto.)
 
@@ -4330,9 +4330,9 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Quebrantar los agregados psíquicos sólo es posible en la Forja de los Cíclopes, en pleno coito químico.)
 
-(Hombre- Mujer, sexualmente unidos, están rodeados de terribles fuerzas cósmicas.)
+(Hombre-Mujer, sexualmente unidos, están rodeados de terribles fuerzas cósmicas.)
 
-(Hombre- Mujer, sexualmente unidos, están rodeados de las terribles fuerzas que pusieron en existencia el Universo.)
+(Hombre-Mujer, sexualmente unidos, están rodeados de las terribles fuerzas que pusieron en existencia el Universo.)
 
 (El hombre es la fuerza positiva, la mujer es la fuerza negativa. La fuerza neutra las concilia a ambas.) (Si las tres fuerzas se dirigen contra un agregado psíquico, éste se reduce a polvareda cósmica.)
 
@@ -4344,7 +4344,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Esa es la clave para desintegrar los agregados psíquicos.)
 
-(Hombre- Mujer, unidos sexualmente, deben orar pidiendo a la Virgen del Mar, Devi Kundalini, desintegre tal o cual agregado psíquico previamente comprendido a fondo.)
+(Hombre-Mujer, unidos sexualmente, deben orar pidiendo a la Virgen del Mar, Devi Kundalini, desintegre tal o cual agregado psíquico previamente comprendido a fondo.)
 
 (Si el hombre quiere desintegrar un agregado psíquico, sea de odio, lujuria, celos, etc., clamará a la Divina Madre Kundalini rogándole desintegre tal agregado, y su mujer, le ayudará con la misma súplica como si el agregado fuera de ella.)
 
@@ -4410,9 +4410,9 @@ Por miedo existe el espionaje y la perversidad.)
 
 (El Iniciado confía en la Luz cuando se encuentra entre Aquellos que moran en las alturas.)
 
-(El Iniciado confía en la Luz cuando trabaja en la súper- oscuridad y el silencio augusto de los Sabios.)
+(El Iniciado confía en la Luz cuando trabaja en la súper-oscuridad y el silencio augusto de los Sabios.)
 
-(Todas las partes autónomas y auto- conscientes de nuestro propio Ser individual deben tener plena confianza en la Luz Interior, aquí y ahora.)
+(Todas las partes autónomas y auto-conscientes de nuestro propio Ser individual deben tener plena confianza en la Luz Interior, aquí y ahora.)
 
 (Cuando trabajamos en el Abismo debemos tener plena confianza en la Luz y no desmayar.)
 
@@ -4550,7 +4550,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (En secuencia y corolario etimológico correcto, el pueblo de Israel está constituido por las distintas partes del Ser.)
 
-(Todas las múltiples partes auto- conscientes e independientes de nuestro propio Ser individual constituyen el pueblo de Israel.)
+(Todas las múltiples partes auto-conscientes e independientes de nuestro propio Ser individual constituyen el pueblo de Israel.)
 
 (La gracia del Señor interior cae en nosotros cuando realmente hemos pasado por la Aniquilación budhista.)
 
@@ -4580,7 +4580,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Recordemos que necesitamos perfeccionar a cada uno de los doce dentro de nosotros mismos, aquí y ahora.)
 
-(El número perfecto dentro de cada uno de nos es la suma total de todas las partes autónomas y auto- conscientes de nuestro propio Ser individual.)
+(El número perfecto dentro de cada uno de nos es la suma total de todas las partes autónomas y auto-conscientes de nuestro propio Ser individual.)
 
 (Existen los doce y los veinticuatro y los siete y los cuatro, etc.)
 
@@ -4588,7 +4588,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Existen los veinticuatro Ancianos del zodíaco dentro de nosotros mismos.)
 
-(Existen los cuatro Deva- Rajas o cuatro genios elementales dentro de nosotros mismos, etc., etc.)
+(Existen los cuatro Deva-Rajas o cuatro genios elementales dentro de nosotros mismos, etc., etc.)
 
 (El León de la Ley existe dentro de nosotros mismos.)
 
@@ -4614,7 +4614,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Son pues, tres los Guardianes del Umbral, tres partes de nuestro propio Ser individual.)
 
-(Cada una de estas tres partes es autónoma, individual y auto- consciente.)
+(Cada una de estas tres partes es autónoma, individual y auto-consciente.)
 
 (Existe el policía del Karma dentro de nosotros mismos, dentro de nuestra Conciencia, él nos conduce ante los tribunales de la Ley cuando violamos la Ley.)
 
@@ -4640,7 +4640,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (La Divina Madre Kundalini, Marah, María, la Mujer Serpiente, sabe muy bien que disueltos los elementos psíquicos indeseables que en nuestro interior cargamos, el Cristo Intimo toma su asiento dentro de nuestra Alma hecha toda Luz y Poder.)
 
-(Todos los discípulos del Cristo Intimo residen dentro de nosotros, son, precisamente, las diversas partes autónomas y auto- conscientes de nuestro propio Ser.)
+(Todos los discípulos del Cristo Intimo residen dentro de nosotros, son, precisamente, las diversas partes autónomas y auto-conscientes de nuestro propio Ser.)
 
 (Los dioses tiranos son realmente aquellas partes autónomas e independientes del Ser, que embotelladas en luces que no son la Luz Crística, insisten en purificar su luz que no es la Luz del Señor.)
 
@@ -4650,7 +4650,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Lo importante está dentro de nosotros mismos.)
 
-(Gnosis es conocimiento. Auto- Gnosis es auto- conocimiento de la Gnosis.)
+(Gnosis es conocimiento. Auto-Gnosis es auto-conocimiento de la Gnosis.)
 
 (El Sabio Fuego morderá a los dioses tiranos hasta que renuncien a tantas doctrinas que existen en el mundo exterior.)
 
@@ -4660,7 +4660,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Alguien puede luchar por su mismísima purificación en forma totalmente equivocada.)
 
-(Sólo por la vía de la Auto- Gnosis marcharemos correctamente.)
+(Sólo por la vía de la Auto-Gnosis marcharemos correctamente.)
 
 (Dios se sentará en la sinagoga de los Dioses y los someterá a juicio.)
 
@@ -4868,17 +4868,17 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Tomás es esa parte del Ser que se relaciona con el sentido íntimo de la comprensión.)
 
-(Muchos análisis, reflexiones, y sobre todo, meditación y auto- reflexión evidente del Ser, son indispensables para la comprensión.)
+(Muchos análisis, reflexiones, y sobre todo, meditación y auto-reflexión evidente del Ser, son indispensables para la comprensión.)
 
-(Cualquier defecto psicológico, descubierto mediante la auto- observación psicológica, debe ser previamente comprendido en todos los niveles de la mente antes de proceder a su desintegración.)
+(Cualquier defecto psicológico, descubierto mediante la auto-observación psicológica, debe ser previamente comprendido en todos los niveles de la mente antes de proceder a su desintegración.)
 
 (Cuando uno acepta que tiene su propia idiosincrasia psicológica, de hecho comienza a auto-observarse de instante en instante.)
 
-(Sólo mediante la auto- observación es posible el auto- descubrimiento.) (En todo auto- descubrimiento existe auto- revelación.)
+(Sólo mediante la auto-observación es posible el auto-descubrimiento.) (En todo auto-descubrimiento existe auto-revelación.)
 
 (Tomás es, pues, cognición, comprensión e infinita paciencia.)
 
-(Los Hermanos de Tomás son los once y aún más, todas las partes autónomas y auto-conscientes del Ser.)
+(Los Hermanos de Tomás son los once y aún más, todas las partes autónomas y autoconscientes del Ser.)
 
 (Incuestionablemente, todas las partes del Ser están obligadas a proveer eso que se llama comprensión.)
 
@@ -4980,9 +4980,9 @@ Por miedo existe el espionaje y la perversidad.)
 
 (La dicha para tales elementales se la tienen bien ganada debido al infinito dolor por el que hubieron de pasar en su peregrinaje por la materia.)
 
-(La Auto- realización íntima del Ser nada tiene que ver con las leyes de la evolución ni de la involución.)
+(La Auto-realización íntima del Ser nada tiene que ver con las leyes de la evolución ni de la involución.)
 
-(La Auto- realización íntima del Ser es la vía de la revolución de la Conciencia, el sendero de la Gran Rebelión.)
+(La Auto-realización íntima del Ser es la vía de la revolución de la Conciencia, el sendero de la Gran Rebelión.)
 
 (Sólo nuestro Dios Intimo puede conducirnos a la experiencia de la Verdad.)
 
@@ -5022,7 +5022,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Sólo quien sabe ser sereno, trabajar y ser paciente, puede ser salvado.)
 
-(Sólo el Dios Intimo puede conducir a Israel, es decir, a todas las partes independientes y auto-conscientes, lejos de todas las aflicciones.)
+(Sólo el Dios Intimo puede conducir a Israel, es decir, a todas las partes independientes y autoconscientes, lejos de todas las aflicciones.)
 
 (Sin embargo, es menester disolver los agregados psíquicos antes de llegar al Puerto de la Suprema Felicidad.)
 
@@ -5038,11 +5038,11 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Esos anacoretas se acostumbraron a desembotellar momentáneamente la Esencia, el Buddhi. Entonces experimentaban el Sartori, el Shamadi, mas pasada esa experiencia mística volvían como el genio de la lámpara de Aladino, a la botella.)
 
-(Algunos de estos Santos desencarnaron en pleno Maha- Shamadi. Sin embargo, hoy en día tales seres han retornado como personas vulgares, comunes y corrientes.)
+(Algunos de estos Santos desencarnaron en pleno Maha-Shamadi. Sin embargo, hoy en día tales seres han retornado como personas vulgares, comunes y corrientes.)
 
 (Fuertes en Shamadi, pero al no trabajar el ego, el resultado es el fracaso.)
 
-(La experiencia del Vacío Iluminador no significa la auto- realización del Vacío Iluminador.)
+(La experiencia del Vacío Iluminador no significa la auto-realización del Vacío Iluminador.)
 
 (Lo que Tomás sabe lo ha recibido del Cristo Intimo.)
 
@@ -5132,7 +5132,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Las emanaciones del obstinado ego molestan a Pistis Sophia, mas cesan un poco cuando ésta pasa a un nivel superior del Ser.)
 
-(Siempre que el iniciado pasa por una re-valuación del Ser, por un tiempo cesan los ataques de los tenebrosos, para volver más tarde a una nueva actividad.)
+(Siempre que el iniciado pasa por una revaluación del Ser, por un tiempo cesan los ataques de los tenebrosos, para volver más tarde a una nueva actividad.)
 
 (Empero, Pistis Sophia en cada lucha vuelve al arrepentimiento, una y otra vez.)
 
@@ -5174,7 +5174,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (El Cristo Intimo es severo contra aquellos que vigilan a Pistis Sophia.)
 
-(Sólo el Cristo- Luz puede sacar a Sophia en forma definitiva fuera del Caos.)
+(Sólo el Cristo-Luz puede sacar a Sophia en forma definitiva fuera del Caos.)
 
 (El poder rostro de león es el poder de la Ley.)
 
@@ -5210,11 +5210,11 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Buddhi es como un vaso de alabastro fino y transparente dentro del cual arde la llama de Prajna.)
 
-(Buddhi- Manas unidos, fusionados, integrados, nos confieren la Luz.)
+(Buddhi-Manas unidos, fusionados, integrados, nos confieren la Luz.)
 
 (En Buddhi, como un vaso de alabastro, están contenidos todos los poderes de la Luz.)
 
-(Obviamente, al fusionarse Buddhi- Manas, se establece la Luz en nosotros.)
+(Obviamente, al fusionarse Buddhi-Manas, se establece la Luz en nosotros.)
 
 #### Prosigue su arrepentimiento.
 
@@ -5260,25 +5260,25 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Sólo mediante la Electricidad Sexual Trascendente podemos desintegrar la totalidad de Mercurio seco para liberar a Pistis Sophia.)
 
-(La Mujer- Serpiente es reforzada en la Fragua encendida de Vulcano.) (Bien sabemos que la Fragua encendida de Vulcano es el sexo, el acto sexual.)
+(La Mujer-Serpiente es reforzada en la Fragua encendida de Vulcano.) (Bien sabemos que la Fragua encendida de Vulcano es el sexo, el acto sexual.)
 
 (No derramar el esperma sagrado es fundamental para trabajar en la Fragua encendida de Vulcano.)
 
-(En esos instantes, la Mujer- Serpiente, reforzada por la Electricidad Sexual Trascendente, puede realizar prodigios y maravillas.)
+(En esos instantes, la Mujer-Serpiente, reforzada por la Electricidad Sexual Trascendente, puede realizar prodigios y maravillas.)
 
-(Devi Kundalini es la Mujer- Serpiente en nosotros.)
+(Devi Kundalini es la Mujer-Serpiente en nosotros.)
 
 (Stella Maris, la Virgen del Mar, la serpiente ígnea de nuestros mágicos poderes, puede desintegrar al ego.)
 
-(La Mujer- Serpiente tiene en su poder las armas maravillosas de Vulcano.)
+(La Mujer-Serpiente tiene en su poder las armas maravillosas de Vulcano.)
 
-(Sólo en la Novena Esfera y con ayuda de la Mujer- Serpiente es posible la desintegración total de todos los agregados psíquicos.)
+(Sólo en la Novena Esfera y con ayuda de la Mujer-Serpiente es posible la desintegración total de todos los agregados psíquicos.)
 
 (La Novena Esfera es el sexo, la cópula metafísica, el coito químico.)
 
-(La Mujer- Serpiente salva a Pistis Sophia.)
+(La Mujer-Serpiente salva a Pistis Sophia.)
 
-(El hombre y la mujer, sexualmente unidos, son el fundamento del androginismo Lumi- solar de IO, Isis- Osiris.)
+(El hombre y la mujer, sexualmente unidos, son el fundamento del androginismo Lumi-solar de IO, Isis-Osiris.)
 
 (¡Solda!, Parabrahman y Mulaprakriti, son lo mismo, androginismo puro.)
 
@@ -5396,11 +5396,11 @@ Por miedo existe el espionaje y la perversidad.)
 
 (El peplo, que la recubría por completo, ha resbalado a lo largo del cuerpo, y retenido por la saliente del brazo se dobla en su parte inferior.)
 
-(La Justicia dentro de nosotros es una parte auto-consciente del Ser.)
+(La Justicia dentro de nosotros es una parte autoconsciente del Ser.)
 
 (La Justicia dentro de nosotros debe auto-realizarse íntimamente.)
 
-(Minerva, hija de Júpiter, dentro de nosotros y como parte autónoma y auto- consciente del Ser, es la virtud cardinal de la Justicia.)
+(Minerva, hija de Júpiter, dentro de nosotros y como parte autónoma y auto-consciente del Ser, es la virtud cardinal de la Justicia.)
 
 (Minerva es también Sabiduría Divina y pleno conocimiento de todas las cosas.)
 
@@ -5412,11 +5412,11 @@ Por miedo existe el espionaje y la perversidad.)
 
 (La Diosa de la Justicia apoya el pie izquierdo en una piedra cúbica.)
 
-(La honda significación de todo esto la explicaremos en nuestro próximo libro titulado "La Gran Obra".) (En todo caso, necesitamos Auto- realizar íntimamente a la Diosa de la Justicia dentro de nosotros mismos.)
+(La honda significación de todo esto la explicaremos en nuestro próximo libro titulado "La Gran Obra".) (En todo caso, necesitamos Auto-realizar íntimamente a la Diosa de la Justicia dentro de nosotros mismos.)
 
-(El Cristo- Señor nuestro, dentro de nosotros mismos, puede salvarnos según la Justicia.)
+(El Cristo-Señor nuestro, dentro de nosotros mismos, puede salvarnos según la Justicia.)
 
-(En modo alguno podríamos auto- realizar íntimamente a Minerva dentro de nosotros mismos si no pasáramos antes por la Aniquilación budhista.)
+(En modo alguno podríamos auto-realizar íntimamente a Minerva dentro de nosotros mismos si no pasáramos antes por la Aniquilación budhista.)
 
 (El Señor Intimo es nuestro Dios Protector.)
 
@@ -5430,7 +5430,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (El Señor auxilia a quienes luchan por desintegrar los agregados psíquicos de la vanidad.)
 
-(En modo alguno sería posible mantener correctas relaciones con el Señor Intimo y con todas las partes independientes y auto- conscientes del Ser si no aniquilamos antes todos los agregados psíquicos de la vanidad.)
+(En modo alguno sería posible mantener correctas relaciones con el Señor Intimo y con todas las partes independientes y auto-conscientes del Ser si no aniquilamos antes todos los agregados psíquicos de la vanidad.)
 
 (La vanidad destruye las posibilidades de la iluminación.)
 
@@ -5452,7 +5452,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Múltiples son los agregados psíquicos de la ira, los hay de celos, o por odio, o por cualquier deseo frustrado, o por motivos monetarios egoístas, o por asuntos de pleitos, o por terror, o por estados de ánimo, mente, cuerpo y lengua, etc., etc., etc.)
 
-(Uno debe auto- observarse durante un ataque de ira para especificar realmente cuál es la clase de ira que nos invade en un momento dado.)
+(Uno debe auto-observarse durante un ataque de ira para especificar realmente cuál es la clase de ira que nos invade en un momento dado.)
 
 (A veces la ira se debe al amor propio o a la vanidad herida.)
 
@@ -5582,7 +5582,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (El número perfecto está completo dentro de nosotros cuando se ha logrado la reintegración del Ser.)
 
-(El Universo interior de cada uno de nos queda listo cuando se ha logrado la reintegración total de todas las partes autónomas y auto- conscientes del Ser.)
+(El Universo interior de cada uno de nos queda listo cuando se ha logrado la reintegración total de todas las partes autónomas y auto-conscientes del Ser.)
 
 (El trono del Cristo Intimo está precisamente en el Tesoro de la Luz.)
 
@@ -5622,7 +5622,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Los doce Apóstoles son en realidad doce partes de nuestro propio Ser Interior Profundo, doce poderes-luz.) (Recordemos que la Jerusalem Celestial tiene doce puertas y que en cada puerta existe un ángel.)
 
-(Estos doce ángeles son doce poderes- luz, doce partes del Ser.)
+(Estos doce ángeles son doce poderes-luz, doce partes del Ser.)
 
 (Cada parte del Ser es inefable y terriblemente divina.)
 
@@ -5634,9 +5634,9 @@ Por miedo existe el espionaje y la perversidad.)
 
 (La caña de oro es el Bastón de Brahma, la Vara de Aarón.)
 
-(Los doce Salvadores son los mismos doce Poderes- luz.)
+(Los doce Salvadores son los mismos doce Poderes-luz.)
 
-(Los órdenes de los doce Salvadores, los procesos de los doce Poderes- luz, deben ser restaurados en las Herencias de cada uno de ellos.)
+(Los órdenes de los doce Salvadores, los procesos de los doce Poderes-luz, deben ser restaurados en las Herencias de cada uno de ellos.)
 
 (La Herencia perdida, la Herencia secreta, existe dentro de nosotros mismos.)
 
@@ -5648,7 +5648,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Ciertamente, necesitamos comprender las enseñanzas del Cristo Intimo.)
 
-(Necesitamos volvernos serios si es que en verdad queremos llegar a la integración de todas las partes autónomas y auto- conscientes del Ser.)
+(Necesitamos volvernos serios si es que en verdad queremos llegar a la integración de todas las partes autónomas y auto-conscientes del Ser.)
 
 (Muchos son los aspirantes que creyendo ser serios no lo son.)
 
@@ -5666,7 +5666,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (La cuestión aquella de las novedades, fascinan a los gnósticos que no son serios.) (Gnósticos así, gnósticos que no son serios, gnósticos que andan buscando y jugando, fracasan definitivamente.)
 
-(Sólo los gnósticos que trabajan sobre sí mismos pueden auto- realizarse integralmente.)
+(Sólo los gnósticos que trabajan sobre sí mismos pueden auto-realizarse integralmente.)
 
 (Existen siete niveles del Ser.)
 
@@ -5770,7 +5770,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 *- Y se han vengado con todo este mal porque he tenido fe en la Luz de las alturas; y ellos han dejado a mi poder sin luz.*
 
-*- Mas cuando me constreñían, y me senté en la oscuridad y mi alma se doblegó, lamentándose. - Realízalo, ¡Oh! Luz, - por esta razón te ensalzo- sálvame. Yo sé que me salvarás porque he cumplido en todo momento tu voluntad, desde que estaba en mi Aeón. Cumplí tu voluntad como los invisibles que están en mi región, y como mi par; y lloraba buscando incesantemente tu luz.*
+*- Mas cuando me constreñían, y me senté en la oscuridad y mi alma se doblegó, lamentándose. - Realízalo, ¡Oh! Luz, - por esta razón te ensalzo-sálvame. Yo sé que me salvarás porque he cumplido en todo momento tu voluntad, desde que estaba en mi Aeón. Cumplí tu voluntad como los invisibles que están en mi región, y como mi par; y lloraba buscando incesantemente tu luz.*
 
 *- Ahora todas las emanaciones de Obstinado me han rodeado y se han regocijado, por mi causa, y me han oprimido dolorosamente sin yo conocerlas. Y han volado lejos y cesado de oprimirme, pero no han tenido piedad de mí.*
 
@@ -5806,15 +5806,15 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Las tinieblas envuelven a los opresores, éstos últimos son los elementos psíquicos indeseables que en nuestro interior cargamos.)
 
-(Pistis Sophia, como Poder- Sabiduría, debe humillarse ante el Cristo Intimo.)
+(Pistis Sophia, como Poder-Sabiduría, debe humillarse ante el Cristo Intimo.)
 
 (Los demonios rojos de Seth arrebatan la luz al Iniciado, se roban parte de la Conciencia de éste.)
 
 (Los demonios rojos de Seth, esto es, los agregados psíquicos que en nuestro interior cargamos, deben caer en el lago ardiente con fuego y azufre que es la muerte segunda.) (Cuando el poder del ego se vuelve polvo surge la iluminación de LEW.)
 
-(LEW es el iluminador, una de las partes auto- conscientes del Ser.)
+(LEW es el iluminador, una de las partes auto-conscientes del Ser.)
 
-(LEW desarrolla en cada uno de nos el sentido de la auto- observación psicológica.)
+(LEW desarrolla en cada uno de nos el sentido de la auto-observación psicológica.)
 
 (LEW puede, además, perseguir y arrojar a los demonios rojos de Seth al Caos.)
 
@@ -5830,7 +5830,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Las tinieblas del ego y del Abismo es otro modo de la luz, diríamos, luz de la gama del infrarrojo.)
 
-(La luz del poder rostro de león es Luz- Justicia, y Pistis Sophia, desesperada, protesta contra el Karma, contra la Ley.)
+(La luz del poder rostro de león es Luz-Justicia, y Pistis Sophia, desesperada, protesta contra el Karma, contra la Ley.)
 
 (El poder de Pistis Sophia se regocija en la Luz y se alegra de ser salvada por ella.)
 
@@ -5858,11 +5858,11 @@ Por miedo existe el espionaje y la perversidad.)
 
 (El Señor profundo se encuentra siempre en el Aeón Trece.)
 
-(Sin embargo, es necesario saber que nuestro Budha interior es tan sólo el desdoblamiento de Adhi- Budha, el Inmanifestado.)
+(Sin embargo, es necesario saber que nuestro Budha interior es tan sólo el desdoblamiento de Adhi-Budha, el Inmanifestado.)
 
-(Adhi- Budha es el Incognoscible e Inmanifestado Señor. Cada uno de nosotros tiene su Adhi-Budha.)
+(Adhi-Budha es el Incognoscible e Inmanifestado Señor. Cada uno de nosotros tiene su Adhi-Budha.)
 
-(No es posible conocer durante el Gran Día Cósmico al Inmanifestado Adhi- Budha.)
+(No es posible conocer durante el Gran Día Cósmico al Inmanifestado Adhi-Budha.)
 
 (Ahora comprendemos por qué Jesús el Gran Kabir, hablaba siempre de LEW, el Padre de su Padre.)
 
@@ -5884,9 +5884,9 @@ Por miedo existe el espionaje y la perversidad.)
 
 (La Inteligencia Cósmica es el Fuego, los Creadores, los Inefables que emanan de entre las entrañas del Incognoscible al iniciarse la Aurora de la Creación en cualquier Universo.)
 
-(Ningún Budha de contemplación puede integrarse con Adhi- Budha antes de la Noche Cósmica.)
+(Ningún Budha de contemplación puede integrarse con Adhi-Budha antes de la Noche Cósmica.)
 
-(Terribles son los Misterios de la Luz y sólo Adhi- Budha los conoce totalmente.)
+(Terribles son los Misterios de la Luz y sólo Adhi-Budha los conoce totalmente.)
 
 (Los invisibles que están en la región del Aeón Trece y el Par o Alma gemela de cualquier Iniciado, saben hacer la voluntad del Padre de todas las luces.)
 
@@ -5936,7 +5936,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Entre los Sephirot Binah y Chesed está el primer Caos, aquél del cual surge el Cosmos.)
 
-(En Jesod- Mercurio, centro sexual humano, existe el segundo Caos, aquél del cual brotan los principios fundamentales del hombre.)
+(En Jesod-Mercurio, centro sexual humano, existe el segundo Caos, aquél del cual brotan los principios fundamentales del hombre.)
 
 (Bajo los Trece Aeones, en la región de los Qliphote, en el mundo soterrado, existe el tercer Caos, los Mundos Infiernos.)
 
@@ -5960,9 +5960,9 @@ Por miedo existe el espionaje y la perversidad.)
 
 (El Padre de todas las luces, a través de nuestro propio Santiago Interior, nos enseña los misterios de la Gran Obra.)
 
-(Es pues, Santiago, una de las partes autónomas y auto- conscientes de nuestro propio Ser.)
+(Es pues, Santiago, una de las partes autónomas y auto-conscientes de nuestro propio Ser.)
 
-("Santiago- Mercurio", se encuentra íntimamente relacionado con la ciencia transmutatoria del Jesod- Mercurio.)
+("Santiago-Mercurio", se encuentra íntimamente relacionado con la ciencia transmutatoria del Jesod-Mercurio.)
 
 (El libro fundamental de la Gran Obra, que Santiago lleva en sus manos, es el Apocalipsis.) (Incuestionablemente, el Apocalipsis es el libro de la Sabiduría que sólo es comprensible para los Alquimistas.)
 
@@ -6060,7 +6060,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Que el Ángel del Señor aflija a los agregados psíquicos.)
 
-(El Ángel del Señor es otra parte de nuestro propio Ser en la sala de la Verdad- Justicia.)
+(El Ángel del Señor es otra parte de nuestro propio Ser en la sala de la Verdad-Justicia.)
 
 (Los tenebrosos ponen trampas para Pistis Sophia y se burlan del Iniciado.)
 
@@ -6154,19 +6154,19 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Todos los Invisibles y todos los Dioses dentro de nosotros y todos los Regidores del Treceavo Aeón y del Doceavo Aeón, se inclinan reverentes ante Santiago.)
 
-(En realidad, todos esos Invisibles y todos esos Dioses y Regidores del Doceavo y del Treceavo Aeón, son las múltiples partes soberanas y auto- conscientes de nuestro propio Ser individual.)
+(En realidad, todos esos Invisibles y todos esos Dioses y Regidores del Doceavo y del Treceavo Aeón, son las múltiples partes soberanas y auto-conscientes de nuestro propio Ser individual.)
 
 (Todos aquellos que realicen los Misterios Crísticos, un día regresarán al Aeón Trece.)
 
 (El Aeón Trece es Ain, Sat, la Seidad.)
 
-(Más allá del Aeón Trece está el Eterno Padre Cósmico Común y el Adhi- Budha, el Budha de nuestro Budha individual.)
+(Más allá del Aeón Trece está el Eterno Padre Cósmico Común y el Adhi-Budha, el Budha de nuestro Budha individual.)
 
-(Adhi- Budha es el Padre de nuestro Padre, mas nunca viene a la Manifestación porque es lo Divinal Incognoscible.)
+(Adhi-Budha es el Padre de nuestro Padre, mas nunca viene a la Manifestación porque es lo Divinal Incognoscible.)
 
-(Sólo al final del Mahanvantara, después de habernos integrado con nuestro Padre que está en secreto, nos integramos también con el Adhi- Budha.)
+(Sólo al final del Mahanvantara, después de habernos integrado con nuestro Padre que está en secreto, nos integramos también con el Adhi-Budha.)
 
-(Esta integración con el Adhi- Budha se realiza en el Mahapralaya, en la Noche Cósmica y entre el seno del Espacio Abstracto Absoluto.)
+(Esta integración con el Adhi-Budha se realiza en el Mahapralaya, en la Noche Cósmica y entre el seno del Espacio Abstracto Absoluto.)
 
 #### María interpreta las palabras de Jesús.
 
@@ -6174,7 +6174,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 *María se adelantó de nuevo y dijo: "Sí, Señor, esto es lo que tú nos has dicho: "Los últimos serán los primeros y los primeros serán los últimos". Así pues los primeros fueron creados antes que nosotros, son los invisibles, pues ciertamente ellos surgieron antes que la humanidad; ellos y los dioses, y los regidores; y los hombres que recibirán los Misterios serán los primeros en el reino de los cielos".*
 
-("Los últimos serán los primeros y los primeros serán los últimos". Así dice Marah, María, la Mujer- Serpiente, la Divina Madre Kundalini.)
+("Los últimos serán los primeros y los primeros serán los últimos". Así dice Marah, María, la Mujer-Serpiente, la Divina Madre Kundalini.)
 
 (Obviamente, los Invisibles que fueron antes que la humanidad, ellos y los Dioses y los Regidores y los Hombres que recibirán los Misterios, serán los primeros en el Reino de los Cielos.)
 
@@ -6314,7 +6314,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Quienes calumnian a los Hierofantes del sexo, involucionan entre las entrañas de la Tierra hasta la muerte segunda.)
 
-(Hablar contra los misterios del sexo, implica atacar al Pedro Intimo, a esa parte autónoma y auto- consciente de nuestro propio Ser relacionada con el sexo.)
+(Hablar contra los misterios del sexo, implica atacar al Pedro Intimo, a esa parte autónoma y auto-consciente de nuestro propio Ser relacionada con el sexo.)
 
 (Fuerte es el que se hace fuerte en la Magia sexual.)
 
@@ -6428,7 +6428,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Las veinticuatro emanaciones son los veinticuatro Ancianos dentro de nosotros mismos, viva personificación del zodíaco microcósmico.)
 
-(Los veinticuatro Ancianos o veinticuatro partes autónomas y auto-conscientes de nuestro propio Ser, verán lo que ha ocurrido ante el León de la Ley, temerán y no desobedecerán sino que darán la purificación de sus luces.)
+(Los veinticuatro Ancianos o veinticuatro partes autónomas y autoconscientes de nuestro propio Ser, verán lo que ha ocurrido ante el León de la Ley, temerán y no desobedecerán sino que darán la purificación de sus luces.)
 
 (De sus luces, irradia una purificación Divinal, Inefable.)
 
@@ -6478,7 +6478,7 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Obviamente, ninguno de los personajes de Pistis Sophia está fuera de nosotros mismos.)
 
-(Incuestionablemente, todos los personajes de Pistis Sophia son partes autónomas y auto-conscientes de nuestro propio Ser.)
+(Incuestionablemente, todos los personajes de Pistis Sophia son partes autónomas y autoconscientes de nuestro propio Ser.)
 
 (El Ser parece un ejército de niños, así le percibimos los "Hermanos de Servicio" con la visión de tipo Olooestenokhniana.)
 
@@ -6498,11 +6498,11 @@ Por miedo existe el espionaje y la perversidad.)
 
 (Salomé conoce lo bueno de lo malo y lo malo de lo bueno.) (Cada parte de nuestro propio Ser tiene su ministerio sagrado.)
 
-(Arriba y abajo, en el Macro- cosmos y en el Microcosmos hombre, los poderes creadores están divididos esotéricamente en siete, tres y cuatro, dentro de las doce grandes Ordenes Cósmicas que recuerdan a los doce signos zodiacales en el Macro- cosmos y en el Micro- cosmos.)
+(Arriba y abajo, en el Macro-cosmos y en el Microcosmos hombre, los poderes creadores están divididos esotéricamente en siete, tres y cuatro, dentro de las doce grandes Ordenes Cósmicas que recuerdan a los doce signos zodiacales en el Macro-cosmos y en el Micro-cosmos.)
 
-(El grupo más elevado en el Macro- cosmos y dentro del Micro- cosmos hombre, está constituido por los Leones de Fuego o "Leones de la vida" del signo zodiacal de Leo.)
+(El grupo más elevado en el Macro-cosmos y dentro del Micro-cosmos hombre, está constituido por los Leones de Fuego o "Leones de la vida" del signo zodiacal de Leo.)
 
-(No está de más recordar que así como existe el cinturón zodiacal en el firmamento, así también existen dentro del hombre las llamas de la constelación de Leo. En el Macrocosmos y dentro del Micro- cosmos hombre es la Jerarquía del Fuego lo más importante.)
+(No está de más recordar que así como existe el cinturón zodiacal en el firmamento, así también existen dentro del hombre las llamas de la constelación de Leo. En el Macrocosmos y dentro del Micro-cosmos hombre es la Jerarquía del Fuego lo más importante.)
 
 (Después de esta pequeña digresión necesaria para aclarar conceptos, continuaremos con los versículos bíblicos citados por Salomé y su correspondiente comentario.)
 
@@ -6978,13 +6978,13 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Durante la meditación interior profunda exploramos al "Yo" psicológico.)
 
-(Durante la meditación interior profunda sólo nos proponemos comprender integralmente aquel defecto psicológico descubierto en auto- observación.)
+(Durante la meditación interior profunda sólo nos proponemos comprender integralmente aquel defecto psicológico descubierto en auto-observación.)
 
-(Cada defecto auto- observado debe ser previamente comprendido a través de la meditación antes de proceder a su eliminación.)
+(Cada defecto auto-observado debe ser previamente comprendido a través de la meditación antes de proceder a su eliminación.)
 
 (Oración y magia sexual son indispensables para la eliminación.)
 
-(Es en la Novena Esfera, durante la conexión del "Lingam- Yoni", cuando se debe orar.)
+(Es en la Novena Esfera, durante la conexión del "Lingam-Yoni", cuando se debe orar.)
 
 (Se suplicará en esos instantes a la Divina Madre Kundalini que desintegre y elimine aquel agregado psíquico que previamente hayamos comprendido.)
 
@@ -7022,7 +7022,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Es urgente dejar de existir dentro de la herejía de la separatividad o en la dicha del Vacío Iluminador.)
 
-(Se hace impostergable auto- realizar dentro de sí mismos a eso que se llama "Talidad".)
+(Se hace impostergable auto-realizar dentro de sí mismos a eso que se llama "Talidad".)
 
 (La "Talidad" es la Gran Realidad, más allá de la perversidad y de la santidad.)
 
@@ -7032,21 +7032,21 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (La Gran Realidad es la Gran Realidad, la "Talidad"; los santos y los perversos giran dentro de la gran rueda del Samsara y por ello están muy lejos de la "Talidad".)
 
-(Empero, debemos tener mucho cuidado con el agregado psíquico de los auto- méritos.)
+(Empero, debemos tener mucho cuidado con el agregado psíquico de los auto-méritos.)
 
-(El agregado psíquico de los auto- méritos nos hace nacer en los cielos o en la tierra nuevamente.)
+(El agregado psíquico de los auto-méritos nos hace nacer en los cielos o en la tierra nuevamente.)
 
-(El agregado psíquico de los auto- méritos nos aleja de la "Talidad".)
+(El agregado psíquico de los auto-méritos nos aleja de la "Talidad".)
 
 (Nosotros jamás tenemos méritos reales porque quien realiza toda obra verdadera es el Padre.)
 
 (El primer principio de la Doctrina Gnóstica es la "Talidad" o Gran Realidad.)
 
-(El Cristo Intimo debe destruir en nosotros al agregado psíquico del auto- mérito para llevarnos a la "Talidad".)
+(El Cristo Intimo debe destruir en nosotros al agregado psíquico del auto-mérito para llevarnos a la "Talidad".)
 
 (El Señor levanta a los caídos.)
 
-(Trabajad con la Mujer- Serpiente y el Señor os salvará.)
+(Trabajad con la Mujer-Serpiente y el Señor os salvará.)
 
 **Capítulo 57**
 
@@ -7060,7 +7060,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Cristo es la Luz de las luces, el cual, en sí mismo, es uno con el Padre.)
 
-(El Cristo Intimo o Chistus- Vishnú es la Luz de las Luces.)
+(El Cristo Intimo o Chistus-Vishnú es la Luz de las Luces.)
 
 (Brahma, Vishnú, Shiva, Padre, Hijo, Espíritu Santo, es la luz de las luces.)
 
@@ -7100,9 +7100,9 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (El Aeón Trece es la región de Ain, Absoluto Inmanifestado.)
 
-(Cada uno de los trece Aeones debe ser auto- realizado en nosotros.)
+(Cada uno de los trece Aeones debe ser auto-realizado en nosotros.)
 
-(Pistis Sophia debe auto- realizarse en los trece Aeones a base de trabajos conscientes y padecimientos voluntarios.)
+(Pistis Sophia debe auto-realizarse en los trece Aeones a base de trabajos conscientes y padecimientos voluntarios.)
 
 #### Treceavo arrepentimiento de Pistis Sophia.
 
@@ -7134,7 +7134,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Sólo el Cristo Intimo puede perdonar los pecados.)
 
-(El Señor también otorga ese poder a la "Mujer- Serpiente".)
+(El Señor también otorga ese poder a la "Mujer-Serpiente".)
 
 (El Poder Rostro de León es la Ley del Karma en acción castigando a Pistis Sophia.)
 
@@ -7208,9 +7208,9 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 **Capítulo 58**
 
-**Jesús envía un poder- luz para ayudar a Sophia.**
+**Jesús envía un poder-luz para ayudar a Sophia.**
 
-*Y Jesús continuó con su discurso diciendo a sus discípulos: "Sucedió entonces, cuando Pistis Sophia pronunció estas palabras, que el tiempo se había cumplido para que ella fuese conducida fuera del caos. Y de mí mismo, sin el Primer Misterio, envié su poder- luz hacia el caos para que condujese a Pistis Sophia fuera de las profundas regiones y hasta las altas regiones del caos, donde el mandato del Primer Misterio le llegase y pudiese entonces ser conducida fuera del caos. Y mi poder -luz condujo a Pistis Sophia a las regiones superiores del caos. Sucedió entonces que cuando las emanaciones de Obstinado notaron que Pistis Sophia era conducida hacia las regiones superiores del caos, que se apresuraron tras ella, deseando bajarla de nuevo a las regiones inferiores. Entonces mi poder - luz, el que yo enviara para conducir a Sophia fuera del caos, brilló extraordinariamente y cuando ella se vio en las regiones superiores del caos cantó de nuevo sus alabanzas diciendo en voz alta:*
+*Y Jesús continuó con su discurso diciendo a sus discípulos: "Sucedió entonces, cuando Pistis Sophia pronunció estas palabras, que el tiempo se había cumplido para que ella fuese conducida fuera del caos. Y de mí mismo, sin el Primer Misterio, envié su poder-luz hacia el caos para que condujese a Pistis Sophia fuera de las profundas regiones y hasta las altas regiones del caos, donde el mandato del Primer Misterio le llegase y pudiese entonces ser conducida fuera del caos. Y mi poder -luz condujo a Pistis Sophia a las regiones superiores del caos. Sucedió entonces que cuando las emanaciones de Obstinado notaron que Pistis Sophia era conducida hacia las regiones superiores del caos, que se apresuraron tras ella, deseando bajarla de nuevo a las regiones inferiores. Entonces mi poder - luz, el que yo enviara para conducir a Sophia fuera del caos, brilló extraordinariamente y cuando ella se vio en las regiones superiores del caos cantó de nuevo sus alabanzas diciendo en voz alta:*
 
 (Es obvio que al llegar Pistis Sophia al Aeón Trece debe salir del Caos.)
 
@@ -7228,7 +7228,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Como quiera que el trabajo se hace en el caos, hay que ascender.)
 
-(Sólo con el auxilio del Cristo Intimo y mediante el poder- luz, podemos ascender.)
+(Sólo con el auxilio del Cristo Intimo y mediante el poder-luz, podemos ascender.)
 
 (El mandato del Primer Misterio llega siempre a las elevadas regiones del caos, empero, sólo con ayuda del Cristo Intimo y mediante el intensivo trabajo sexual es posible ascender a las elevadas regiones.)
 
@@ -7250,7 +7250,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Los cuarenta y nueve fuegos arden dentro del Universo y dentro del hombre.)
 
-(Los cuarenta y nueve fuegos son las cuarenta y nueve partes autónomas y auto- independientes de nuestro propio Ser.)
+(Los cuarenta y nueve fuegos son las cuarenta y nueve partes autónomas y auto-independientes de nuestro propio Ser.)
 
 (Nuestro Ser tiene pues, cuarenta y nueve partes independientes.)
 
@@ -7368,9 +7368,9 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 *Jesús continuó entonces en su discurso diciendo a sus discípulos: "Sucedió entonces, cuando Pistis Sophia terminó de decir estas palabras en el caos, que el poder - luz que envié a salvarla se convirtió en aureola sobre su cabeza, así que en adelante las emanaciones de Obstinado no tendrían dominio sobre ella. Y cuando se formó esa aureola todas las viles materias en ella fueron sacudidas y purificadas. Perecieron y permanecieron en el caos, mientras las emanaciones de Obstinado las contemplaban y se regocijaban. Y la purificación de la luz pura que había en Pistis Sophia dio fuerza a la luz de mi poder - luz que se había convertido en aureola alrededor de su cabeza.*
 
-*Así, ocurrió que al rodear la aureola la luz pura de Sophia, esta luz ya no se separó de la aureola de poder luz- flama, así que las emanaciones de Obstinado no las robarían, y cuando ello sucedió la pura luz del poder de Sophia empezó a cantar alabanzas. Alabó mi poder - luz, que era la aureola alrededor de su cabeza, y cantó de esta manera:*
+*Así, ocurrió que al rodear la aureola la luz pura de Sophia, esta luz ya no se separó de la aureola de poder luz-flama, así que las emanaciones de Obstinado no las robarían, y cuando ello sucedió la pura luz del poder de Sophia empezó a cantar alabanzas. Alabó mi poder - luz, que era la aureola alrededor de su cabeza, y cantó de esta manera:*
 
-(El poder- luz del Cristo Intimo se encuentra en la sustancia cristónica del Logos Solar.)
+(El poder-luz del Cristo Intimo se encuentra en la sustancia cristónica del Logos Solar.)
 
 (Esta sustancia maravillosa es el Esperma Sagrado.)
 
@@ -7388,7 +7388,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Es obvio que los tenebrosos se sienten satisfechos cuando la sentencia de la logia negra se cumple.)
 
-(Los tribunales de la fraternidad tenebrosa condenan a muerte al Iniciado.) (La luz de Pistis Sophia debe purificarse para dar fuerza a la luz del poder- luz que se convierte en aureola alrededor de la cabeza del Iniciado.)
+(Los tribunales de la fraternidad tenebrosa condenan a muerte al Iniciado.) (La luz de Pistis Sophia debe purificarse para dar fuerza a la luz del poder-luz que se convierte en aureola alrededor de la cabeza del Iniciado.)
 
 (La aureola del Cristo Intimo se hace una con la luz pura de Pistis Sophia, así es oro y flama.)
 
@@ -7404,7 +7404,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 *- Y aun cuando todas las materias se sacudan, yo no seré sacudida.*
 
-*- Y aun cuando todas mis materias perezcan y permanezcan en el caos - esas emanaciones que Obstinado ve- yo no pereceré.*
+*- Y aun cuando todas mis materias perezcan y permanezcan en el caos - esas emanaciones que Obstinado ve-yo no pereceré.*
 
 *- Pues tu luz está en mí y yo estoy con la Luz." “Estas fueron las palabras de Pistis Sophia. Ahora y por tanto, que aquél que comprenda el sentido de sus palabras, venga aquí y proclame su solución."*
 
@@ -7422,7 +7422,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (La glándula pineal y la pituitaria se hallan unidas mediante un canal nervioso desaparecido en los cadáveres.)
 
-(En la glándula pituitaria se halla localizado el sentido de la auto-observación psicológica.)
+(En la glándula pituitaria se halla localizado el sentido de la autoobservación psicológica.)
 
 (Las auras maravillosas de la pituitaria y pineal resplandecen gloriosamente iluminadas e integradas en la cabeza de los Cristificados.)
 
@@ -7448,7 +7448,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 *Entonces Maria, la madre de Jesús, se adelantó y dijo: "Mi hijo según el mundo, mi Dios y Salvador, según la Altura, permíteme proclamar la solución de las palabras que Pistis Sophia pronunciara."*
 
-*Y Jesús respondió diciendo: “Tú también, María, has recibido de quien está en Barbelos de acuerdo con la materia y has recibido semejanza con la virgen de la luz, según la Luz; tú y la otra María, la bendita; y por ti la oscuridad se ha levantado, y de ti provino el cuerpo material en el que estoy -al cual he purificado y refinado- Ahora y por tanto te mando proclamar la solución de las palabras expresada por Pistis Sophia."*
+*Y Jesús respondió diciendo: “Tú también, María, has recibido de quien está en Barbelos de acuerdo con la materia y has recibido semejanza con la virgen de la luz, según la Luz; tú y la otra María, la bendita; y por ti la oscuridad se ha levantado, y de ti provino el cuerpo material en el que estoy -al cual he purificado y refinado-Ahora y por tanto te mando proclamar la solución de las palabras expresada por Pistis Sophia."*
 
 *Y María, la madre de Jesús, respondió diciendo: "Mi Señor, tu poder luz profetizó anteriormente con relación a estas palabras, a través de Salomón en su Oda decimonovena, diciendo”*
 
@@ -7538,9 +7538,9 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (El arrepentimiento del Iniciado sólo es aceptado íntegramente a través del Primer Misterio.)
 
-(El Cristo Intimo recibe el poder- luz del Anciano de los Días mediante el cual pude auxiliar al Iniciado y conducirle fuera del caos.)
+(El Cristo Intimo recibe el poder-luz del Anciano de los Días mediante el cual pude auxiliar al Iniciado y conducirle fuera del caos.)
 
-(El Señor ve al poder- luz que el Padre le envía y procede a salvar a Pistis Sophia.)
+(El Señor ve al poder-luz que el Padre le envía y procede a salvar a Pistis Sophia.)
 
 **El Primer Misterio y Jesús envían dos poderes luz en ayuda de Pistis Sophia.**
 
@@ -7548,9 +7548,9 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 *Cuando Jesús dijo esto a sus discípulos, exclamó: "¿Comprendéis la forma en que discurro con vosotros?"*
 
-(El poder- luz del Padre se integra con el poder- luz del Cristo.)
+(El poder-luz del Padre se integra con el poder-luz del Cristo.)
 
-(El poder- luz del Padre, unido al poder- luz del Cristo, se integran para originar un rayo de luz.)
+(El poder-luz del Padre, unido al poder-luz del Cristo, se integran para originar un rayo de luz.)
 
 **María Magdalena interpreta el Misterio con el Salmo LXXXIV.**
 
@@ -7574,7 +7574,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Es en la Fragua encendida de Vulcano donde debemos desintegrar los agregados psíquicos.)
 
-(Devi- Kundalini Shakti nos asiste en la Novena Esfera.)
+(Devi-Kundalini Shakti nos asiste en la Novena Esfera.)
 
 (Cada vez que con virilidad desintegramos un agregado psíquico, en su reemplazo nace en nosotros una nueva virtud.)
 
@@ -7590,19 +7590,19 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (La Virtud adviene desde el cielo cada vez que se desintegra algún elemento psíquico indeseable.)
 
-(La Gracia es el poder- luz que sólo es conocido por quien le recibe.)
+(La Gracia es el poder-luz que sólo es conocido por quien le recibe.)
 
-(Ese poder- luz viene por voluntad del Primer Misterio.)
+(Ese poder-luz viene por voluntad del Primer Misterio.)
 
 (El Primer Misterio es el Misericordioso, la Misericordia de la Misericordia que siempre se apiada del Iniciado.)
 
 (El Primer Misterio está en el Anciano de los Días, aquí y ahora.)
 
-(Dichoso quien reciba el poder- luz que viene del Padre.)
+(Dichoso quien reciba el poder-luz que viene del Padre.)
 
-(La Gracia es ese poder- luz.)
+(La Gracia es ese poder-luz.)
 
-(Ningún engreído vanidoso, orgulloso, podría saber aprovechar conscientemente la Gracia, el poder- luz que viene del Padre.)
+(Ningún engreído vanidoso, orgulloso, podría saber aprovechar conscientemente la Gracia, el poder-luz que viene del Padre.)
 
 (Por ello es que antes de recibir la Gracia del Viejo de los Siglos debemos desintegrar los agregados psíquicos del orgullo místico, del engreimiento místico y de la vanidad mística.)
 
@@ -7612,7 +7612,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (La vanidad, el orgullo y el engreimiento común y corriente es diferente y lo tienen muchas gentes.)
 
-(La Verdad- Poder debemos encontrarla dentro de nosotros mismos.)
+(La Verdad-Poder debemos encontrarla dentro de nosotros mismos.)
 
 (Quien no encuentra la verdad dentro de sí mismo, no la encuentra fuera nunca jamás.)
 
@@ -7692,7 +7692,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (El Poder Gracia viene desde la altura por orden del Primer Misterio.)
 
-(La Gracia, o mejor dijéramos, el "Poder- Gracia", viene siempre desde la altura a través del Primer Misterio.)
+(La Gracia, o mejor dijéramos, el "Poder-Gracia", viene siempre desde la altura a través del Primer Misterio.)
 
 (Cristo es el Espíritu del Fuego, el Fuego del Fuego, la signatura astral del Fuego; sólo él puede salvarnos.)
 
@@ -7704,7 +7704,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Gracias al Espíritu del Fuego es posible recibir los Misterios y heredar el Reino de la Luz.)
 
-(La "Verdad- Poder" está en el Cristo Intimo y dentro del Cristo Intimo, aquí y ahora.)
+(La "Verdad-Poder" está en el Cristo Intimo y dentro del Cristo Intimo, aquí y ahora.)
 
 (Cuando el Cristo Intimo sale de la morada de Barbelos, del Océano de la Gran Luz, viene a predicar la Verdad.)
 
@@ -7720,9 +7720,9 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (La Virtud es el Espíritu del Fuego que trae los Misterios de la Altura para darlos a la raza humana.)
 
-(La Paz Fundamental sólo es posible auto- explorando al ego para desintegrarlo totalmente.)
+(La Paz Fundamental sólo es posible auto-explorando al ego para desintegrarlo totalmente.)
 
-(Se dice de la Paz- Poder, que ha morado en el cuerpo material según el mundo, debido a que el ego mora en el cuerpo y en tanto aquél continúe es obvio que la Paz se hallará ausente.)
+(Se dice de la Paz-Poder, que ha morado en el cuerpo material según el mundo, debido a que el ego mora en el cuerpo y en tanto aquél continúe es obvio que la Paz se hallará ausente.)
 
 (Muriendo el ego quedamos en paz con el Espíritu.)
 
@@ -7730,7 +7730,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Necesitamos estar en paz con las emanaciones de la Luz.)
 
-(La Gracia- Poder y la Verdad- Poder se abrazan y besan entre sí formando un todo íntegro.)
+(La Gracia-Poder y la Verdad-Poder se abrazan y besan entre sí formando un todo íntegro.)
 
 (La Verdad es la Talidad o Totalidad.)
 
@@ -7790,7 +7790,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (El Bautismo es un pacto de Magia Sexual.)
 
-(Cuando se cumple con el pacto de Magia Sexual llegase entonces a la Auto- Realización Intima del Ser.)
+(Cuando se cumple con el pacto de Magia Sexual llegase entonces a la Auto-Realización Intima del Ser.)
 
 (El poder de Sabaoth es el poder del Verbo que adviene a nosotros por gracia cuando cumplimos con el pacto de Magia Sexual.)
 
@@ -7804,7 +7804,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Sabaoth es el Verbo, la Palabra, el Logos Intimo en cada uno de nos.)
 
-(María es hija de su Hijo, su Señor y Salvador; María, Marah, la Mujer- Serpiente, es una parte autónoma y auto consciente de nuestro propio Ser.)
+(María es hija de su Hijo, su Señor y Salvador; María, Marah, la Mujer-Serpiente, es una parte autónoma y auto consciente de nuestro propio Ser.)
 
 **María, la madre, interpreta de nuevo la misma escritura con el encuentro de ella e Isabel, la madre de Juan el Bautista.**
 
@@ -8024,11 +8024,11 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (El hombre etérico, el Bodhisitta despierto, puede hacerse invisible ante sus enemigos.)
 
-(El Hombre- Cristo, el Bodhisitta consciente, puede hacer inmortal su cuerpo físico.)
+(El Hombre-Cristo, el Bodhisitta consciente, puede hacer inmortal su cuerpo físico.)
 
 (Escrito está que ni el veneno de los Borgias, ni el cuchillo, ni la bala, pueden destruir el cuerpo físico del Bodhisitta.)
 
-(Las bestias más feroces de la naturaleza se humillan ante el Hombre- Cristo.)
+(Las bestias más feroces de la naturaleza se humillan ante el Hombre-Cristo.)
 
 #### Juan interpreta la misma escritura.
 
@@ -8098,7 +8098,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Las almas del último ciclo se sumergen en estado elemental, dentro del Gran Alaya del Universo.)
 
-(El cuerpo etérico del Hombre- Cristo es la cristalización de la Luz que desciende de la morada de Barbelos.)
+(El cuerpo etérico del Hombre-Cristo es la cristalización de la Luz que desciende de la morada de Barbelos.)
 
 (Cristo es la Virtud, Cristo trae todos los Misterios por orden del Padre.)
 
@@ -8108,9 +8108,9 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (El Cristo Intimo entrega a los Regidores los Misterios de la altura.)
 
-(Esos Regidores son, como ya dijimos, las distintas partes autónomas y auto- conscientes de nuestro propio Ser.)
+(Esos Regidores son, como ya dijimos, las distintas partes autónomas y auto-conscientes de nuestro propio Ser.)
 
-(El poder de Sabaoth es, como ya dijimos, el Hombre- Cristo, el Hombre- Alma revestido con el cuerpo etérico.)
+(El poder de Sabaoth es, como ya dijimos, el Hombre-Cristo, el Hombre-Alma revestido con el cuerpo etérico.)
 
 (Es claro que la Paz es el poder de Sabaoth que es el Alma del Señor integrada con la Luz que desciende de Barbelos.)
 
@@ -8134,7 +8134,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Quien se libera del pecado original hace paz con el Misterio de la Luz.)
 
-(Es obvio que la Verdad que se logra entre las entrañas del mundo es el Tesoro de Sabaoth, el Bueno, el Hombre- Cristo.)
+(Es obvio que la Verdad que se logra entre las entrañas del mundo es el Tesoro de Sabaoth, el Bueno, el Hombre-Cristo.)
 
 (La Verdad es el Tesoro que se encuentra entre las entrañas del mundo.)
 
@@ -8238,7 +8238,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (El poder que sale del Cristo Intimo y el Alma Cristificada de Sabaoth, el Bueno, se juntan, se integran, se hacen un solo rayo de luz, un todo único.)
 
-(Así, el Hombre- Cristo revestido con el Soma Puchicón, es un todo resplandeciente.)
+(Así, el Hombre-Cristo revestido con el Soma Puchicón, es un todo resplandeciente.)
 
 (Gabriel como Regente de la Luna es uno de los siete Genios Planetarios.)
 
@@ -8288,15 +8288,15 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (La Doctrina de Moisés es la Doctrina de Lucifer.)
 
-(Christus- Lucifer es nuestro Salvador, el Redentor de Pistis Sophia.)
+(Christus-Lucifer es nuestro Salvador, el Redentor de Pistis Sophia.)
 
-(Christus- Lucifer empuña la balanza y la espada como Señor de la Justicia.)
+(Christus-Lucifer empuña la balanza y la espada como Señor de la Justicia.)
 
 (Lucifer, integrado con el Cristo Intimo, resplandece en Sabaoth, el Hombre Solar.)
 
-(El Sabaoth Celestial cristaliza en el Sabaoth- Hombre gracias al Moisés Intimo.)
+(El Sabaoth Celestial cristaliza en el Sabaoth-Hombre gracias al Moisés Intimo.)
 
-(Sabaoth- Moisés se integran totalmente.)
+(Sabaoth-Moisés se integran totalmente.)
 
 (Sabaoth es el Dios interno que debe cristalizar en la persona humana gracias a los buenos oficios de Lucifer.)
 
@@ -8306,19 +8306,19 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Esos que ignoran los principios ígneos inteligentes sin cuya existencia no serían posibles los procesos de la célula y del átomo, son tan ignorantes como los fanáticos religiosos que odian a Lucifer.)
 
-(Christus- Lucifer es el Salvador dentro de cada uno de nosotros.)
+(Christus-Lucifer es el Salvador dentro de cada uno de nosotros.)
 
-(El Rayo de Luz, es decir, el Hombre- Cristo, resplandecen en el Caos y en todas las regiones.)
+(El Rayo de Luz, es decir, el Hombre-Cristo, resplandecen en el Caos y en todas las regiones.)
 
-(Los demonios se aterrorizan ante la presencia del Hombre- Cristo.)
+(Los demonios se aterrorizan ante la presencia del Hombre-Cristo.)
 
-(El Hombre- Cristo se reviste con todos los poderes luz que los tenebrosos habían arrebatado a Pistis Sophia.)
+(El Hombre-Cristo se reviste con todos los poderes luz que los tenebrosos habían arrebatado a Pistis Sophia.)
 
-(Los tenebrosos nunca se atreven a tocar al Hombre- Cristo en el oscuro Caos.)
+(Los tenebrosos nunca se atreven a tocar al Hombre-Cristo en el oscuro Caos.)
 
 (El ego, los egos, los demonios rojos de Seth, huyen en el Caos ante la presencia del Hombre-Cristo.)
 
-**El rayo de luz, restaura a Sophia su Poder- luz.**
+**El rayo de luz, restaura a Sophia su Poder-luz.**
 
 *"Y Gabriel y Miguel llevaron el rayo de luz al cuerpo de la materia de Pistis Sophia y vertieron en ella todos los poderes que le habían sido arrebatados. Y su cuerpo material brilló entonces por todas sus partes, y en ella todos los poderes, cuya luz les había sido arrebatada, la recuperaron y cesaron de carecer de ella; así que obtuvieron la luz que les fuera arrebatada; la luz les había sido dada a través de mí. Y Miguel y Gabriel, que habían administrado y traído el rayo de luz al caos, les darían los misterios de la Luz; ellos a quienes les fue confiado el rayo de luz, el cual yo les di y traje al caos; y Miguel y Gabriel no tomaron para sí mismos la luz de las luces de Sophia, ésas que tomaran de las emanaciones de Obstinado. Sucedió entonces, cuando el rayo de luz integró dentro de Pistis Sophia todos los poderes - luz que les habían sido arrebatados por las emanaciones de Obstinado, que toda ella se volvió luminosa; y los poderes luz que habían quedado en Pistis Sophia y que no le habían sido arrebatados por las emanaciones de Obstinado, se pusieron gozosos de nuevo y se llenaron de luz. Y las luces que fueron vertidas dentro de Pistis Sophia avivaron el cuerpo de su materia, en el que no había luz y que estaba a punto de perecer o había perecido. Y elevaron en ella todos los poderes que estaban a punto de disolverse. Y tomaron para sí un poder luz y volvieron a ser lo que habían sido y crecieron de nuevo en su sentido de la luz. Y todos los poderes luz de Sophia se conocieron mutuamente mediante mi rayo luz y fueron salvados a través de la luz de ese rayo."*
 
@@ -8332,7 +8332,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Todas y cada una de las partes autónomas y conscientes de nuestro propio Ser son precisamente los poderes cósmicos de Pistis Sophia.)
 
-(Cada poder está personificado por ésta o aquella parte auto- consciente de nuestro propio Ser.)
+(Cada poder está personificado por ésta o aquella parte auto-consciente de nuestro propio Ser.)
 
 (Existen tres clases de relaciones en el mundo y en la vida.)
 
@@ -8342,7 +8342,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (La tercera clase de relaciones es la más importante, se trata de la relación del hombre consigo mismo, con las distintas partes independientes y conscientes de nuestro propio Ser.)
 
-(Los poderes del Adepto son precisamente las partes autónomas y auto- conscientes de nuestro propio Ser.)
+(Los poderes del Adepto son precisamente las partes autónomas y auto-conscientes de nuestro propio Ser.)
 
 (Sólo pasando por la Aniquilación budhista podemos establecer correctas relaciones con todas y cada una de las partes independientes y conscientes de nuestro propio Ser.)
 
@@ -8352,7 +8352,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Los poderes que divinizan son los cuarenta y nueve fuegos.)
 
-(Los cuarenta y nueve fuegos son las cuarenta y nueve partes independientes y auto- conscientes de nuestro propio Ser.)
+(Los cuarenta y nueve fuegos son las cuarenta y nueve partes independientes y auto-conscientes de nuestro propio Ser.)
 
 (Resulta ostensible que el Iniciado, lleno de Pistis Sophia, reconquista en cada una de las cuarenta y nueve partes del Ser, la luz que los agregados psíquicos le han arrebatado.)
 
@@ -8368,9 +8368,9 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Pistis Sophia se vuelve luminosa cuando el rayo de luz extrae o libera la Esencia que estaba embotellada entes las emanaciones de Obstinado (el ego).)
 
-(Bien sabemos que el rayo de luz integrado es Cristo- Sabaoth o Lucifer- Sabaoth.)
+(Bien sabemos que el rayo de luz integrado es Cristo-Sabaoth o Lucifer-Sabaoth.)
 
-(Los poderes- luz vuelven a Pistis Sophia cuando ya han sido aniquilados todos los elementos indeseables de Obstinado.)
+(Los poderes-luz vuelven a Pistis Sophia cuando ya han sido aniquilados todos los elementos indeseables de Obstinado.)
 
 (El Cuerpo de Oro, el To Soma Heliakon, con el cual se viste Pistis Sophia resplandece con las luces vertidas dentro de Pistis Sophia.)
 
@@ -8384,7 +8384,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 *"Y mi rayo de luz, cuando hubo quitado de las emanaciones de Obstinado, las luces que ellos habían arrebatado a Pistis Sophia, las vertió en ella y girando en sí mismo salió de la profundidad del caos."*
 
-(El Rayo de Luz, Cristo- Lucifer, quita de entre diversos agregados las luces, para regresárselas a Pistis Sophia.)
+(El Rayo de Luz, Cristo-Lucifer, quita de entre diversos agregados las luces, para regresárselas a Pistis Sophia.)
 
 (Gira el Rayo de la Luz en sí mismo y sale de la profundidad del Caos.)
 
@@ -8404,7 +8404,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Cristo es el Maestro por excelencia, el Venerable Gran Maestro.)
 
-(Cristo se expresa realmente a través de cualquier Hombre auto- realizado y perfecto.)
+(Cristo se expresa realmente a través de cualquier Hombre auto-realizado y perfecto.)
 
 (Así es como el Cristo ha instruido siempre a la humanidad.)
 
@@ -8484,11 +8484,11 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Las diversas partes del Ser, beben, calman su sed con la dádiva vertida del más Alto.)
 
-(Los ministros de esa dádiva, a quienes el agua mercurial les ha sido confiada, son esas partes del Ser relacionadas con la ciencia transmutatoria de "Yesod- Mercurio".)
+(Los ministros de esa dádiva, a quienes el agua mercurial les ha sido confiada, son esas partes del Ser relacionadas con la ciencia transmutatoria de "Yesod-Mercurio".)
 
-(Las distintas partes auto- conscientes e independientes del Ser refrescaron los labios agrietados, se llenaron de gozo con las aguas de la vida.)
+(Las distintas partes auto-conscientes e independientes del Ser refrescaron los labios agrietados, se llenaron de gozo con las aguas de la vida.)
 
-(Todas las partes auto- conscientes e independientes del Ser, mediante trabajos conscientes y padecimientos voluntarios, se llegan a conocer a sí mismas en el Señor Interior Profundo y se salvan mediante el agua mercurial de los Sabios.)
+(Todas las partes auto-conscientes e independientes del Ser, mediante trabajos conscientes y padecimientos voluntarios, se llegan a conocer a sí mismas en el Señor Interior Profundo y se salvan mediante el agua mercurial de los Sabios.)
 
 (El Rayo de Luz penetra en el Caos sobre todas las emanaciones o elementos indeseables del ego.)
 
@@ -8500,13 +8500,13 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (El Azufre y el Mercurio de los Sabios, representados por Miguel, el Espíritu Solar, y Gabriel, el Ángel Lunar, producen la transformación total; se recobran los poderes luminosos y hasta el cuerpo físico del Iniciado se convierte en vehículo del Señor.)
 
-(Gracias al Cristo Intimo, las distintas partes auto- conscientes y auto- independientes del Ser reciben la Luz.)
+(Gracias al Cristo Intimo, las distintas partes auto-conscientes y auto-independientes del Ser reciben la Luz.)
 
 (Miguel y Gabriel, agentes y ministros del Azufre y del Mercurio de los Sabios, traen el rayo de luz Crística a nuestro caos sexual para cristificarnos totalmente.)
 
-(Miguel y Gabriel son dos partes auto- conscientes y auto- independientes de nuestro propio Ser hábiles en la ciencia de la Alkimia.)
+(Miguel y Gabriel son dos partes auto-conscientes y auto-independientes de nuestro propio Ser hábiles en la ciencia de la Alkimia.)
 
-(Así como Miguel y Gabriel existen en el Macro- cosmos, también existen dentro del Micro-cosmos hombre.)
+(Así como Miguel y Gabriel existen en el Macro-cosmos, también existen dentro del Microcosmos hombre.)
 
 (Es obvio que mediante el Azufre y el Mercurio recibimos siempre los Misterios de Luz y de la Altura.)
 
@@ -8538,7 +8538,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Quienes creen o piensan que el sexo es sucio e indigno, insultan al Espíritu Santo.) (Quienes pretenden conocer los Misterios, excluyendo el poder del sexo, están condenados de hecho a la involución sumergida de los Mundos Infiernos.)
 
-(Es absolutamente inútil, estéril y absurda, cualquier enseñanza pseudo- esotérica apartada de los Misterios del sexo.)
+(Es absolutamente inútil, estéril y absurda, cualquier enseñanza pseudo-esotérica apartada de los Misterios del sexo.)
 
 (El sexo es el camino esotérico real que conduce a la liberación final.)
 
@@ -8552,7 +8552,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 *Y el Primer Misterio continuó de nuevo en su discurso diciendo: "Sucedió así, antes que yo condujese a Pistis Sophia fuera del caos, pues todavía no se me había ordenado a través de mi Padre, el Primer Misterio que mira el interior, que lo hiciera en ese momento, después que las emanaciones de Obstinado percibieron que mi rayo de luz les había quitado los poderes luz que arrebataran a Pistis Sophia, vertiéndolos en ella, y cuando vieron de nuevo a Pistis Sophia brillando como brillara desde el principio, se enfurecieron contra ella y gritaron de nuevo a su Obstinado para que viniese a ayudarlas a arrebatar de nuevo sus poderes a Pistis Sophia.*
 
-(Aún después de recobrarse los poderes- luz, los tenebrosos vuelven a la carga contra el Iniciado.)
+(Aún después de recobrarse los poderes-luz, los tenebrosos vuelven a la carga contra el Iniciado.)
 
 **Envió otro poder más violento, como saeta voladora.**
 
@@ -8692,7 +8692,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (A nosotros, los gnósticos, nos interesa muy especialmente nuestro Santiago Interior.)
 
-(Nuestro Santiago Interior es una de las partes autónomas y auto- conscientes de nuestro propio Ser.)
+(Nuestro Santiago Interior es una de las partes autónomas y auto-conscientes de nuestro propio Ser.)
 
 (El Bendito Patrón de la Gran Obra es nuestro Mercurio.)
 
@@ -8708,7 +8708,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (La Epístola Universal del Apóstol Santiago es una Cátedra fundamental sobre la Gran Obra.)
 
-(Luz- Poder- Cristo profetizó a través de David en el Salmo Noventa.)
+(Luz-Poder- Cristo profetizó a través de David en el Salmo Noventa.)
 
 **Santiago interpreta la narrativa del salmo XCI.**
 
@@ -8844,7 +8844,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (El caminante revolucionario del Óctuple Sendero, aun estando rodeado de mucha gente, camina terriblemente solo.)
 
-(Hitler, aterrorizado ante la presencia de cierto Adepto del sendero del medio, exclamó: "Yo conozco al Súper- Hombre, le he visto, es terriblemente cruel, y mismo he sentido miedo".)
+(Hitler, aterrorizado ante la presencia de cierto Adepto del sendero del medio, exclamó: "Yo conozco al Súper-Hombre, le he visto, es terriblemente cruel, y mismo he sentido miedo".)
 
 (El camino es el sexo y se avanza aniquilando al ego y sacrificándose por la humanidad.)
 
@@ -9084,7 +9084,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Capas de piel debemos eliminar. En esoterismo significa eliminar capa tras capa de nuestros defectos psicológicos.)
 
-(La mano derecha del Cristo Intimo- debe limpiar al leproso, sanarlo.)
+(La mano derecha del Cristo Intimo-debe limpiar al leproso, sanarlo.)
 
 (Sólo el Cristo Intimo podrá eliminar de nosotros la inmunda lepra de Lázaro.)
 
@@ -9102,7 +9102,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Hermes Trimegisto dice: "Separarás la tierra del fuego, lo sutil de lo espeso, suavemente, con gran industria, asciende de la tierra al cielo y desciende del cielo a la tierra y recibe así la virtud de las cosas superiores y de las inferiores.")
 
-(La materia de los poderes luz es el Mercurio de la Filosofía Secreta, el alma metálica del Esperma Sagrado; viviente resultado de la ciencia transmutatoria "Jesod- Mercurio.")
+(La materia de los poderes luz es el Mercurio de la Filosofía Secreta, el alma metálica del Esperma Sagrado; viviente resultado de la ciencia transmutatoria "Jesod-Mercurio.")
 
 (Las emanaciones de Obstinado son los agregados psíquicos, el Mercurio Seco, los elementos indeseables que llevamos dentro.)
 
@@ -9360,7 +9360,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 *Entonces María contestó y dijo al Primer Misterio rodeado de sus discípulos: "Mi Señor, con respecto a la solución de las palabras que Pistis Sophia ha proferido, así igualmente, tu luz -poder profetizó a través de David.*
 
-(Marah, la Divina Madre Kundalini, sabe muy bien que la "Luz- Poder" del Cristo Intimo profetizó a través de David, Rey de Sión.)
+(Marah, la Divina Madre Kundalini, sabe muy bien que la "Luz-Poder" del Cristo Intimo profetizó a través de David, Rey de Sión.)
 
 **María interpreta el canto de Sophia con el Salmo XXXIX.**
 
@@ -9424,7 +9424,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Sólo el Cristo Intimo puede perdonarnos y salvarnos de todas las amarguras.)
 
-(No negamos, sin embargo, que el Cristo Intimo confiere el poder de perdonar pecados a su Divina Madre Kundalini, la Mujer- Serpiente.)
+(No negamos, sin embargo, que el Cristo Intimo confiere el poder de perdonar pecados a su Divina Madre Kundalini, la Mujer-Serpiente.)
 
 (Las emanaciones de Obstinado nos restringen y amargan la vida.)
 
@@ -9440,9 +9440,9 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 *María nuevamente se adelantó y dijo: "Mi Señor, acerca de estas palabras con las que Pistis Sophia ha entonado alabanzas, así tu Luz -poder las profetizó a través de David”:*
 
-(La Luz- Poder del Señor profetizó a través de David, Rey de Sión.)
+(La Luz-Poder del Señor profetizó a través de David, Rey de Sión.)
 
-(David, ciertamente fue un gran iniciado a través del cual se expresó la Luz- Poder del Cristo Intimo.)
+(David, ciertamente fue un gran iniciado a través del cual se expresó la Luz-Poder del Cristo Intimo.)
 
 (David logró la Aniquilación budhista.)
 
@@ -9498,7 +9498,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (El Misterio del secreto "Daath" sólo es comprendido por unos pocos.)
 
-(El Andrés Interior de cada uno de nos, su famosa cruz en equis (X), ya explicado en capítulos anteriores de este libro, exclama diciendo: "Mi Señor, esto es lo que tu luz- poder había profetizado a través de David".)
+(El Andrés Interior de cada uno de nos, su famosa cruz en equis (X), ya explicado en capítulos anteriores de este libro, exclama diciendo: "Mi Señor, esto es lo que tu luz-poder había profetizado a través de David".)
 
 #### Andrés interpreta según el Salmo XXXIX.
 
@@ -9586,7 +9586,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (La región de Daath es absolutamente sexual.)
 
-(El Sephira de Daath está relacionado con los grandes misterios del Lingam- Yoni.)
+(El Sephira de Daath está relacionado con los grandes misterios del Lingam-Yoni.)
 
 (Los grandes Iniciados han de trabajar por tiempos con la ciencia transmutatoria del Jesod-Mercurio.)
 
@@ -9842,7 +9842,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 *Y sucedió entonces, cuando Jesús había terminado de decir estas palabras, que Felipe se adelantó y dijo: "Jesús, mi Señor, mis pensamientos están exaltados, y yo he entendido la solución del canto que Pistis Sophia ha entonado. El Profeta David profetizó acerca de esto hace tiempo en el Salmo Ciento Seis, diciendo:*
 
-(Felipe, dentro de cada ser humano, es una de las partes auto- conscientes de nuestro propio Ser.)
+(Felipe, dentro de cada ser humano, es una de las partes auto-conscientes de nuestro propio Ser.)
 
 (Felipe debe enseñarle al Iniciado a viajar conscientemente fuera del cuerpo físico.)
 
@@ -9934,7 +9934,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (En el Cristo Intimo se integra el Padre que está en secreto y nuestra Divina Madre Kundalini.)
 
-(En el Cristo Intimo se integran todas las cuarenta y nueve partes autónomas y auto- conscientes de nuestro propio Ser.)
+(En el Cristo Intimo se integran todas las cuarenta y nueve partes autónomas y auto-conscientes de nuestro propio Ser.)
 
 (Realmente, los cuarenta y nueve fuegos se integran en el Cristo Intimo.)
 
@@ -10014,7 +10014,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (La razón objetiva es la mente de la Luz, inteligencia real y pensamientos exaltados.)
 
-(Los Veinticuatro Invisibles existen en el Zodíaco macro- cósmico y dentro del zodíaco- hombre.)
+(Los Veinticuatro Invisibles existen en el Zodíaco macro-cósmico y dentro del zodíaco-hombre.)
 
 **Capítulo 84**
 
@@ -10028,11 +10028,11 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (En realidad nada hay en este mundo con el que se pueda comparar a los Veinticuatro Ancianos, ni nada que se le asemeje.)
 
-(Sin embargo, los Veinticuatro Ancianos son las veinticuatro partes autónomas y auto-conscientes de nuestro propio Ser interior profundo.)
+(Sin embargo, los Veinticuatro Ancianos son las veinticuatro partes autónomas y autoconscientes de nuestro propio Ser interior profundo.)
 
 (Nunca debemos olvidar a los siete y a los doce y a los veinticuatro, etc., dentro de nosotros mismos.)
 
-(Los cuarenta y nueve fuegos son en verdad las cuarenta y nueve partes independientes y auto-conscientes de nuestro real Ser.)
+(Los cuarenta y nueve fuegos son en verdad las cuarenta y nueve partes independientes y autoconscientes de nuestro real Ser.)
 
 (Cada uno de los Veinticuatro Invisibles brilla diez mil veces más que la luz del sol físico.)
 
@@ -10044,7 +10044,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (El Gran Invisible antepasado es "Aelohim", lo divinal desconocido.)
 
-(El gran Dios Triple- Poder es el Demiurgo Creador del Universo: unidad múltiple perfecta.)
+(El gran Dios Triple-Poder es el Demiurgo Creador del Universo: unidad múltiple perfecta.)
 
 (El Logos creador es el Santo TRIAMAZIKAMNO. El Verbo, la Gran Palabra.)
 
@@ -10214,7 +10214,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Esto nos invita a pensar en los siete misterios relacionados con los siete grados de poder del fuego.)
 
-(Obviamente, los siete existen dentro del ser humano. Quiero referirme enfáticamente a las siete partes autónomas y auto- conscientes de nuestro propio Ser.)
+(Obviamente, los siete existen dentro del ser humano. Quiero referirme enfáticamente a las siete partes autónomas y auto-conscientes de nuestro propio Ser.)
 
 (Necesito ahora explicar que El Primer Misterio es siempre el Anciano de los Días y su Hijo.)
 
@@ -10254,7 +10254,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Es ostensible que los doce también están dentro de nosotros mismos.)
 
-(Es obvio que las doce potestades, tanto dentro del Macro- cosmos como del Micro- cosmos hombre, se relacionan con los doce misterios.)
+(Es obvio que las doce potestades, tanto dentro del Macro-cosmos como del Micro-cosmos hombre, se relacionan con los doce misterios.)
 
 (Cada uno de los doce misterios se relaciona siempre con el Primer Misterio.)
 
@@ -10284,7 +10284,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Ahora comprenderán nuestros devotos el poder de los doce salvadores sobre las fuerzas, esencias y prodigios de las doce constelaciones zodiacales.)
 
-(Los nueve guardianes del Tesoro de la Luz están dentro del micro- cosmos hombre y dentro del macro- cosmos.)
+(Los nueve guardianes del Tesoro de la Luz están dentro del micro-cosmos hombre y dentro del macro-cosmos.)
 
 (Obviamente, los nueve guardianes se hallan relacionados con el mercurio de los sabios y con la ciencia transmutadora de "Jesod mercurio".)
 
@@ -10294,7 +10294,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Los misterios sexuales se encuentran en la Novena Esfera.)
 
-(El Salvador Gemelo se encuentra en el Aeón sexto, es el "Hombre- Causal" con el Cristo encarnado.)
+(El Salvador Gemelo se encuentra en el Aeón sexto, es el "Hombre-Causal" con el Cristo encarnado.)
 
 (Resulta asombroso el Cristo descendido desde el reino de Chokmah para manifestarse en Tiphereth.)
 
@@ -10302,7 +10302,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (El señor es concebido por obra y gracia del Espíritu Santo.)
 
-(El Señor se encarna en el "Hombre- Causal".)
+(El Señor se encarna en el "Hombre-Causal".)
 
 (Es pues el Hombre Causal el Hijo del Hijo.)
 
@@ -10348,7 +10348,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 ("LEW", el ángel de las fases, y el guardián de la región de aquellos de la derecha y Melquisedec el Genio de la Tierra que es el magno receptor de la luz y los dos magnos guías, han emanado realmente de la purificada Luz.)
 
-(De los cinco Árboles de la Gran Ley emanan las divinales jerarquías que existen en lo macro-cósmico y en lo micro- cósmico.)
+(De los cinco Árboles de la Gran Ley emanan las divinales jerarquías que existen en lo macro-cósmico y en lo micro-cósmico.)
 
 ("LEW", el príncipe de las fases, obediente siempre al Anciano de los Días, es el veedor, es decir el esplendor, la vida de la Gran Luz.)
 
@@ -10362,7 +10362,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Sabaoth el Digno emana del príncipe de las fases, "LEW", el veedor, la esplendidez de la luz.)
 
-(Estos seis son en realidad seis partes auto- conscientes e independientes de nuestro propio Ser.)
+(Estos seis son en realidad seis partes auto-conscientes e independientes de nuestro propio Ser.)
 
 (La economía de la cosecha de la Luz es algo trascendental.)
 
@@ -10462,7 +10462,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Todos ellos serán reyes con el primer Salvador de la primera Voz en la región de las almas que recibirán el primer misterio del Primer Misterio en las herencias de la Luz.)
 
-(Tiphón Bafometo, Lucifer- Prometeo, es el mejor de los auxiliares de la Divina Madre Kundalini en el trabajo de la Gran Obra.)
+(Tiphón Bafometo, Lucifer-Prometeo, es el mejor de los auxiliares de la Divina Madre Kundalini en el trabajo de la Gran Obra.)
 
 (Existen siete grados del poder del fuego que debemos desarrollar dentro de nosotros mismos. Estos son los siete radicales. Son siete serpientes, dos grupos de a tres con la coronación sublime de la séptima lengua de fuego que nos une con el Uno, con la Ley, con el Padre. Estas son las siete "Mujeres Serpientes", las siete vírgenes.)
 
@@ -10490,23 +10490,23 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Realmente todas las cantidades de años asignadas a un día cósmico son simbólicas. La noche cósmica llega cuando la cosecha de almas perfectas se completa, esto es, se perfecciona absolutamente.)
 
-(Las siete Voces o Verbos en el macro- cosmos y en el micro- cosmos hombre y los tres Amens, es decir, las tres fuerzas y el Salvador Gemelo y los nueve guardianes de los misterios del sexo y los doce salvadores en el cinturón zodiacal del macro- cosmos y del micro- cosmos hombre y los de la derecha y los del medio permanecerán en su región.)
+(Las siete Voces o Verbos en el macro-cosmos y en el micro-cosmos hombre y los tres Amens, es decir, las tres fuerzas y el Salvador Gemelo y los nueve guardianes de los misterios del sexo y los doce salvadores en el cinturón zodiacal del macro-cosmos y del micro-cosmos hombre y los de la derecha y los del medio permanecerán en su región.)
 
 (Todos ellos, cada uno, vivirá en su respectiva esfera y todos los regidores arrepentidos morarán en sus regiones hasta el final del gran día cósmico.)
 
-(Ciertamente, todas éstas son partes autónomas y auto- conscientes de nuestro propio Ser individual.)
+(Ciertamente, todas éstas son partes autónomas y auto-conscientes de nuestro propio Ser individual.)
 
 (Al final del Mahanvantara se integran todas las partes con el Cristo Intimo y viene la noche profunda del Gran Pralaya.)
 
-(En cuanto al Salvador Gemelo, es incuestionable que "Ce- Akatl" es el gemelo de Quetzalcoatl, el Cristo mexicano.)
+(En cuanto al Salvador Gemelo, es incuestionable que "Ce-Akatl" es el gemelo de Quetzalcoatl, el Cristo mexicano.)
 
-("Ce- Akatl" se incinera en la hoguera, se sacrifica por Quetzalcoatl.)
+("Ce-Akatl" se incinera en la hoguera, se sacrifica por Quetzalcoatl.)
 
-("Ce- Akatl" es otra parte del ser de Quetzalcoatl reencarnado en otro cuerpo.)
+("Ce-Akatl" es otra parte del ser de Quetzalcoatl reencarnado en otro cuerpo.)
 
 (Así el adepto Crístificado vive en distintos tiempos y lugares simultáneamente, tiene su gemelo.)
 
-(El paso transaccional de todas las partes auto- conscientes e independientes de nuestro propio Ser durante la integración final, se verifica hacia adentro, cada parte se hunde dentro de otra parte.)
+(El paso transaccional de todas las partes auto-conscientes e independientes de nuestro propio Ser durante la integración final, se verifica hacia adentro, cada parte se hunde dentro de otra parte.)
 
 (Y cada parte recibe la unción gnóstica y el sello de sus misterios. Y cada uno, es decir, cada parte, es idónea en su esfera y en su ministerio.)
 
@@ -10544,7 +10544,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 (Todas las almas deberán recibir la herencia de la Luz. De interior en interior se llega a la herencia de la Luz.)
 
-(Cada parte del Ser debe completar sus valores para la integración. Si no se conocieran en Gnosis las diversas partes autónomas y auto- conscientes del Ser no se entenderían el trabajo de la integración humana y solar.)
+(Cada parte del Ser debe completar sus valores para la integración. Si no se conocieran en Gnosis las diversas partes autónomas y auto-conscientes del Ser no se entenderían el trabajo de la integración humana y solar.)
 
 (En todo esto hay un proceso descrito por el Gran Kabir Jesús. El que tenga entendimiento que entienda porque aquí hay sabiduría. María, la Mujer Serpiente recibe así la enseñanza de Jesús.)
 
@@ -10574,9 +10574,9 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 *Sucedió entonces después de todas estas palabras que Jesús continuó en su discurso diciendo a sus discípulos: "Escuchad con atención que debo hablar con vosotros de la gloria de los de las Alturas, cómo son, de acuerdo a la forma en que hablé con vosotros este día."*
 
-(El último Auxiliar es en realidad Adhi- Budha.)
+(El último Auxiliar es en realidad Adhi-Budha.)
 
-(Obviamente, Adhi- Budha es el Padre del Padre; el Inmanifestado e Incognoscible. Incuestionablemente el Incognoscible- Inmanifestado es el Budha del Budha. El Anciano de los Días, al entrar en el seno del Absoluto, debe integrarse con Adhi- BUDHA.)
+(Obviamente, Adhi-Budha es el Padre del Padre; el Inmanifestado e Incognoscible. Incuestionablemente el Incognoscible-Inmanifestado es el Budha del Budha. El Anciano de los Días, al entrar en el seno del Absoluto, debe integrarse con Adhi-BUDHA.)
 
 #### Del último Auxiliar.
 
@@ -10626,7 +10626,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 *Sucedió entonces, cuando María oyó al Salvador decir estas palabras, que se regocijó con gran júbilo y se alegró grandemente diciendo a Jesús: "Mi Señor, ¿de cuánta grandeza es el segundo Auxiliar más que el primero? ¿A qué distancia está uno del otro, o mejor dicho, cuántas veces brilla más uno del otro?"*
 
-(El segundo Auxiliar y el primero son partes autónomas y auto- conscientes de nuestro propio Ser. Jesús explica todo esto tan bien que no se necesita comentario.)
+(El segundo Auxiliar y el primero son partes autónomas y auto-conscientes de nuestro propio Ser. Jesús explica todo esto tan bien que no se necesita comentario.)
 
 #### Del segundo Auxiliar.
 
@@ -11004,7 +11004,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 **De la ascensión del alma del que reciba el Uno y Único misterio.**
 
-*"Por consiguiente, el que reciba la Una y Única palabra de ese misterio de que os he hablado, si proviene del cuerpo de materia de los arcontes y si los receptores retribuyentes vienen a liberarlos del cuerpo de materia de los arcontes, - es decir los receptores que liberan del cuerpo a todas las almas que parten- luego que los receptores retribuyen liberan al alma que ha recibido este Uno y Único misterio del Inefable, del que recién os hablé, inmediatamente entonces, si está liberado del cuerpo de materia, se convierte en una gran corriente de Luz en medio de esos receptores y éstos se verán terriblemente atemorizados por la Luz de esa alma y serán hechos impotentes y caerán desistiendo en conjunto por temor a la gran Luz que han visto."*
+*"Por consiguiente, el que reciba la Una y Única palabra de ese misterio de que os he hablado, si proviene del cuerpo de materia de los arcontes y si los receptores retribuyentes vienen a liberarlos del cuerpo de materia de los arcontes, - es decir los receptores que liberan del cuerpo a todas las almas que parten-luego que los receptores retribuyen liberan al alma que ha recibido este Uno y Único misterio del Inefable, del que recién os hablé, inmediatamente entonces, si está liberado del cuerpo de materia, se convierte en una gran corriente de Luz en medio de esos receptores y éstos se verán terriblemente atemorizados por la Luz de esa alma y serán hechos impotentes y caerán desistiendo en conjunto por temor a la gran Luz que han visto."*
 
 *"Y el alma que recibe el misterio del Inefable se remontará a la altura siendo una gran corriente de Luz, y los receptores no podrán comprenderla y no sabrán como está formado el camino sobre el que irá. Porque se convertirá en una gran corriente de Luz y se remontará a la altura, y ninguna fuerza será capaz de detenerla ni de acercarse a ella."*
 
@@ -11130,7 +11130,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 #### Del Tercer Misterio.
 
-*"El tercer misterio del Inefable, por otro lado”, - el hombre que realice ese misterio, no sólo si él (por sí mismo) sale de su cuerpo, heredará el reino del misterio, sino que si completa tal misterio y lo realiza en todas sus formas; esto es si pasa ese misterio y lo ejercita sutilmente y pronuncia el nombre de tal misterio ante un hombre que salga de su cuerpo y conozca tal misterio, - deja al primero que se haya demorado o preferentemente que no se haya demorado- uno que esté en el horrendo castigo de los arcontes o regidores y en sus espantosos juicios y múltiples fuegos, - amén os digo:*
+*"El tercer misterio del Inefable, por otro lado”, - el hombre que realice ese misterio, no sólo si él (por sí mismo) sale de su cuerpo, heredará el reino del misterio, sino que si completa tal misterio y lo realiza en todas sus formas; esto es si pasa ese misterio y lo ejercita sutilmente y pronuncia el nombre de tal misterio ante un hombre que salga de su cuerpo y conozca tal misterio, - deja al primero que se haya demorado o preferentemente que no se haya demorado-uno que esté en el horrendo castigo de los arcontes o regidores y en sus espantosos juicios y múltiples fuegos, - amén os digo:*
 
 #### De su eficacia.
 
@@ -12144,7 +12144,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 #### El Apocalipsis de los cielos.
 
-*De nuevo Jesús -es decir Aberamentho- hizo la invocación pronunciando el nombre del Padre del Tesoro de la Luz y dijo: "Que todos los misterios de los arcontes y las potestades y los ángeles y los arcángeles y todos los poderes y todas las obras del Dios Invisible Agrammachamarei y de Barbelos se acerquen a (Bdella) por un costado y se retiren por la derecha."*
+*De nuevo Jesús -es decir Aberamentho-hizo la invocación pronunciando el nombre del Padre del Tesoro de la Luz y dijo: "Que todos los misterios de los arcontes y las potestades y los ángeles y los arcángeles y todos los poderes y todas las obras del Dios Invisible Agrammachamarei y de Barbelos se acerquen a (Bdella) por un costado y se retiren por la derecha."*
 
 *Y en ese momento todos los cielos giraron hacia el Oeste y todos los Aeones y la esfera y sus arcontes y todos sus poderes se precipitaron hacia el Oeste a la izquierda del disco del sol y del disco de la luna.*
 
@@ -12228,7 +12228,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 #### Jeu y Melquisedec
 
-*Jesús - es decir Aberamentho- dijo: "Verdaderamente el Padre de mi Padre - es decir Jeu- es el previsor de todos los arcontes, dioses y potestades que han surgido de la materia de la Luz del Tesoro y Zorokothora Melquisedec es el enviado para todas las luces que son purificadas por los arcontes y el que las conduce al Tesoro de la Luz. - éstos dos tan sólo son las magnas luces, y su disposición es la de descender hasta los arcontes para purificarlos, y que Zorokothora Melquisedec retire la purificación de las luces que han sido purificadas por los arcontes y que las lleve al Tesoro de la Luz, -entonces la cifra y la hora de su disposición acontece para descender a los arcontes y agobiarlos y constreñirlos para quitarles la purificación."*
+*Jesús - es decir Aberamentho-dijo: "Verdaderamente el Padre de mi Padre - es decir Jeu-es el previsor de todos los arcontes, dioses y potestades que han surgido de la materia de la Luz del Tesoro y Zorokothora Melquisedec es el enviado para todas las luces que son purificadas por los arcontes y el que las conduce al Tesoro de la Luz. - éstos dos tan sólo son las magnas luces, y su disposición es la de descender hasta los arcontes para purificarlos, y que Zorokothora Melquisedec retire la purificación de las luces que han sido purificadas por los arcontes y que las lleve al Tesoro de la Luz, -entonces la cifra y la hora de su disposición acontece para descender a los arcontes y agobiarlos y constreñirlos para quitarles la purificación."*
 
 *"Pero tan pronto como cesan de agobiarlos y oprimirlos y regresan a las regiones del Tesoro de la Luz, sucede que si alcanzan las regiones de en medio, Zorokothora Melquisedec arrebata las luces y los conduce hasta la puerta de los de en medio y los lleva la Tesoro de la Luz, y Jeu se retira también hacia las regiones de los de la Derecha."*
 
@@ -12298,7 +12298,7 @@ Reino de la Luz está formado por el Círculo Consciente de la Humanidad Solar q
 
 **Jesús explica sobre la visión del fuego, el agua, el vino y la sangre.**
 
-*Jesús -es decir Aberamentho- dijo a sus discípulos: "En verdad os digo: Nada traje al mundo cuando vine a excepción de este fuego, esta agua, este vino y esta sangre. He traído el agua y el fuego de la región de la Luz de las Luces del Tesoro de la Luz; y he traído el vino y la sangre de la región de Barbelos. Y después mi padre me envió el espíritu santo en la forma de una paloma." "Y el fuego, el agua y el vino son para la purificación de todos los pecados del mundo. La sangre, por otra parte, es un símbolo puesto en mí a causa del cuerpo humano que recibí en la región de Barbelos, la gran fuerza del Dios invisible. El soplo, por otro lado, avanza hacia todas las almas y las conduce hacia la región de la Luz."*
+*Jesús -es decir Aberamentho-dijo a sus discípulos: "En verdad os digo: Nada traje al mundo cuando vine a excepción de este fuego, esta agua, este vino y esta sangre. He traído el agua y el fuego de la región de la Luz de las Luces del Tesoro de la Luz; y he traído el vino y la sangre de la región de Barbelos. Y después mi padre me envió el espíritu santo en la forma de una paloma." "Y el fuego, el agua y el vino son para la purificación de todos los pecados del mundo. La sangre, por otra parte, es un símbolo puesto en mí a causa del cuerpo humano que recibí en la región de Barbelos, la gran fuerza del Dios invisible. El soplo, por otro lado, avanza hacia todas las almas y las conduce hacia la región de la Luz."*
 
 #### Explica lo mismo con anteriores refranes.
 

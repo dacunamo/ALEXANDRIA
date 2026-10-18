@@ -4,6 +4,10 @@
 
 ### KALKI AVATARA DE LA NUEVA ERA DE ACUARIO
 
+![Imagen 1](Apuntes Secretos de un Guru/Apuntes Secretos de un Guru - 001 - KALKI AVATARA DE LA NUEVA ERA DE ACUARIO.jpeg)
+
+![Imagen 2](Apuntes Secretos de un Guru/Apuntes Secretos de un Guru - 002 - VM SAMAEL AUN WEOR.jpeg)
+
 #### VM SAMAEL AUN WEOR
 
 ## PREFACIO
@@ -16,7 +20,7 @@
 
 Millones de páginas y millares de volúmenes ampulosos se han escrito para dar luz y sabiduría a la humanidad, pero hasta ahora jamás en la vida se había escrito ni un simple folleo que revelara las terribles enseñanzas que revela el libro más grandioso que se ha escrito desde que el mundo es mundo y este libro se llama “Apuntes Secretos de un Gurú”.
 
-El dolor y la amargura que martiriza a cada ser, viene a ser la consecuencia ineludible de su vida mal organizada, alejada de Dios y de sus leyes inmutables. Todas estas enseñanzas se están presentando a los humanos para que aprendan a escuchar la voz del corazón que es la voz de la intuición o sea en nuestro interior, nuestro sagrado Intimo, y para es-cucharlo y atender sus llamados tenemos que prepararnos internamente por medio de estas enseñanzas, porque por ahora los humanos solo escuchan la voz de su interés personal, lo cual los divide y coloca a los unos frente a los otros, para luego sumirlos en el caos de la desesperación y del dolor. En estas condiciones la humanidad, la sublime gracia de los Maestros ha permitido que la sabiduría Gnóstica vuelva a los humanos y un heraldo de la nueva era levanta su voz y airosa desafiando los embates más terribles en medio del tronar obscuro del pensamiento de mentes tan destructivas. El Maestro Samael Aun Weor ha presentado con ésta, cinco obras: “El Matrimonio Perfecto” (la Puerta de Entrada a la Iniciación); “La Revolución de Bel”; “Tratado de Medicina Oculta y Magia Práctica”; “Curso Zodiacal” y “Apuntes Secretos de un Gurú”, estando el Tratado de Medicina y Magia Práctica listo para salir en su debido tiempo. Estas obras contienen una poderosa sabiduría esotérica y se requiere para su comprensión no solamente madurez espiritual, sino, adiestramiento del organismo y un despertar conciente del alma, que es ella la sublime investigadora del procedimiento divino.
+El dolor y la amargura que martiriza a cada ser, viene a ser la consecuencia ineludible de su vida mal organizada, alejada de Dios y de sus leyes inmutables. Todas estas enseñanzas se están presentando a los humanos para que aprendan a escuchar la voz del corazón que es la voz de la intuición o sea en nuestro interior, nuestro sagrado Intimo, y para escucharlo y atender sus llamados tenemos que prepararnos internamente por medio de estas enseñanzas, porque por ahora los humanos solo escuchan la voz de su interés personal, lo cual los divide y coloca a los unos frente a los otros, para luego sumirlos en el caos de la desesperación y del dolor. En estas condiciones la humanidad, la sublime gracia de los Maestros ha permitido que la sabiduría Gnóstica vuelva a los humanos y un heraldo de la nueva era levanta su voz y airosa desafiando los embates más terribles en medio del tronar obscuro del pensamiento de mentes tan destructivas. El Maestro Samael Aun Weor ha presentado con ésta, cinco obras: “El Matrimonio Perfecto” (la Puerta de Entrada a la Iniciación); “La Revolución de Bel”; “Tratado de Medicina Oculta y Magia Práctica”; “Curso Zodiacal” y “Apuntes Secretos de un Gurú”, estando el Tratado de Medicina y Magia Práctica listo para salir en su debido tiempo. Estas obras contienen una poderosa sabiduría esotérica y se requiere para su comprensión no solamente madurez espiritual, sino, adiestramiento del organismo y un despertar conciente del alma, que es ella la sublime investigadora del procedimiento divino.
 
 Todas estas enseñanzas provocan en los no preparados los más extravagantes comentarios y los verdugos desearían tenernos a su alcance para saciar sus instintos depravados y así acallar nuestras conciencias en el fango donde ellos lavan su corazón.
 
@@ -26,7 +30,7 @@ Pregunta: Maestro, ¿por qué usted llama “loros de jaula” a los espirituali
 
 Respuesta: Porque ellos hablan y hablan como loros, pero sin haber jamás experimentado lo que hablan.
 
-Yo por espiritualismo entiendo saber vivir dignamente entre los hombres, y no como muchos en-tienden, que espiritualismo es teorizar, porque una cosa es saber vivir y otra cosa es saber teorizar. El que sabe vivir es un Maestro y el que sabe teorizar es un intelectual.
+Yo por espiritualismo entiendo saber vivir dignamente entre los hombres, y no como muchos entienden, que espiritualismo es teorizar, porque una cosa es saber vivir y otra cosa es saber teorizar. El que sabe vivir es un Maestro y el que sabe teorizar es un intelectual.
 
 Pregunta: Maestro, ¿por qué le causa ira a algunos lectores sus obras como “EI Matrimonio Perfecto” y “La Revolución de Bel”?
 
@@ -34,7 +38,7 @@ Respuesta: La ira de esa gente se debe que el yo interno de esas personas sabe q
 
 Pregunta: Maestro, ¿por qué las gentes niegan la existencia de los mundos internos y al hablarles de ellos toman como asunto de locura o de degeneración?
 
-Respuesta: Esas gentes no entienden de los mundos internos, porque son ignorantes y el ignorante siempre cree que solamente el tiene la razón. La razón del ignorante depende de su ojo y de su oído y estos órganos solo perciben lo que está fuera de ellos, así que si se les dice que los mundos internos están dentro de si mismos, se espantan, y de inmediato nos ofenden con crueldad, precisamente porque ellos son necios y crueles a la vez, ellos están acostumbrados a pensar a su manera de ver y terminan por burlarse, porque la burla es más fácil que el análisis ellos jamás se toman la molestia de analizar y lo confirman cuando dicen, eso no está demostrado; esos seres sufren de un mal que se llama pereza mental, y se la ven mejor con sus costumbres sedentarias, así que les fastidia sobre manera que alguien trate de sacarlos de sus hábitos y costumbres que ya han modelado su triste existencia, por ello podemos ex-clamar como el Dante: “Lo triste es así” ...
+Respuesta: Esas gentes no entienden de los mundos internos, porque son ignorantes y el ignorante siempre cree que solamente el tiene la razón. La razón del ignorante depende de su ojo y de su oído y estos órganos solo perciben lo que está fuera de ellos, así que si se les dice que los mundos internos están dentro de si mismos, se espantan, y de inmediato nos ofenden con crueldad, precisamente porque ellos son necios y crueles a la vez, ellos están acostumbrados a pensar a su manera de ver y terminan por burlarse, porque la burla es más fácil que el análisis ellos jamás se toman la molestia de analizar y lo confirman cuando dicen, eso no está demostrado; esos seres sufren de un mal que se llama pereza mental, y se la ven mejor con sus costumbres sedentarias, así que les fastidia sobre manera que alguien trate de sacarlos de sus hábitos y costumbres que ya han modelado su triste existencia, por ello podemos exclamar como el Dante: “Lo triste es así” ...
 
 Pregunta: Maestro, ¿por qué afirma Ud. que el cielo se toma por asalto?
 
@@ -190,7 +194,7 @@ La venida del “Cristo” se necesita para que nos explique y aclare bien la do
 
 Otro comentario que hacíamos con mi esposa-sacerdotisa después del desayuno, y en momentos en que ella se preparaba para ir a comprar comestibles al mercado, se relacionaba con la magia-sexual.
 
-Ciertos perversos demonios tentadores del Astral me “tentaron” anoche con el culto fálico tenebroso que enseña Cherenzi en su libro titulado “El Kundalini” o “la serpiente ígnea de nuestros mágicos poderes”. Dichos demonios llevaban cuernos sobre la frente y me hablaban en los siguientes términos: “Así como vos practicáis magia sexual está muy mal, vos podéis derramar el semen y siempre sube vuestro Kundalini”. Así hablaron los demonios tentado-res y yo les contesté en la siguiente forma: “Hacedlo vosotros así, pero yo sigo mis prácticas como voy, porque soy miembro de la Logia-Blanca”.
+Ciertos perversos demonios tentadores del Astral me “tentaron” anoche con el culto fálico tenebroso que enseña Cherenzi en su libro titulado “El Kundalini” o “la serpiente ígnea de nuestros mágicos poderes”. Dichos demonios llevaban cuernos sobre la frente y me hablaban en los siguientes términos: “Así como vos practicáis magia sexual está muy mal, vos podéis derramar el semen y siempre sube vuestro Kundalini”. Así hablaron los demonios tentadores y yo les contesté en la siguiente forma: “Hacedlo vosotros así, pero yo sigo mis prácticas como voy, porque soy miembro de la Logia-Blanca”.
 
 Los demonios se retiraron entonces vencidos: quisieron hacerme caer, y se equivocaron como se equivocó Javhe con Cristo.
 
@@ -364,7 +368,7 @@ Por último me asomé al mundo físico. Entonces fue cuando pude encontrar siete
 
 La ceremonia se estaba realizando dentro de una casa de familia. Entonces me dije: ¡Qué grande es esto! ¡Qué sublime!
 
-Hoy entregamos en este libro “La Misa Gnóstica”, para que toda familia pueda verificar en su casa la Santa Unción Gnóstica. Este ritual fue el mismo que celebró Cristo en la casa de José de Arima-tea, y que celebraban los apóstoles en tiempos en que el Maestro estaba encarnado con cuerpo físico.
+Hoy entregamos en este libro “La Misa Gnóstica”, para que toda familia pueda verificar en su casa la Santa Unción Gnóstica. Este ritual fue el mismo que celebró Cristo en la casa de José de Arimatea, y que celebraban los apóstoles en tiempos en que el Maestro estaba encarnado con cuerpo físico.
 
 Este ritual se había conservado secreto durante veinte siglos, pero hoy lo entregamos públicamente adaptándolo a la vida de hogar, a fin de que toda familia pueda verificar su sagrada cena dentro de su misma casa.
 
@@ -444,7 +448,7 @@ Suplico a los Hermanos que reciben estos rituales, hagan todas las copias que pu
 
 El Sacerdote se retira al Altar de la derecha y lee los siguientes trozos de las Sagradas Escrituras:
 
-“Y Jesús, el divino Gran Sacerdote Gnóstico en-tonó un dulce cántico en loor del GRAN NOMBRE y dijo a sus discípulos: Venid hacia mí. Y ellos así lo hicieron. Entonces se dirigió a los cuatro puntos cardinales, extendió su quieta mirada y pronunció el nombre profundamente sagrado Lew, bendijo y les sopló en los ojos”.
+“Y Jesús, el divino Gran Sacerdote Gnóstico entonó un dulce cántico en loor del GRAN NOMBRE y dijo a sus discípulos: Venid hacia mí. Y ellos así lo hicieron. Entonces se dirigió a los cuatro puntos cardinales, extendió su quieta mirada y pronunció el nombre profundamente sagrado Lew, bendijo y les sopló en los ojos”.
 
 “Mirad hacia arriba, exclamó: Ya sois clarividentes. Ellos entonces, levantaron la mirada hacia donde Jesús les señaló y vieron una gran Cruz que ningún ser humano podría describir.
 
@@ -640,7 +644,7 @@ Este siglo XX es época de imprecedentes tinieblas; jamás se había conocido un
 
 “Entonces los que estén en Judea huyan a los montes, y los que en medio de ella váyanse; y los que estén en los campos no entren en ella”.
 
-“Porque éstos son días de venganza: para que se cumplan todas las cosas que están escritas”. (Ver-sículos 20 - 21 - 22, cap. 21, San Lucas).
+“Porque éstos son días de venganza: para que se cumplan todas las cosas que están escritas”. (Versículos 20 - 21 - 22, cap. 21, San Lucas).
 
 Antes de poco estallarán la tercera guerra mundial y será destruida la presente civilización, a sangre y fuego. La Tierra entera se convertirá en un gigantesco cementerio donde solo se verán cruces, y cruces, y cruces... Y plantaremos la bandera de Acuario sobre las humeantes ruinas de ese enorme cementerio...
 
@@ -694,7 +698,7 @@ Apolonio curaba los enfermos y sólo se alimentaba de frutas, y bebía agua pura
 
 Aquí en esta cárcel hoy me he acordado del gran Apolonio de Tíana. Todos los profetas de la humanidad hemos sido mártires; por ello en el Apocalipsis nos hablan claro, diciendo:
 
-“No tengas ningún temor de las cosas que has de padecer. He aquí, el diablo ha de enviar a algunos de vosotros a la cárcel, para que seáis probados, y tendréis tribulación de diez días. Sé fiel hasta la muerte, y yo te daré la corona de la vida”. (Vers. 10, cap. 2, Apocalipsis). Todo el progreso del Iniciado se basa sobre los números: 1 + 2 + 3+4 = 10; y por ello se nos di-ce: “Y tendréis tribulación de 10 días”.
+“No tengas ningún temor de las cosas que has de padecer. He aquí, el diablo ha de enviar a algunos de vosotros a la cárcel, para que seáis probados, y tendréis tribulación de diez días. Sé fiel hasta la muerte, y yo te daré la corona de la vida”. (Vers. 10, cap. 2, Apocalipsis). Todo el progreso del Iniciado se basa sobre los números: 1 + 2 + 3+4 = 10; y por ello se nos dice: “Y tendréis tribulación de 10 días”.
 
 Todo el sendero de la Iniciación es de horribles tribulaciones, el que se mete en el sendero de la “Iniciación” entra en el camino de las más terribles amarguras. La base de la Iniciación es la castidad, pero he aquí que dentro de todo ser humano común y corriente, siempre está “satán”; la bestia de la fornicación, el “yo animal” que desarrolla en nosotros el intelecto, y crea la falsa ciencia intelectual de la que se enorgullecen los hombres del siglo XX.
 
@@ -706,7 +710,7 @@ Todo el sendero de la Iniciación es de horribles tribulaciones, el que se mete 
 
 “Y mataré a sus hijos con muerte; y todas las Iglesias sabrán que yo soy el que escudriñó los riñones y los corazones; y daré a cada uno de vosotros según sus obras”. (Vers. 20-21-22-23, capítulo 2, Apocalipsis).
 
-Así habla el Yo Universal a Jezabel; y “él” echa-rá en el abismo a Jezabel y a todos los que con ella adulteren, a los hijos de la fornicación. Ningún fornicario puede ser “Iniciado”.
+Así habla el Yo Universal a Jezabel; y “él” echará en el abismo a Jezabel y a todos los que con ella adulteren, a los hijos de la fornicación. Ningún fornicario puede ser “Iniciado”.
 
 El Kundalini sube a base de castidad, santidad, y dolor intenso El camino de la Iniciación es un sendero de lágrimas y amarguras. Hay que subir por las siete escalas del fuego a base de dolor y amargura.
 
@@ -722,7 +726,7 @@ Mi esposa sacerdotisa, y yo, comentamos algo sobre el nuevo grado que recibí, y
 
 La visita parece haber perfumado la tenebrosa atmósfera de esta cárcel. El perfume de la fraternidad, es sublime. “El amor es el incienso de los Dioses”. El Sol se está ya ocultando en el Oeste, y yo sigo meditando. -    - **MARZO 17 DE 1952.**
 
-Otro amanecer más en esta cárcel. Estuve anoche investigando las treinta y tres cámaras subterráneas del viejo Egipto de los Faraones. Esas treinta y tres cámaras subterráneas eran como treinta y tres salones comunicados entre sí por treinta y tres por-tales. El orden arqueométrico de estas cámaras era una exacta representación de nuestra columna espinal.
+Otro amanecer más en esta cárcel. Estuve anoche investigando las treinta y tres cámaras subterráneas del viejo Egipto de los Faraones. Esas treinta y tres cámaras subterráneas eran como treinta y tres salones comunicados entre sí por treinta y tres portales. El orden arqueométrico de estas cámaras era una exacta representación de nuestra columna espinal.
 
 El “Iniciado” iba pasando de cámara en cámara, conforme su fuego sagrado del Kundalini subía “cañón” por “cañón”, es decir, vértebra por vértebra.
 
@@ -748,7 +752,7 @@ Las gentes de este siglo XX no me entienden, pero me entenderán los hijos de Ac
 
 No hay duda de que este escenario mundial, donde se desarrolla la gran batalla entre los poderes de la luz y de las tinieblas, tendrán que ser cambiado por un nuevo “escenario”.
 
-“Y vi un cielo nuevo, y una tierra nueva; por-que el primer cielo y la primera tierra se fueron, y el mar ya no es”. (Vers. 1, cap. 21, Apocalipsis).
+“Y vi un cielo nuevo, y una tierra nueva; porque el primer cielo y la primera tierra se fueron, y el mar ya no es”. (Vers. 1, cap. 21, Apocalipsis).
 
 Aquí se habla claro y preciso sobre un cambio geológico de la corteza terrestre. Yo he estado investigando a fondo los polos Norte y Sur de la Tierra, y veo que estos dos polos se están volviendo completamente etéricos. Los grandes exploradores de la Antártida afirman que ese continente es un mundo de imágenes.
 
@@ -810,7 +814,7 @@ En estos instantes, me ha saludado cariñosamente un detective amigo y me dice q
 
 Veo movimiento en esta cárcel, algunos presos se visten alegres para salir en libertad, y yo sigo aguardando con paciencia mi libertad. Acabo de recibir visita de Julio Medina V., y me informa que no hay motivo para que yo esté detenido en esta cárcel, puesto que no hay ni siquiera auto de detención para mí. El frater Julio Medina V. se muestra optimista, y me informa que el abogado afirma que hoy mismo me pondrá en libertad. Julio Medina V., el autor de aquel “formidable” prefacio que adorna mi obra titulada “La Revolución de Bel”, ha tenido piedad por mí, y él mismo me ha financiado mi defensa, y está luchando por mi libertad. En “El Vestíbulo del Santuario” Julio Medina V. hace un estudio a fondo sobre el sistema carcelario, y llega a la conclusión de que el sistema carcelario como método de corrección, no sirve, pues como él mismo dice, el mal no se combate con el mal, sino con el bien mismo. Y en los hechos, el sistema carcelario, como método correctivo, ha fracasado.
 
-Julio Medina V., con su pluma diamantina, es-boza en su maravilloso estudio, un nuevo sistema de reforma humana, que indudablemente será acogida por la humanidad de “Acuario”.
+Julio Medina V., con su pluma diamantina, esboza en su maravilloso estudio, un nuevo sistema de reforma humana, que indudablemente será acogida por la humanidad de “Acuario”.
 
 Hasta la fecha actual del siglo XX, ningún delincuente se ha corregido en la cárcel. Las cárceles son lugares de corrupción, y allí muchos que no eran ladrones, se vuelven ladrones y criminales. El plan de Julio Medina V. consiste en reemplazar las cárceles por campos agrícolas; darle a cada penado una parcela de tierra para que la cultive, y una casa para que viva en ella con su mujer y sus hijos, a fin de evitar el problema sexual de las cárceles; tener una caja de ahorros para penados, en esa caja guardarían los penados el producto monetario de sus ventas agrícolas. Y así, el día en que el preso saliera de la granja agrícola, tendría con qué trabajar en sociedad. Tener psicólogos expertos que estudiaran las aptitudes de cada penado, y se las cultivaran en colegios o institutos establecidos dentro de las granjas agrícolas. Y así podrían salir de esas cárceles médicos, dentistas, zapateros, ingenieros, etc. Tener salones de cine ilustrativo, bibliotecas, salas de conferencias, etc.
 
@@ -818,7 +822,7 @@ Sugiere Julio Medina V. que en lugar de guardianes se podrían establecer alambr
 
 Reformar, significa volver a formar, y no se puede volver a formar con el mal sino únicamente con el bien, y por ello creo que el plan que Julio Medina V. esboza en “El Vestíbulo del Santuario”, está llamado a cumplir una formidable misión en el futuro. He ahí por qué es imposible separar “El Vestíbulo del Santuario”, del resto del texto titulado “La Revolución de Bel”, y es que esa obra está llamada a ser la base cultural de Acuario, lo mismo que “El Matrimonio Perfecto”.
 
-Otro punto formidable del “Vestíbulo del Santuario”, por Julio Medina V, es el problema económico del mundo. Observando clarividentemente, la organización social de esa bella humanidad que habitará “La Antártida”, vemos allí cristalizado el plan económico de Julio Medina V. Allí vemos una humanidad feliz; cada cual vivirá en su casa, y tendrá una pequeña huerta y un jardín. Allí nadie tendrá hambre, ni habrá terratenientes, y cada cual sembrará en su huerto, y comerá de sus cosechas. Ese mismo sistema económico rige entre las humanidades cultas de todo planeta avanzado. Y la humanidad terrícola tendrá que adaptarse a ese orden cósmico-sideral. Por todo ello, considero que “El Vestíbulo del Santuario” cristalizará totalmente en el futuro, y entonces todo el mundo tendrá que admirar al coloso que escribió este estudio.
+Otro punto formidable del “Vestíbulo del Santuario”, por Julio Medina V, es el problema económico del mundo. Observando clarividentemente, la organización social de esa bella humanidad que habitará “La Antártida”, vemos allí cristalizado el plan económico de Julio Medina V. Allí vemos una humanidad feliz; cada cual vivirá en su casa, y tendrá una pequeña huerta y un jardín. Allí nadie tendrá hambre, ni habrá terratenientes, y cada cual sembrará en su huerto, y comerá de sus cosechas. Ese mismo sistema económico rige entre las humanidades cultas de todo planeta avanzado. Y la humanidad terrícola tendrá que adaptarse a ese orden cósmicosideral. Por todo ello, considero que “El Vestíbulo del Santuario” cristalizará totalmente en el futuro, y entonces todo el mundo tendrá que admirar al coloso que escribió este estudio.
 
 Estas han sido mis reflexiones en esta mañana, llena de esperanzas en mi libertad. Ha llegado el Sol hacia el cenit del cielo, y yo todavía en esta cárcel.
 
@@ -886,7 +890,7 @@ Huiracocha dice: “Al que sabe, la palabra da poder; nadie la pronunció, nadie
 
 Veamos algunas palabras del gran verbo de luz: AIBU. (Palabra de saludo). AEODON. (Aflicción). MASLEIM. (Deber). SHU SHA SHU. (Indecoroso, inmodesto, etc.). PITRES. (Cañones o vértebras de la columna dorsal). VENARLO. (Venerarlo). PRESEM. (Superior). REIDISTISTINA. (Reinstituya). EQUIDENCIAS. (Perjuicios).
 
-El Cristo enseñó un gran mantram para curar a los enfermos: “Ephphatha” (sé abierto) para abrir los oídos de los sordos y tartamudos. (Cap. 7, ver-sículos 32 - 33 - 34- 35 - 36 - 37, San Marcos).
+El Cristo enseñó un gran mantram para curar a los enfermos: “Ephphatha” (sé abierto) para abrir los oídos de los sordos y tartamudos. (Cap. 7, versículos 32 - 33 - 34- 35 - 36 - 37, San Marcos).
 
 Todo este gran verbo de la luz es un lenguaje sublime. Veamos algunas otras palabras del gran verbo de oro:
 
@@ -1033,6 +1037,8 @@ Pino, Rojas y Cherenzi, formaron la farsa aquella, del falso Kout-Humi, que tant
 #### SAMAEL AUN WEOR
 
 **INDICE** PREFACIO .................................................................................... 5 APUNTES SECRETOS DE UN GURU ....................................... 11 26 DE FEBRERO DE 1972...................................................... 13 27 DE FEBRERO DE 1952...................................................... 15 FEBEERO 28 DE 1952. ........................................................... 17 MARZO 1 DE 1952. ................................................................. 19 MARZO 2 DE 1952. ................................................................. 21 MARZO 8 DE 1952. ................................................................. 27 MARZO 12 DE 1952. ............................................................... 28 MARZO 14 DE 1952. ............................................................... 38 MARZO 16 DE 1952. ............................................................... 43 MARZO 17 DE 1952. ............................................................... 45 MARZO 18 DE 1952. ............................................................... 50 MARZO 19 DE 1952. ............................................................... 53 LO QUE ERAN LOS ESPIRITUALISTAS DEL SIGLO XX ...... 57 MAYO 9 DE 1952. ................................................................... 59 OBSERVACION ....................................................................... 60 CONCLUSION DE ESTE LIBRO ............................................. 61
+
+![Imagen 3](Apuntes Secretos de un Guru/Apuntes Secretos de un Guru - 003 - CONCLUSION DE ESTE LIBRO.jpeg)
 
 #### AÑO OBRAS ESCRITAS O COMPILADAS DEL V. M. SAMAELAUN WEOR
 

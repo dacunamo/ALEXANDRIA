@@ -154,13 +154,13 @@ Las Respuestas que dio Samael Aun Weor.
 
 *P.- Un terrícola tuvo la oportunidad de ver un extraterrestre y le preguntó cuántos planetas había en nuestro Sistema Solar, y el extraterrestre contestó que había 12 Planetas. Quisiera saber si esto es cierto o no.*
 
-R.- Samael Aun Weor- Bueno en realidad esta vez no le dijeron el número exacto de planetas, porque hay 13 en nuestro sistema solar. Empecemos en orden para que se entienda: Tierra, Mercurio, Venus, Sol, Marte, Júpiter, Saturno, Urano, Neptuno, Plutón, Vulcano, Persephone y Clarión. Total ¡13 Mundos! tiene nuestro sistema solar, y fueron 14, pero sucedió que los habitantes de ese planeta amarillo o planeta 14 se dedicaron, como ya dije, a los experimentos atómicos, y destruyeron totalmente su mundo.
+R.- Samael Aun Weor-Bueno en realidad esta vez no le dijeron el número exacto de planetas, porque hay 13 en nuestro sistema solar. Empecemos en orden para que se entienda: Tierra, Mercurio, Venus, Sol, Marte, Júpiter, Saturno, Urano, Neptuno, Plutón, Vulcano, Persephone y Clarión. Total ¡13 Mundos! tiene nuestro sistema solar, y fueron 14, pero sucedió que los habitantes de ese planeta amarillo o planeta 14 se dedicaron, como ya dije, a los experimentos atómicos, y destruyeron totalmente su mundo.
 
 Tierra suelta o asteroides giran ahora alrededor del sol, y son los restos de ese Planeta destruido, y eso lo saben los hombres de ciencia.
 
 *P.- Usted hizo mención de una ciudad de Marte, llamada Tanio; ¿Es una experiencia personal que tuvo usted, es decir que conoció con los ojos?.*
 
-R.- Samael Aun Weor- Ciertamente Tanio es una ciudad que existe, y cuando cito a Tanio, se debe a un informe directo recibido por un hombre que pertenece a un grupo de gente que viajaron a Marte. Es bueno que ustedes sepan, que actualmente los discípulos de Marconi han continuado con sus investigaciones científicas en las Selvas del Amazonas.
+R.- Samael Aun Weor-Ciertamente Tanio es una ciudad que existe, y cuando cito a Tanio, se debe a un informe directo recibido por un hombre que pertenece a un grupo de gente que viajaron a Marte. Es bueno que ustedes sepan, que actualmente los discípulos de Marconi han continuado con sus investigaciones científicas en las Selvas del Amazonas.
 
 Estaban ellos en sus experimentos cuando un grupo de naves planetarias que venían de Marte visitaron sus instalaciones del Amazonas; desde que tuvieron contacto con los habitantes de Marte, ellos no volvieron a tener contacto con la civilización moderna. Indubitablemente aprendieron con los marcianos a utilizar la energía solar. La última exploración que hicieron fue a la ciudad de Tanio.
 
@@ -174,7 +174,7 @@ Preguntas de un Inquieto.
 
 *- ¿Los Hombres Azules están esperando a que llegue la catástrofe?- ¿Por qué están esperando, y no empiezan de una vez a ayudar a la gente?. ¿Por qué lo van a hacer de una forma absurda?. Pienso, que si se van a mezclar con la gente y se van a llevar uno por uno; siendo que tienen tanto poder, por qué no lo hacen en forma inteligente; sino que ayudan a una, dos o tres personas que encuentran en el camino, viendo que pueden ayudar a más?. ¿Qué esperan?.*
 
-R.- Samael Aun Weor- La Pregunta está bastante interesante; obviamente es la mejor pregunta que hoy ha salido de este gran auditorio; quien la hace refleja bastante inteligencia y gran valor.
+R.- Samael Aun Weor-La Pregunta está bastante interesante; obviamente es la mejor pregunta que hoy ha salido de este gran auditorio; quien la hace refleja bastante inteligencia y gran valor.
 
 En realidad de verdad si la raza azul apareciera ahora en ciudades como New York, París o Londres, estoy seguro que no sería muy bien tratado. ¿Que suerte les aguardaría a los extraterrestres si se hicieran visibles y tangibles en las grandes capitales del mundo?. ¿En qué quedarían sus naves?. ¿Están ustedes seguros que las multitudes respetarían sus naves?. ¿Están ustedes seguros de que las multitudes respetarían las vidas de los habitantes de otros planteas? ¡hasta ahora los hechos han demostrado lo contrario!.
 

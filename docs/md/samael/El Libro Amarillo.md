@@ -1,3 +1,5 @@
+![Imagen 1](El Libro Amarillo/El Libro Amarillo - 001 - Portada.jpeg)
+
 # EL LIBRO AMARILLO
 
 *Samael Aun Weor*
@@ -848,9 +850,7 @@ El yo es una larva horrible metida en los distintos trasfondos de la mente. Cuan
 
 Nosotros los Hermanos del Templo, sentimos gran amargura cuando vemos algún gran maestro que a pesar de haber despertado el Kundalini conserva todavía vivo el yo en los profundos trasfondos de la mente. Amadísimos, aquí tenéis un libro para despertar el Kundalini y desarrollar todos los poderes ocultos. Practicad amadísimos, pero disolved el yo. Reconoced vuestra propia miseria y pecado. Ayunad mucho, orad, hollad con fe, paciencia y caridad la rocallosa senda que conduce al Nirvana.
 
-Samael Aun Weor
-
-## INDICE
+Samael Aun Weor **INDICE**
 
 Prefacio ............................................................................................... 3
 
@@ -885,6 +885,8 @@ CAPITULO XIII - La Sutil Voz ...................................................
 CAPITULO XIV - Estado de Jinas .................................................... 42
 
 CAPITULO XV - Útiles y perfumes ................................................... 53
+
+![Imagen 2](El Libro Amarillo/El Libro Amarillo - 002 - INDICE.jpeg)
 
 ### AÑO OBRAS ESCRITAS O COMPILADAS DEL V. M. SAMAELAUN WEOR
 

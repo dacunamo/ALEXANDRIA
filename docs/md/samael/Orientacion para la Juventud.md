@@ -166,6 +166,8 @@ Es conveniente que la persona se haga por lo menos dos veces a la semana baños 
 
 Se debe cargar una bolsita con azufre en los zapatos, a la que se hayan agregado tres gotas de azafétida y debe recibir diariamente sahumerios de benjuí (estoraque).
 
+![Imagen 1](Orientacion para la Juventud/Orientacion para la Juventud - 001 - XII – Trabajos Místicos.jpeg)
+
 ## XII – Trabajos Místicos
 
 Todo aspirante a los estudios Gnósticos debe encarnar la devoción y la mística, todas las mañanas debe pararse a la salida del Sol, poner las manos extendidas hacia el Sol y orar la siguiente oración del corazón: *“Prospero tanto en lo físico como en lo espiritual porque el MAESTRO está conmigo y así lo quiero yo”*, (siete veces).

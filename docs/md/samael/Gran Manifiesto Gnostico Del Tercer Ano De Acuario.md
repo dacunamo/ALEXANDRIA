@@ -1,6 +1,10 @@
 # GRAN MANIFIESTO GNÓSTICO DEL
 
-**3er AÑO DE ACUARIO** EN HONOR DEL PRIMER CONGRESO GNÓSTICO LATINOAMERICANO **SAMAEL AUN WEOR** BUDDHA MAITREYA KALKI AVATARA DE LA NUEVA ERA DE ACUARIO **CONVOCATORIA** EL PRESIDENTE FUNDADOR DEL MOVIMIENTO GNÓSTICO TIENE EL ALTO HONOR DE CONVOCAR A TODOS LOS HERMANOS DEL MOVIMIENTO GNÓSTICO DE LA REPUBLICA DE COLOMBIA PARA QUE NOS HONREN CON SU PRESENCIA PERSONAL EN EL CONGRESO GNÓSTICO NACIONAL COLOMBIANO QUE HABRÁ DE
+**3er AÑO DE ACUARIO** EN HONOR DEL PRIMER CONGRESO GNÓSTICO LATINOAMERICANO **SAMAEL AUN WEOR** BUDDHA MAITREYA KALKI AVATARA DE LA NUEVA ERA DE ACUARIO
+
+![Imagen 1](Gran Manifiesto Gnostico Del Tercer Ano De Acuario/Gran Manifiesto Gnostico Del Tercer Ano De Acuario - 001 - BUDDHA MAITREYA KALKI AVATARA DE LA NUEV.png)
+
+**CONVOCATORIA** EL PRESIDENTE FUNDADOR DEL MOVIMIENTO GNÓSTICO TIENE EL ALTO HONOR DE CONVOCAR A TODOS LOS HERMANOS DEL MOVIMIENTO GNÓSTICO DE LA REPUBLICA DE COLOMBIA PARA QUE NOS HONREN CON SU PRESENCIA PERSONAL EN EL CONGRESO GNÓSTICO NACIONAL COLOMBIANO QUE HABRÁ DE
 
 REALIZARSE EN LA CIUDAD AMURALLADA DE CARTAGENA, EL 27 de DICIEMBRE DEL PRESENTE AÑO 3 de ACUARIO.
 
@@ -82,7 +86,7 @@ Nosotros debemos libertarnos de la INFLUENCIA LUNAR, y convertirnos en SERES SOL
 
 Por estos tiempos abunda mucho la literatura sobre YOGA y se forman grupos de HATHA YOGA por todas partes. Se hace necesario que nosotros aclaremos esta cuestión para bien de todos los aspirantes a la LUZ. Existen en el INDOSTÁN siete GRANDES ESCUELAS DE YOGA, y todas ellas son muy útiles porque sirven de KINDER a la humanidad. En las ESCUELAS DE YOGA hay mucho útil y mucho inútil. Se hace necesario distinguir entre lo útil y lo inútil, así como entre lo más útil y lo menos útil. Los ESTUDIANTES SERIOS que han recorrido el INDOSTÁN, saben muy bien que lo mejor de todas esas ESCUELAS, lo más TRASCENDENTAL está en la SEXO-YOGA, en el TANTRISMO BLANCO.
 
-EL HATHA-YOGA resulta KINDER cuando SÓLO atiende las necesidades físicas, y practica GIMNASIA. Empero el HATHA-YOGA TÁNTRICO ya no es KINDER, es de hecho y por derecho propio ESCUELA DE REGENERACIÓN, puesto que se relaciona con el MAITHUNA (MAGIA SEXUAL) y con todas sus SHADANAS TÁNTRICAS o sabias posturas MÁGICO-SEXUALES.
+EL HATHA-YOGA resulta KINDER cuando SÓLO atiende las necesidades físicas, y practica GIMNASIA. Empero el HATHA-YOGA TÁNTRICO ya no es KINDER, es de hecho y por derecho propio ESCUELA DE REGENERACIÓN, puesto que se relaciona con el MAITHUNA (MAGIA SEXUAL) y con todas sus SHADANAS TÁNTRICAS o sabias posturas MÁGICOSEXUALES.
 
 EL RAJA-YOGA es KINDER cuando solo se relaciona con los CHACRAS, DISCOS o RUEDAS MAGNÉTICAS del hombre. Pero cuando se combina con el KUNDALINI YOGA y la MAGIA SEXUAL, deja de ser KINDER y de hecho se convierte en ESCUELA DE REGENERACIÓN. EL GNANA-YOGA es KINDER cuando solo se preocupa por la MENTE y sus poderes, pero cuando se combina con el TANTRISMO BLANCO, de hecho ya no es KINDER; se convierte en ESCUELA DE REGENERACIÓN.
 

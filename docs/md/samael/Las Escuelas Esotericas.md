@@ -234,7 +234,7 @@ No quieren esos pobres fanáticos de las Escuelas Negras, darse cuenta que todav
 
 Ignoran esos pobres débiles que todavía no tienen Cuerpo Mental, que sólo tienen el Yo Mental Pluralizado (legión de Diablos), que usa como vehículos al Cuerpo Lunar.
 
-Ignoran esos pobres tontos que todavía no tienen el Cuerpo de la Voluntad Consciente, y que sólo poseen la fuerza del deseo lunar. Esos fanáticos tenebrosos se creen semi-dioses y creen que la divinidad puede manifestarse a través de gentes que todavía no tienen los Cuerpos Solares.
+Ignoran esos pobres tontos que todavía no tienen el Cuerpo de la Voluntad Consciente, y que sólo poseen la fuerza del deseo lunar. Esos fanáticos tenebrosos se creen semidioses y creen que la divinidad puede manifestarse a través de gentes que todavía no tienen los Cuerpos Solares.
 
 Los Magos Negros son lunares ciento por ciento. Nosotros debemos liberarnos de influencia lunar y convertirnos en seres solares. Nosotros debemos trabajar con el Hidrógeno SI-12, trasmutándolo de acuerdo con la ley de las Octavas para tener los Cuerpos Solares y convertirnos en Seres Solares.
 
@@ -282,7 +282,7 @@ Recordemos la escuela de Yogananda. Nosotros conocemos muy bien la Kriya de Yoga
 
 No queremos con esto decir que dicha Kriya no sirva, es claro que si sirve como kinder y eso es todo. Lo absurdo es adulterar la Gnosis, adulterar el conocimiento metiendo dicha Kriya dentro del Movimiento Gnóstico. El adulterio esta totalmente prohibido en el evangelio cristiano.
 
-Realmente la Kriya de Yogananda no es sino una rama del Laya Kriya Sadhana Tántrica del Tibet. Sin los Tantras dicha Kriya esta incompleta y por lo tanto nadie se puede auto-realizar con dicha Kriya. Ni aun siquiera el mismo Yogananda logró la Auto-realización. Yogananda necesita reencarnarse para casarse y trabajar con el Maithuna. (Solo así lograra la Auto-Realización Intima).
+Realmente la Kriya de Yogananda no es sino una rama del Laya Kriya Sadhana Tántrica del Tibet. Sin los Tantras dicha Kriya esta incompleta y por lo tanto nadie se puede auto-realizar con dicha Kriya. Ni aun siquiera el mismo Yogananda logró la Autorealización. Yogananda necesita reencarnarse para casarse y trabajar con el Maithuna. (Solo así lograra la Auto-Realización Intima).
 
 Lo grave de los fanáticos del infrasexo es que están plenamente convencidos que pueden auto-realizarse renunciando al sexo o fornicando...
 
@@ -428,13 +428,15 @@ El Movimiento Gnóstico tiene una gigantesca tarea en la Era Acuaria que estamos
 
 ### CENTRO DE ESTUDIOS DE ANTROPOLOGIA GNOSTICA C.E.G.
 
-Plaza Urquinahona, 1, 3ª. 2ª.
-
-### TEL. 302 40 41 08010 BARCELONA.
+Plaza Urquinahona, 1,
 
 Apartado 94068 08080 BARCELONA ESPAÑA
 
-Deposito legal: B-29482-1985 Printed in Spain
+Deposito legal: 3ª. 2ª.
+
+### TEL. 302 40 41 08010 BARCELONA.
+
+B-29482-1985 Printed in Spain
 
 <hasta aquí el texto digitalizado>
 

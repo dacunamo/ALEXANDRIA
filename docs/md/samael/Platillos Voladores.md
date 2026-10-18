@@ -20,6 +20,8 @@ De todos los rincones de la tierra llegan alarmantes noticias sobre platillos vo
 
 En Argentina otra nave aterrizó sobre una montaña de difícil acceso. Un campesino dio parte a las autoridades; éstas pudieron contemplar la nave, pero no lograron llegar hasta ella debido a lo accidentado del terreno.
 
+![Imagen 1](Platillos Voladores/Platillos Voladores - 001 - ATERRIZÓ EN UN SEMBRADO.jpeg)
+
 Sobre una torre de control de cohetes cósmicos en Australia voló una nave cósmica en instantes en que los expertos de dicha torre seguían la trayectoria del cohete que fotografió a Marte.
 
 La verdad desnuda en cuestión de Platillos Voladores es que realmente existen y que han sido registrados por radar y debidamente fotografiados. Resulta imposible que el radar y los aparatos de fotografías puedan sufrir alucinaciones.
@@ -39,6 +41,8 @@ Este científico de reconocido prestigio mundial pudo platicar ampliamente con d
 En un país SurAmericano cuyo nombre no podemos mencionar, existe una sociedad científica compuesta por noventa y ocho sabios discípulos de Marconi. Estos sabios conviven con un grupo de Marcianos que normalmente aterrizan en dicha región.
 
 Lo que más le molesta a los bribones, es que la cosa no se haga pública y que todo se haga tan en secreto. Nosotros les preguntamos a estos bribones si ellos son así tan
+
+![Imagen 2](Platillos Voladores/Platillos Voladores - 002 - ATERRIZÓ EN UN SEMBRADO.jpeg)
 
 inconscientes, como para regalarle una bomba de dinamita a un niño de tres años. ¿Que le sucedería a un niño que jugara con una bomba de dinamita?
 
@@ -60,6 +64,8 @@ Aun cuando los señores bribones se sientan muy molestos y lancen contra nosotro
 
 ### CAPITULO I UN VISITANTE JUPITERIANO
 
+![Imagen 3](Platillos Voladores/Platillos Voladores - 003 - UN VISITANTE JUPITERIANO.jpeg)
+
 Las noticias que vienen de todas partes del mundo aseguran que las Naves Cósmicas aterrizan en distintos lugares de la Tierra. Lo que más le molesta a los bribones es no poder capturar una de esas Naves con tripulación y todo.
 
 Estamos absolutamente seguros de que los caníbales del Africa y de la Amazonas también se sienten muy molestos cuando no logran capturar a un explorador.
@@ -75,6 +81,8 @@ El citado científico pudo conocer no sólo el interior de la Nave, sino tambié
 El capitán de dicha Nave dijo venir de un Satélite del Planeta Júpiter. Habló en perfecto español y prometió al citado científico corresponder a su visita. Cuando el señor Kraspedón quiso darle al capitán sus datos domiciliarios no fue necesario porque el capitán declinó la oferta diciendo: “Nosotros sabemos perfectamente cómo encontrarlo a usted en la Tierra”.
 
 Seis meses más tarde, un domingo cualquiera, el señor Kraspedón, cerrado en su estudio en su casa, fue interrumpido de pronto por su mujer quien le informó que en la puerta estaba un hombre que deseaba hablar con él. Díjolo que tal hombre traía entre sus manos una Biblia y que insistió en dar explicaciones sobre ésta.
+
+![Imagen 4](Platillos Voladores/Platillos Voladores - 004 - UN VISITANTE JUPITERIANO.jpeg)
 
 El señor Kraspedón ordenó a su mujer despedir al visitante y cerrar la puerta. Momentos después regresó la señora informando a su marido que el mencionado visitante no quería irse e insistía en hablar con él.
 
@@ -96,6 +104,8 @@ Dijo el Jupiteriano que si los científicos atómicos continuaban con sus explos
 
 Advirtió el Jupiteriano que al descomponerse la Camada Superior de la Atmósfera terrestre que sirve de sustentáculo para la vida de la Tierra, vendrían grandes terremotos y las ciudades caerían como castillos de naipes, hechas polvo.
 
+![Imagen 5](Platillos Voladores/Platillos Voladores - 005 - UN VISITANTE JUPITERIANO.jpeg)
+
 Informó el Jupiteriano diciendo que ya ellos, los navegantes del espacio que visitan a la Tierra, están viendo la Camada Superior de la Atmósfera terrestre en franco proceso de alteración y sin el brillo y esplendor de otros tiempos.
 
 Dijo el Jupiteriano que la guerra termonuclear saturará con las radiaciones atómicas el agua que bebemos, los cultivos con que nos sostenemos, las nubes que traen las lluvias, etc.
@@ -116,6 +126,8 @@ Nosotros conocernos personalmente a SALVADOR VILLANUEVA MEDINA el hombre que fue
 
 Salvador no vive de su extraordinaria aventura ni tampoco del libro que escribió titulado “YO ESTUVE EN EL PLANETA VENUS”. Este caballero ahora es mecánico de
 
+![Imagen 6](Platillos Voladores/Platillos Voladores - 006 - EL HOMBRE QUE FUE A VENUS.jpeg)
+
 profesión, arregla automóviles, de eso vive, nosotros mismos hemos estado en su taller viéndolo trabajar, es práctico ciento por ciento. El domicilio de este caballero lo reservamos por no tener autorización para darlo en un impreso.
 
 Nosotros sólo nos limitamos a dos cosas: Primera, dar testimonio de que este es un hombre absolutamente cuerdo dedicado a su trabajo y a su familia. Segunda, que este hombre pasó por una aventura formidable pero que no vive en ella.
@@ -135,6 +147,8 @@ Cuenta Salvador que este extraño visitante llevaba un cinturón con perforacion
 Salvador sólo se limitó a preguntarle al misterioso personaje si era aviador. El personaje contestó que su avión, como nosotros lo llamamos, estaba a poca distancia. Dichas estas palabras el personaje se metió entre la montaña. Cuenta Salvador que después de este suceso resolvió dormir tranquilamente entre su carro.
 
 No había pasado mucho tiempo cuando fue despertado por fuertes golpes dados en el vidrio de la puerta delantera del lado derecho. Salvador abrió su puerta y fue grande su
+
+![Imagen 7](Platillos Voladores/Platillos Voladores - 007 - EL HOMBRE QUE FUE A VENUS.jpeg)
 
 sorpresa al encontrar al conocido que venía ahora en compañía de otro individuo semejante. Salvador los hizo entrar en su carro y platicó con ellos ampliamente.
 
@@ -158,6 +172,8 @@ Explicaron que en Venus los niños no vagan por las calles, que el Gobierno los 
 
 Explicaron estos venusinos que del mar sacan todos los elementos necesarios para construir edificios, confeccionar ropa, fabricar vehículos y un sesenta o más del porcentaje de su alimentación.
 
+![Imagen 8](Platillos Voladores/Platillos Voladores - 008 - EL HOMBRE QUE FUE A VENUS.jpeg)
+
 Dijeron que sus barcos lo mismo pueden estar en el aire que en el agua y que en el fondo del mar existen gigantescas fábricas encargadas de seleccionar y aprovechar científicamente el pescado para su alimentación.
 
 Afirmaron los venusinos que aquí en nuestro planeta tierra se quedan algunos de ellos vestidos de paisano con el propósito de estudiar a la humanidad de nuestro planeta. Dicen ellos que la etapa histórica por la que nosotros los terrícolas estamos atravesando ahora, la vivieron ellos hace muchos miles de años. Ellos también conocieron las guerras, los líderes astutos de la política hasta que al fin nació la fraternidad. Hoy en día no tienen banderas. Han hecho de su mundo una sola Patria y están gobernados por sabios que solo se limitan a aconsejarlos con sabiduría y amor.
@@ -173,6 +189,8 @@ La civilización venusina es millones de veces más avanzada que la de nosotros 
 Salvador relata lo que vio, nosotros nos limitamos a comentarlo. La Casa Phillips examinó muestras de tierra y de plantas recogidas en el lugar donde Salvador encontró la nave y se descubrió un desorden atómico muy extraño de esas muestras. También se fotografió el lugar pues allí quedaron las huellas de la nave. El sabio Adamski dictó una conferencia sobre este tema en el Teatro “Insurgentes” de México. Una comisión alemana de científicos se interesó por la cuestión y visitó a Salvador y estudió en el terreno de los acontecimientos. No ha quedado duda alguna, empero, los imbéciles se seguirán riendo como siempre porque son imbéciles.
 
 ### CAPITULO IV PLATILLOS VOLADORES Y HOMBRECILLOS VERDES
+
+![Imagen 9](Platillos Voladores/Platillos Voladores - 009 - PLATILLOS VOLADORES Y HOMBRECILLOS VERDE.jpeg)
 
 De Lima, Perú, vino una noticia fechada el dos de agosto cuyo texto es el siguiente: “Un Platillo Volador con su tripulante, un enano de color verdoso, fue visto anoche en la azotea de una casa de esta capital, por un joven estudiante, según declaración que prestó hoy al diario “EL COMERCIO”.
 
@@ -194,6 +212,8 @@ La ciencia ficción se ha encargado de propagar por doquiera ya a través de la 
 
 Se han levantado calumnias infamantes contra los visitantes extraterrestres, la mente de los terrícolas juzga de acuerdo con sus perversidades y quiere ver en nuestros nobles visitantes todo el odio de la mente terrícola, todas las atrocidades de un Hitler, todas las monstruosidades del inventor de la Bomba H., todas las purgas sangrientas de un Stalin, etc., etc., etc.
 
+![Imagen 10](Platillos Voladores/Platillos Voladores - 010 - PLATILLOS VOLADORES Y HOMBRECILLOS VERDE.jpeg)
+
 No quieren darse cuenta estos perversos terrícolas del noble propósito de nuestros amigos extraterrestres, si ellos quisieran tomarse el planeta Tierra y esclavizar a todos sus habitantes lo harían en minutos porque tienen elementos suficientes para hacerlo.
 
 Si ellos quisieran destruirnos ya lo hubieran hecho porque tienen instrumentos atómicos y científicos con los cuales pueden hacer saltar en pedazos cualquier planeta del espacio.
@@ -213,6 +233,8 @@ Ha llegado la hora de cambiar nuestra actitud belicosa y ofrecer a nuestros herm
 Los hermanos gnósticos deben empezar por dar el ejemplo estableciendo en las azoteas de nuestras casas, en nuestro país, en nuestros terrenos, señales amistosas, círculos con puntos en el centro. Del punto salen líneas que se dirigen a la periferia y de la periferia salen pequeñas líneas que aunque no llegan hasta el centro dan a entender que se dirigen hacia el centro, hacia el punto.
 
 Hacer que el punto citado en el centro del circulo, tenga un bello color dorado para simbolizar a la Divinidad.
+
+![Imagen 11](Platillos Voladores/Platillos Voladores - 011 - PLATILLOS VOLADORES Y HOMBRECILLOS VERDE.jpeg)
 
 Las líneas que de la periferia se dirigen hacia el centro, hacia el punto, pueden ser azules en bastante cantidad y cortas. Las líneas que del centro se dirigen hacia el círculo es claro que conectan al punto con la circunferencia y pueden ser también de color azul.
 
@@ -234,6 +256,8 @@ Todavía no se han tomado la Luna tirios y troyanos y ya se habla de cohetes at�
 
 El inventor de la Bomba H todavía no sabe el daño que le causó a la humanidad. Si una de esas bombas de Hidrógeno llegase a explotar en las zonas superiores de la atmósfera donde existe el depósito de Hidrógeno puro, se quemaría toda la atmósfera de la Tierra, cumpliéndose así la profecía dicha por Pedro en su segunda Epístola que a la letra dice así: “Pero el día del Señor vendrá como ladrón en la noche; en el cual los Cielos pasarán con grande estruendo, y los elementos ardiendo serán desechos, y la tierra y las obras que en ella hay serán quemadas”. (Ver 10. Epístola 2. San Pedro).
 
+![Imagen 12](Platillos Voladores/Platillos Voladores - 012 - EL MOVIMIENTO GNOSTICO.jpeg)
+
 Es claro que antes de que esto sucediese, antes que a un loco se le ocurriese hacer este experimento con la bomba de hidrógeno, antes de que ella llegase a explotar en las zonas superiores de la atmósfera, donde está el hidrógeno puro de la Tierra, el depósito viviente de hidrógeno universal, podemos estar seguros de que ellos, los navegantes del espacio infinito, harían volar en pedazos el planeta Tierra, porque las humanidades de los otros planetas del sistema solar, no tienen qué sufrir las consecuencias de la explosión del hidrógeno terrestre.
 
 Semejante catástrofe terrestre repercutirá espantosamente sobre los otros Planetas del sistema Solar y antes que ésta sucediese, ellos, los navegantes del espacio sideral, se verían obligados con dolor profundo a destruir este Planeta, haciéndolo volar en pedazos, porque no es justo que otras humanidades planetarias sufran las consecuencias de las locuras del hombre terrestre.
@@ -249,6 +273,8 @@ EL MOVIMIENTO GNOSTICO CRISTIANO UNIVERSAL quiere forjar grupos de hombres y muj
 Millones de seres humanos llenos de soberbia, orgullo y perversidad, sólo creen en sus cohetes espaciales y en sus armas destructivas. Esas hordas de sabihondos están entregados a todos los vicios de la Tierra y se ríen a sus anchas de todo lo que huele a Platillos Voladores.
 
 EL PUEBLO GNOSTICO de ninguna manera acepta al anticristo de la falsa ciencia ni menos puede creer que se pueda conquistar el espacio infinito sin habernos conquistado a sí mismos.
+
+![Imagen 13](Platillos Voladores/Platillos Voladores - 013 - EL MOVIMIENTO GNOSTICO.jpeg)
 
 Sería absurdo suponer que las hordas bárbaras de la Tierra puedan conquistar a otros mundos y esclavizar a humanidades planetarias superiores.
 
@@ -272,6 +298,8 @@ En otros lugares de la Tierra existen grupos similares que ya poseen los Platill
 
 Estamos diciendo algo que ni remotamente pueden aceptar los bribones sabihondos, irónicos, sarcásticos y llenos de petulancia. Empero, qué importa a la ciencia y qué a nosotros?
 
+![Imagen 14](Platillos Voladores/Platillos Voladores - 014 - EL MOVIMIENTO GNOSTICO.jpeg)
+
 Vamos, los hermanos del Movimiento Gnóstico a prepararnos humildemente para hacernos dignos y merecedores de recibir en grupos selectos y ocultos a los hermanos del espacio.
 
 El 27 de diciembre de 1968 habrá de realizarse en Barranquilla, Colombia, Sur América, nuestro Segundo Congreso Gnóstico. Este evento será Internacional debiendo concurrir las delegaciones de todos los SANTUARIOS GNOSTICOS de América.
@@ -285,3 +313,5 @@ Invitamos a los hermanos de todas las Religiones, Escuelas y sectas a este gran 
 ### PAZ INVERENCIAL.
 
 ### SAMAEL AUN WEOR
+
+![Imagen 15](Platillos Voladores/Platillos Voladores - 015 - SAMAEL AUN WEOR.jpeg)

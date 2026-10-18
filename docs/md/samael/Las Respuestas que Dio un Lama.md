@@ -180,7 +180,7 @@ P. ¿Estuvo usted reencarnado alguna vez en la antigua China? •'
 
 R. Sí: en la personalidad de CHOU-LI. También tuve otras personalidades. Así, pues, tuve varias re-encamaciones en la antigua China.
 
-P. De sus pasadas re-encarnaciones, ¿cuál le parece que fue más provechosa para la humanidad?
+P. De sus pasadas reencarnaciones, ¿cuál le parece que fue más provechosa para la humanidad?
 
 R. Aquella que tuve como JULIO CESAR, porque establecimos un escenario para que la CUARTA SUB-RAZA, de la QUINTA RAZA ARIA, tuviera donde desenvolverse.
 
@@ -202,7 +202,7 @@ R. Cuando el Maestro posee la PIEDRA FILOSOFLA tiene por añadidura, LA MEDICINA
 
 P. ¿Podría explicarnos, Maestro, por qué es usted un LAMA TIBETANO?
 
-R. En realidad ese grado es de mi SER. Indubitablemente, alguna vez estuve re-encarnado en el Tibet y entonces me hice LAMA. Han pasado los siglos y, aún cuando haya perdido aquel cuerpo tibetano que otrora tuviera, mi SER INTERIOR PROFUNDO continua siendo un LAMA TIBETANO. Es obvio que, como ESPÍRITU, como SER, asisto siempre a las reuniones de LA ORDEN SAGRADA DEL TIBET.
+R. En realidad ese grado es de mi SER. Indubitablemente, alguna vez estuve reencarnado en el Tibet y entonces me hice LAMA. Han pasado los siglos y, aún cuando haya perdido aquel cuerpo tibetano que otrora tuviera, mi SER INTERIOR PROFUNDO continua siendo un LAMA TIBETANO. Es obvio que, como ESPÍRITU, como SER, asisto siempre a las reuniones de LA ORDEN SAGRADA DEL TIBET.
 
 P. ¿Qué es, en realidad, LA ORDEN SAGRADA DEL TIBET?
 
@@ -216,7 +216,7 @@ B. El mas elevado de todos, el más exaltado, es VAGAVAN ACLAIVA. Es él el Supr
 
 P- ¿Qué representa el DALAI LAMA en la Historia del Tibet?
 
-R- Han sido muchos los DALAI LAMAS. Estamos, actualmente, en el décimo-tercero o trece-avo, el cual, por cierto, tuvo que salir para las tierras sagradas del Indostán. Hubo de retirarse precipitadamente del Tibet cuando llegó la invasión de las hordas chino-comunistas; no le quedó otro camino que huir hacia la India, pues de lo contrario habría sido asesinado... EL DALAI LAMA es un adepto que trabajó por la humanidad pero, como he dicho, han existido varios DALAI LAMAS y en el futuro, seguirán existiendo. Todo aquel que sea una UNA VERDADERA REENCARNACIÓN podrá convertirse en DALAI LAMA si la Gran Ley así lo quiere.
+R- Han sido muchos los DALAI LAMAS. Estamos, actualmente, en el décimotercero o treceavo, el cual, por cierto, tuvo que salir para las tierras sagradas del Indostán. Hubo de retirarse precipitadamente del Tibet cuando llegó la invasión de las hordas chino-comunistas; no le quedó otro camino que huir hacia la India, pues de lo contrario habría sido asesinado... EL DALAI LAMA es un adepto que trabajó por la humanidad pero, como he dicho, han existido varios DALAI LAMAS y en el futuro, seguirán existiendo. Todo aquel que sea una UNA VERDADERA REENCARNACIÓN podrá convertirse en DALAI LAMA si la Gran Ley así lo quiere.
 
 P. ¿Es el DALAI LAMA un SUPER-HOMBRE?
 
@@ -308,7 +308,7 @@ R. La Meditación es el pan diario de todo verdadero aspirante a la Sabiduría. 
 
 P. ¿Querría explicarnos qué es eso de "auto-disciplinarse esotéricamente para no dejarse tragar por el EGO?.
 
-R. En materia de auto-disciplina esotérica hay muchos asuntos que no se pueden publicar y sólo son comunicados de maestro a discípulo.
+R. En materia de autodisciplina esotérica hay muchos asuntos que no se pueden publicar y sólo son comunicados de maestro a discípulo.
 
 P. Definitivamente, Maestro: ¿quién no medita no disuelve el Ego?
 
@@ -346,7 +346,7 @@ P. ¿Cuál es la mejor técnica para desintegrar defectos durante la práctica d
 
 R. Los esposos deben, durante la cópula química, pedir ambos por la desintegración DEL MISMO DEFECTO. Es falta de caridad y de amor el que el marido esté pidiendo por la desintegración de tal o cual defecto y la compañera esté, por su lado, pidiendo por la muerte de otro defecto. Es precisamente el poder del ANDRÓGINO, formado por la pareja en el trance sexual, el que va a utilizar la Divina Madre Kundalini para incinerar tal o cual agregado psíquico. Y si el FUEGO ELÉCTRICO lo dirigen ambos cónyuges hacia UN MISMO DEFECTO, la desintegración no se hace esperar. Repito: AMBOS CÓNYUGES DEBEN IMPLORAR POR EL MISMO DEFECTO.
 
-P. ¿Podría decirnos, Venerable Maestro, cual o cuáles defectos fueron, en su presente Re-encarnación, los más difíciles de eliminar?
+P. ¿Podría decirnos, Venerable Maestro, cual o cuáles defectos fueron, en su presente Reencarnación, los más difíciles de eliminar?
 
 R. Pues, obviamente, considero que la IRA y la LUJURIA fueron los radicales; y como quiera que éstos se redujeron a polvo, todos los demás es fueron eliminando con paso seguro y mano fuerte.
 
@@ -354,11 +354,11 @@ P. Maestro: ¿Presentía usted desde su infancia la misión que le aguardaba?
 
 R. Sí: Desde mi infancia lo sabía. Así es.
 
-P. ¿Por qué algunos dicen que es usted un extra-terrestre?
+P. ¿Por qué algunos dicen que es usted un extraterrestre?
 
-R. Bueno, mi SER INTERIOR PROFUNDO si lo es, no puedo negarlo. En realidad, de verdad, DENTRO DE MÍ están los principios anímicos y espirituales del REGENTE DE MARTE (SAMAEL); Dichos principios están contenidos DENTRO DE MI ALMA y el mismo REGENTE DE MARTE es mi REAL SER INTERIOR PROFUNDO. De manera que, obviamente si soy un extra-terrestre...
+R. Bueno, mi SER INTERIOR PROFUNDO si lo es, no puedo negarlo. En realidad, de verdad, DENTRO DE MÍ están los principios anímicos y espirituales del REGENTE DE MARTE (SAMAEL); Dichos principios están contenidos DENTRO DE MI ALMA y el mismo REGENTE DE MARTE es mi REAL SER INTERIOR PROFUNDO. De manera que, obviamente si soy un extraterrestre...
 
-P. Venerable Maestro: ¿conoce usted a extra-terrestres que estén aquí, en nuestro planeta tierra, cumpliendo alguna misión?
+P. Venerable Maestro: ¿conoce usted a extraterrestres que estén aquí, en nuestro planeta tierra, cumpliendo alguna misión?
 
 R. Si los hay. Actualmente hay varios que están trabajando y permanecen incógnitos, disfrazados de terrícolas.
 
@@ -602,9 +602,9 @@ R. Tengo entendido que nosotros debemos entregar a la humanidad los métodos y m
 
 ### PRONTO LE ENTREGAREMOS A LA HUMANIDAD APARATOS MÁS PERFECTOS
 
-TODAVÍA QUE LA TELEVISIÓN Y EL RADIO; éstos se propagarán en forma masiva, por todas partes del mundo. Puede decirse, entonces, que los extra-terrestres instruiremos a la humanidad en forma masiva...
+TODAVÍA QUE LA TELEVISIÓN Y EL RADIO; éstos se propagarán en forma masiva, por todas partes del mundo. Puede decirse, entonces, que los extraterrestres instruiremos a la humanidad en forma masiva...
 
-P. ¿Es cierto que en las SELVAS AMAZÓNICAS hay bases extra-terrestres?
+P. ¿Es cierto que en las SELVAS AMAZÓNICAS hay bases extraterrestres?
 
 R. Sí es cierto que las hay. Tales bases están tan escondidas que jamás los profanos darán con ellas.
 

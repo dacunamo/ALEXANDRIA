@@ -4,6 +4,8 @@
 
 *Gnosis, Ciencia y Cultura para llegar a Dios. “El hombre está tan cerca de Dios, que de por medio solo está la Mente”*
 
+![Imagen 1](El Despertar del Hombre/El Despertar del Hombre - 001 - SAMAEL AUN WEOR.png)
+
 Samael Aun Weor
 
 Kalki Avatara de la Nueva Era de Acuario **TABLA DE CONTENIDO**
@@ -132,7 +134,7 @@ El trabajo sobre sí mismo es la característica fundamental de la rebeldía psi
 
 Necesitamos aprender a vivir de instante en instante.
 
-Vivir en plena atención, en plena auto-observación de nosotros mismos, vivir alertas a lo que pensamos, sentimos y actuamos; es definitivo, hay que dejar de soñar, de vivir fascinados identificados con todos los problemas.
+Vivir en plena atención, en plena autoobservación de nosotros mismos, vivir alertas a lo que pensamos, sentimos y actuamos; es definitivo, hay que dejar de soñar, de vivir fascinados identificados con todos los problemas.
 
 Un buen ejemplo es el caso de María que va caminando por la calle y no escucha el saludo de un amigo, en el momento preciso que ella se decía en la mente : Por la tarde le pagaré a la modista y ….
 
@@ -142,9 +144,9 @@ En este caso María no recibió el saludo de su amigo, por la falta de conciecia
 
 **A** medida que uno trabaja sobre sí mismo se va comprendiendo cada vez más y más, la necesidad de eliminar radicalmente de su naturaleza interior todo eso que nos hace tan abominables.
 
-El sentido de la auto-observación íntima se encuentra atrofiado en todo ser humano; trabajando seriamente, auto-observándose de momento en momento. Tal sentido se desarrolla en forma progresiva.
+El sentido de la autoobservación íntima se encuentra atrofiado en todo ser humano; trabajando seriamente, auto-observándose de momento en momento. Tal sentido se desarrolla en forma progresiva.
 
-Ante el sentido de auto-observación íntima cada uno de esos yoes que en nuestro interior habitan, asumen realmente ésta o aquella figura secretamente afín con el defecto personificado por la misma. Indubitablemente la imagen de cada uno de estos yoes tiene cierto sabor psicológico inconfundible mediante el cual captamos, capturamos, atrapamos, instintivamente su naturaleza íntima y el defecto que la caracteriza.
+Ante el sentido de autoobservación íntima cada uno de esos yoes que en nuestro interior habitan, asumen realmente ésta o aquella figura secretamente afín con el defecto personificado por la misma. Indubitablemente la imagen de cada uno de estos yoes tiene cierto sabor psicológico inconfundible mediante el cual captamos, capturamos, atrapamos, instintivamente su naturaleza íntima y el defecto que la caracteriza.
 
 Es necesario tomar nota sobre nuestros estados psicológicos diarios, si es que de verdad queremos cambiar definitivamente.
 

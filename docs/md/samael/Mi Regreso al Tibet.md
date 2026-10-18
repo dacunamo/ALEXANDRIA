@@ -10,6 +10,10 @@
 
 *BOGOTA, COLOMBIA – 1969*
 
+![Imagen 1](Mi Regreso al Tibet/Mi Regreso al Tibet - 001 - BOGOTA, COLOMBIA – 1969.jpeg)
+
+![Imagen 2](Mi Regreso al Tibet/Mi Regreso al Tibet - 002 - VM SAMAEL AUN WEOR.jpeg)
+
 #### VM SAMAEL AUN WEOR
 
 Prefacio Mensaje de Navidad 1969-1970
@@ -142,9 +146,11 @@ Sin sufrir cambio alguno cuando el tiempo no exista.
 
 **Rig Veda**
 
+![Imagen 3](Mi Regreso al Tibet/Mi Regreso al Tibet - 003 - LAS SIETE ETERNIDADES.png)
+
 #### CAPITULO 2 GENTES DE OTROS MUNDOS
 
-Nosotros, ¡pobres y míseros gusanos del lodo de la tierra! ¿Somos acaso así tan necios, que necesitamos todavía investigar un poco más la cuestión aquella de los posibles visitantes extra-terrestres?
+Nosotros, ¡pobres y míseros gusanos del lodo de la tierra! ¿Somos acaso así tan necios, que necesitamos todavía investigar un poco más la cuestión aquella de los posibles visitantes extraterrestres?
 
 ¿No son acaso más que suficientes todos los datos que tenemos? ¿Somos para desgracia nuestra así tan obtusos, lerdos y torpes, que no comprendemos que desde los antiguos tiempos hemos sido siempre visitados por gentes de otros mundos?
 
@@ -158,7 +164,7 @@ Caer en la cárcel sin motivo alguno, así porque sí, o convertirse en un conej
 
 Esto no significa que las gentes de otros mundos no puedan defenderse; es claro, evidente, que si ya conquistaron el espacio deben también poseer armas formidables, pero no son asesinos, resulta a todas luces mejor evitar problemas.
 
-¿Y en cuanto a nosotros qué? ¿Cuándo seremos capaces de corresponderles las visitas a nuestros amigos extra-terrestres?
+¿Y en cuanto a nosotros qué? ¿Cuándo seremos capaces de corresponderles las visitas a nuestros amigos extraterrestres?
 
 Ciertos especuladores románticos de los siglos XVIII y XIX suponían la posibilidad de viajar a la Luna impulsados con alas o mediante el sistema de globos aerostáticos. Es evidente que tales fantasías desaparecieron del ambiente intelectual cuando se descubrió el límite de nuestra atmósfera planetaria.
 
@@ -334,11 +340,11 @@ No es en manera alguna extraño, que un BODHISATTVA, (ALMA HUMANA DE MAESTRO) de
 
 #### CAPITULO 4 EL TIEMPO
 
-Si observamos atentamente cualquier cosa de este mundo MAYAVICO en que vivimos -una mesa por ejemplo- descubrimos con místico asombro, tres aspectos perfectamente definidos: largo, ancho y alto. Empero, es evidente que en la mesa de nuestro ejemplo concreto, existe además un cuarto factor específico totalmente definido; quiero referirme al concepto tiempo.
+Si observamos atentamente cualquier cosa de este mundo MAYAVICO en que vivimos -una mesa por ejemplo-descubrimos con místico asombro, tres aspectos perfectamente definidos: largo, ancho y alto. Empero, es evidente que en la mesa de nuestro ejemplo concreto, existe además un cuarto factor específico totalmente definido; quiero referirme al concepto tiempo.
 
 ¿Cuánto tiempo ha que el humilde carpintero fabricó la brillante mesa? ¿Minutos tan solo? ¿Horas tal vez? ¿Meses? ¿Años?
 
-Longitud, latitud y altura, son fuera de toda posible duda –aunque esta fuera de tipo CARTESIANO- los tres aspectos EUCLIDIANOS de este mundo tridimensional en que para bien o para mal vivimos, mas es claro que resultaría absurdo excluir de nuestros postulados el cuarto factor.
+Longitud, latitud y altura, son fuera de toda posible duda –aunque esta fuera de tipo CARTESIANO-los tres aspectos EUCLIDIANOS de este mundo tridimensional en que para bien o para mal vivimos, mas es claro que resultaría absurdo excluir de nuestros postulados el cuarto factor.
 
 El tiempo en sí mismo considerado como CUARTA DIMENSIÓN contiene intrínsecamente dos propiedades fundamentales: la TEMPORAL y la ESPACIAL.
 
@@ -512,7 +518,7 @@ A todas luces resalta con entera claridad meridiana, que esa sobredicha generaci
 
 Es pues de saber que las subsiguientes generaciones de la humana especie, descendiente de aquellos descomunales gigantes arcaicos, ha venido retrocediendo desde los antiguos tiempos, involucionando hacia su estado germinal primitivo.
 
-La ANTROPOGENESIS enseña que cualquier mundo del espacio infinito, tarde o temprano se convierte en el escenario de siete razas humanas. En hora-buena sabemos que en este malhadado mundo de tanto infortunio, somos nosotros precisamente, la quinta generación.
+La ANTROPOGENESIS enseña que cualquier mundo del espacio infinito, tarde o temprano se convierte en el escenario de siete razas humanas. En horabuena sabemos que en este malhadado mundo de tanto infortunio, somos nosotros precisamente, la quinta generación.
 
 Es obvio que la sexta raza será aun más pequeña de estatura y a todas luces resulta evidente que la última generación será de LILIPUTIENSES.
 
@@ -744,7 +750,7 @@ En la NOCHE PROFUNDA solo tinieblas llenaban el todo sin límites; pues Padre, M
 
 Después de estas palabras OREMUS... meditemos... adoremos. Vamos ahora a lo más profundo de nuestro ser y en ausencia del YO busquemos con infinita humildad.
 
-Allá... muy adentro... más allá del cuerpo, de los efectos y de la mente, encontraremos al niño HORUS, el espíritu divino, nuestro real SER, en brazos de su MADRE DIVINA KUNDALINI, ISIS, a quien ningún mortal ha levantado el velo.‖ Ella en verdad es el aspecto femenino de OSIRIS, el Padre que está en secreto; este en sí mismo es la fase masculina de ISIS. Ambos son el IOD-HEVE de los Hebreos ¡Jah-Hovah o Je-hovah que los judíos de estos tiempos del KALI-YUGA confundieron intencionalmente con JAVHE, el cual como dice Saturnino de Antioquía es el genio del mal, el diablo!
+Allá... muy adentro... más allá del cuerpo, de los efectos y de la mente, encontraremos al niño HORUS, el espíritu divino, nuestro real SER, en brazos de su MADRE DIVINA KUNDALINI, ISIS, a quien ningún mortal ha levantado el velo.‖ Ella en verdad es el aspecto femenino de OSIRIS, el Padre que está en secreto; este en sí mismo es la fase masculina de ISIS. Ambos son el IOD-HEVE de los Hebreos ¡Jah-Hovah o Jehovah que los judíos de estos tiempos del KALI-YUGA confundieron intencionalmente con JAVHE, el cual como dice Saturnino de Antioquía es el genio del mal, el diablo!
 
 ¡Que me escuchen los dioses y que me entiendan los hombres! Así como del mar profundo surgen con ímpetu tremendo las furiosas olas que se estrellan en la arenosa playa, así también de entre el seno infinito de SARAS-WATI, la eterna MADRE ESPACIO, se alza y se manifiesta dentro de nosotros, la SERPIENTE ÍGNEA DE NUESTROS MÁGICOS PODERES, nuestra madre cósmica particular.
 
@@ -768,11 +774,11 @@ Jansky empezó sus observaciones en Agosto de 1931 con una longitud de onda de 1
 
 Empero algo inusitado aparece, algo insólito sucede; logró detectar lo que no buscaba, un silbido de altavoz cuya extraña intensidad variaba lentamente durante el día. Jansky informó muy sinceramente al Procceding of the Instituto of Radio Engineers que la dirección de este silbido extraño y misterioso se paseaba por todos los puntos cardinales de la rosa de los vientos cada veinticuatro horas.
 
-―En el pasado mes de Diciembre y en Enero -dijo- su dirección coincidía generalmente con la del sol, no pudiendo detectarse con precisión su fuente. Luego informó que su dirección se iba desviando y que en marzo precedía en tiempo a la dirección del sol aproximadamente una hora.‖
+―En el pasado mes de Diciembre y en Enero -dijo-su dirección coincidía generalmente con la del sol, no pudiendo detectarse con precisión su fuente. Luego informó que su dirección se iba desviando y que en marzo precedía en tiempo a la dirección del sol aproximadamente una hora.‖
 
 Es evidente que Jansky supuso muchas cosas, hizo muchas conjeturas en relación con tan extraño silbido, no era para menos, el asunto era demasiado raro pero al fin sacó sus propias conclusiones.
 
-―Las radioemisiones -dijo- parecían proceder de una fuente única o de un gran número de fuentes diseminadas por todo el firmamento‖, más allá del sistema solar. Se ha podido evidenciar con entera exactitud que el centro cósmico especial de donde provienen tales radioemisiones se encuentra en el centro de nuestra galaxia, en la misma constelación de Sagitario. Esto no significa en modo alguno que de todos los otros rincones de la Vía Láctea no lleguen ondas a la tierra. Es obvio que nuestra galaxia es una fuente viviente de ruidos de radio con varias zonas de gran intensidad de emisión. El LOGOS suena y nuestra vía Láctea no está muda; se sostiene por el verbo, por el sonido, por el FIAT luminoso y espermático del primer instante.
+―Las radioemisiones -dijo-parecían proceder de una fuente única o de un gran número de fuentes diseminadas por todo el firmamento‖, más allá del sistema solar. Se ha podido evidenciar con entera exactitud que el centro cósmico especial de donde provienen tales radioemisiones se encuentra en el centro de nuestra galaxia, en la misma constelación de Sagitario. Esto no significa en modo alguno que de todos los otros rincones de la Vía Láctea no lleguen ondas a la tierra. Es obvio que nuestra galaxia es una fuente viviente de ruidos de radio con varias zonas de gran intensidad de emisión. El LOGOS suena y nuestra vía Láctea no está muda; se sostiene por el verbo, por el sonido, por el FIAT luminoso y espermático del primer instante.
 
 ―En el principio era el Verbo y el Verbo estaba con Dios y el Verbo era Dios‖.
 
@@ -1428,7 +1434,7 @@ La píldora anticonceptiva y demás elementos biológicos y químicos destruyen 
 
 Existen variadas formas de Lisosomas:  Amilasas (Hidratos de Carbono)  Lipasas (Grasas)  Catalasas  Oxidasas  Penoxidas  Proteasas (Proteínas)  Hidralasas (Hidrógenos)
 
-Es ostensible que el Lisosoma en sí mismo es un centro ELECTRO-MAGNÉTICO enzimático. En el núcleo viviente de la célula radica el mesón K que al irradiar hacia la periferia da origen a los Lisosomas intracelulares por la Ley del eterno HEPTAPARAPARSHINOKH.
+Es ostensible que el Lisosoma en sí mismo es un centro ELECTROMAGNÉTICO enzimático. En el núcleo viviente de la célula radica el mesón K que al irradiar hacia la periferia da origen a los Lisosomas intracelulares por la Ley del eterno HEPTAPARAPARSHINOKH.
 
 En armonía con el infinito, en contacto con la naturaleza, se estabilizan la tensión superficial, la presión osmótica y oncótica de todas las células, (glóbulos rojos, zoospermos, etc., El Fab, los detergentes, insecticidas, pomadas espermáticas, drogas, hormonas de animales, monóxido de carbono, etc., destruyen los Lisosomas de zoospermos, óvulos, etc.
 
@@ -1550,7 +1556,7 @@ Existen ahora infinitas conjeturas sobre el misterio de las bolas de fuego verde
 
 La respuesta a este formidable interrogante la tiene el MOVIMIENTO GNÓSTICO INTERNACIONAL cuando dice: REMOLINOS ELÉCTRICOS, VÓRTICES DE FUERZA, SE ESCAPAN DE LOS MUNDOS PORTANDO EN SU SENO GÉRMENES DE VIDA". "TORBELLINOS ELÉCTRICOS LLEGAN A LOS MUNDOS TRAYENDO EN SUS VIENTRES GÉRMENES DE VIDA".
 
-El sistema solar- incluyendo a nuestro afligido mundo- es obvio que ya llegó a cierto rincón del cosmos en donde, los vórtices eléctricos portadores de gérmenes vitales, se han hecho visibles. Nuestro sistema solar en su viaje eterno a través del inalterable infinito, ha llegado a un rincón del universo en donde eventos cósmicos jamás esperados pueden ocurrir.
+El sistema solar-incluyendo a nuestro afligido mundo-es obvio que ya llegó a cierto rincón del cosmos en donde, los vórtices eléctricos portadores de gérmenes vitales, se han hecho visibles. Nuestro sistema solar en su viaje eterno a través del inalterable infinito, ha llegado a un rincón del universo en donde eventos cósmicos jamás esperados pueden ocurrir.
 
 #### CAPITULO 30 VERDAD JUSTICIA
 
@@ -1560,7 +1566,7 @@ Azotaba, cayendo con estrépito, la lluvia mi cristal, y al rasgar con su espada
 
 "Que mi alma no sea subyugada ni arrastrada cautiva por los demonios" ¡Que me sea permitido volver la cara ante el cadalso de Sepdú! (El cadalso del Karma... Sed alabados. ¡Oh vosotros, espíritus planetarios de la constelación de la cadera! (Libra)
 
-"En cuanto a vosotros, Oh cuchillos divinos de los misterios -dice el sagrado libro de la morada oculta- clamando desde el fondo profundo de los siglos. Vosotros, los dos brazos divinos -de la balanza cósmica- que ilumináis y regocijáis el Universo y conducís según los ritmos de las épocas, a jóvenes y viejos, ¡mirad! He aquí que a Thoth, el Buddha íntimo de cada hombre, Señor de los Misterios procede a las libaciones ante el amo de los millones de años (EL LOGOS Universal de la Vida) y le abre el camino a través del firmamento".
+"En cuanto a vosotros, Oh cuchillos divinos de los misterios -dice el sagrado libro de la morada oculta-clamando desde el fondo profundo de los siglos. Vosotros, los dos brazos divinos -de la balanza cósmica-que ilumináis y regocijáis el Universo y conducís según los ritmos de las épocas, a jóvenes y viejos, ¡mirad! He aquí que a Thoth, el Buddha íntimo de cada hombre, Señor de los Misterios procede a las libaciones ante el amo de los millones de años (EL LOGOS Universal de la Vida) y le abre el camino a través del firmamento".
 
 "Es Thoth que inmoviliza los huracanes y los encierra en sus fortalezas (Es ciertamente el BUDDHA INTERIOR de cada viviente, el Señor de los poderes) ¡Oh vosotros, espíritus divinos del Karma, apartad de mí la miseria y los sufrimientos! Y que pueda mi persona ser agradable a RA" (Dios) Escuchad hombres y dioses: Este firmamento de acero que había protegido al mundo del Amenti, (La región de los muertos), el demonio APOPI (El cuerpo de deseos de cada viviente) le ha agujereado; pues es obvio que hasta los tenebrosos más perversos suelen meterse en esa morada.
 
@@ -1614,13 +1620,13 @@ Ahondando pues en este asunto de tan vital importancia, podemos descubrir claram
 
 Los dos autores renglones arriba citados, creen ver en los niños prodigio, casos reales de auténticos MUTANTES. El doctor J. Ford Thomson, después de haber examinado a cinco mil niños de Inglaterra, encontró un acceso de fiebre de inteligencia. De los últimos noventa niños de siete a nueve años de edad interrogados por este psiquiatra, veintiséis tenían un cociente intelectual de ciento cuarenta, lo que equivale al genio, o poco menos.
 
-Dice el doctor Thomson, que el estroncio noventa, producto radio-activo que penetra en el cuerpo, puede ser responsable de ello. Este producto no existía antes de la primera explosión atómica.
+Dice el doctor Thomson, que el estroncio noventa, producto radioactivo que penetra en el cuerpo, puede ser responsable de ello. Este producto no existía antes de la primera explosión atómica.
 
 Dos sabios norteamericanos, C. Brooke y Robert K. Enrdes, en su famosa obra titulada The Nature Of Living Things creen poder demostrar que la agrupación de los genes sufre actualmente una perturbación y que, por el efecto de influencias todavía misteriosas, está apareciendo una nueva raza de hombres, dotada de poderes intelectuales superiores.
 
 Es indubitable que esta es una tesis bastante atrevida y que hay que acoger con ciertas reservas. A todas luces resalta con entera claridad meridiana, que el átomo de la herencia ha sido localizado en los cromosomas. Resulta enteramente manifiesto que la herencia biológica puede ser transformada radicalmente para originar un MUTANTE. En eso de la transmutación sexual y el SAHAJA MAITHUNA tal como lo enseñamos en el capitulo 26 del presente mensaje de Navidad 1969-1970, es incuestionable que existe sacrificio espantoso y auténtica rebeldía psicológica; Mejor dijéramos: Insurrección declarada contra la herencia biológica.
 
-El resultado patente y manifiesto de ese tipo muy especial de rebeldía psico-sexual es el MUTANTE. Nosotros los gnósticos necesitamos estudiar profundamente las leyes cardinales y definitivas de la MUTACIÓN científica. Cualquier mutante legitimo de tipo favorable, es el resultado especifico de distintas cristalizaciones del Hidrógeno sexual SI-12.
+El resultado patente y manifiesto de ese tipo muy especial de rebeldía psicosexual es el MUTANTE. Nosotros los gnósticos necesitamos estudiar profundamente las leyes cardinales y definitivas de la MUTACIÓN científica. Cualquier mutante legitimo de tipo favorable, es el resultado especifico de distintas cristalizaciones del Hidrógeno sexual SI-12.
 
 Es incuestionable y a todas luces resalta que el citado Hidrógeno representa el producto final de la transformación de los alimentos dentro del maravilloso laboratorio del organismo humano. Resulta ostensible que esta es la materia primordial con que trabaja el sexo.
 
@@ -1682,7 +1688,7 @@ Esta idea del MUTANTE es fascinante, asombrosa formidable. Del lado de los lucif
 
 Del lado del hinduismo renovado, dice Pauwels, el Maestro del Ashram de Pondichery, uno de los más grandes pensadores de la nueva India. Sir Aurobindo Ghose, fundó su filosofía y sus comentarios de los textos sagrados sobre la certeza de una evolución ascendente de la humanidad, realizándose por mutaciones.
 
-Nosotros los gnósticos enfatizamos la idea de que no es posible el nacimiento del MUTANTE mediante explosiones atómicas y radio-activas. Nosotros no comulgamos con hostias de pergamino; a nosotros no se nos puede engañar. Jamás aceptaremos el DOGMA DE LA EVOLUCIÓN. El MUTANTE es el resultado de la REVOLUCIÓN DE LA CONCIENCIA; el producto viviente de la rebeldía PSICOLÓGICA.
+Nosotros los gnósticos enfatizamos la idea de que no es posible el nacimiento del MUTANTE mediante explosiones atómicas y radioactivas. Nosotros no comulgamos con hostias de pergamino; a nosotros no se nos puede engañar. Jamás aceptaremos el DOGMA DE LA EVOLUCIÓN. El MUTANTE es el resultado de la REVOLUCIÓN DE LA CONCIENCIA; el producto viviente de la rebeldía PSICOLÓGICA.
 
 Me parece utópico aquel concepto extravagante del doctor Louis Wolf, especialista inglés de enfermedades infantiles de Londres cuando afirma que nacen en dicho país treinta mil MUTANTES FENIL-CETONICO por año. Dice Pauwels que estos MUTANTES poseen genes que dizque no producen en la sangre determinados fermentos que actúan en la sangre normal. Continúa el citado autor, diciéndonos que un MUTANTE FENIL-CETONICO es incapaz de disociar la FEMIL-ALAMINA.
 
@@ -1698,7 +1704,7 @@ Es lástima que ese inteligente autor haya hecho de las explosiones atómicas y 
 
 #### CAPITULO 33 EL DEMONIO HAI
 
-Ha mucho tiempo, en un viejo palacio encontré un calabozo. Dentro estaba un venerable anciano. Su barba aureolada tenía trece mechones; su blanca cabellera tenía treinta y un bucles. Este era el anciano de los días, la bondad de las bondades, lo oculto de lo oculto, la misericordia de las misericordias. Su cuello era como torre de marfil; sus ojos como los estanques de Hesbón junto a la puerta de Bat-ra-bím su nariz, como la torre del Líbano, mirando siempre hacia Damasco...
+Ha mucho tiempo, en un viejo palacio encontré un calabozo. Dentro estaba un venerable anciano. Su barba aureolada tenía trece mechones; su blanca cabellera tenía treinta y un bucles. Este era el anciano de los días, la bondad de las bondades, lo oculto de lo oculto, la misericordia de las misericordias. Su cuello era como torre de marfil; sus ojos como los estanques de Hesbón junto a la puerta de Batra-bím su nariz, como la torre del Líbano, mirando siempre hacia Damasco...
 
 ¡Caí de hinojos mordiendo el polvo de la tierra! ¡Grité angustiado y con el puñal en la mano!... ¡Exclamé diciendo con todas las fuerzas de mi alma!... ¡Yo lo maté! ¡Yo lo maté!
 
@@ -1920,7 +1926,7 @@ Todos los bípedos humanos somos más o menos demonios; dejar de ser demonios, c
 
 Sólo a base de terribles AUTO-ESFUERZOS es posible lograr un cambio radical, una transformación definitiva. Seria absurdo suponer siquiera por un momento, un cambio de fondo, una auténtica AUTO-REALIZACIÓN INTERIOR en forma involuntaria y mecánica como lo piensan los fanáticos del dogma de la Evolución.
 
-Mientras un hombre no alcance el estado de ANUPADAKA es absolutamente imposible que pueda vivenciar la naturaleza de PARA-NIRVANA. Hasta en los días de la escuela de YOGACHARYA, la verdadera naturaleza de Paranirvana se enseñaba públicamente, pero desde entonces esa doctrina se guardó en secreto, pues es ostensible que los HOMÚNCULOS RACIONALES no están preparados para comprenderla.
+Mientras un hombre no alcance el estado de ANUPADAKA es absolutamente imposible que pueda vivenciar la naturaleza de PARANIRVANA. Hasta en los días de la escuela de YOGACHARYA, la verdadera naturaleza de Paranirvana se enseñaba públicamente, pero desde entonces esa doctrina se guardó en secreto, pues es ostensible que los HOMÚNCULOS RACIONALES no están preparados para comprenderla.
 
 #### CAPITULO 38 CÁNCER
 
@@ -1938,7 +1944,7 @@ El gnosticismo científico revolucionario se permite con todo respeto la liberta
 
 Entiendo que el germen del cáncer, el terrible ―cancro‖, se desarrolla en organismos pobres en cobre y catalazas. Es incuestionable que ni siquiera por medio de los electro-microscopios más potentes se ha podido ver el «cancro», más si esta temible enfermedad puede ser transmitida a organismos pobres en cobre y catalaza, es obvio que tal microbio existe. A todas luces resulta claro comprender que el germen del cáncer se desarrolla y desenvuelve en la cuarta dimensión, haciéndose sentir en el mundo tridimensional por sus efectos destructivos.
 
-Es indubitable que en un futuro mediato se inventarán electro-microscopios más poderosos; entonces el ―cancro‖ será perceptible para los científicos ultra-modernos. Es ostensible que este germen fatal llega al planeta Tierra sumergido entre las corrientes electro-magnéticas de la constelación de cáncer. A todas luces resalta que el cáncer es el KARMA de la fornicación. Los antiguos sabios conocieron a fondo este tipo muy especial de Némesis.
+Es indubitable que en un futuro mediato se inventarán electro-microscopios más poderosos; entonces el ―cancro‖ será perceptible para los científicos ultramodernos. Es ostensible que este germen fatal llega al planeta Tierra sumergido entre las corrientes electromagnéticas de la constelación de cáncer. A todas luces resalta que el cáncer es el KARMA de la fornicación. Los antiguos sabios conocieron a fondo este tipo muy especial de Némesis.
 
 Aquí en Méjico existe un vegetal muy especial que puede curar el cáncer; quiero referirme en forma enfática a cierto arbusto conocido en la región de Ixmiquilpan, Estado de Hidalgo. El nombre de ese arbusto es ARANTO; los antiguos aborígenes le bautizaron con el nombre indígena de AULAGA.
 
@@ -1968,7 +1974,7 @@ La esposa, del señor Agustín Uribe (nos reservamos sus datos domiciliarios), f
 
 El distinguido facultativo doctor en medicina. Jacinto Juárez Parra, de la Universidad Nacional de Méjico, probó el poder de este arbusto en una enferma cancerosa de último grado y ya desahuciada; en este caso sí la cosa fue muy difícil y no fue posible salvar la vida de la enferma. Pienso que ya estando el organismo completamente destruido por la enfermedad, todo remedio falla.
 
-Opina, el doctor Juárez que se puede y debe hacer un estudio con microscopio electrónico de la planta integra y después, separar por centrifugación los núcleos, los lisosomas, los ribosomas y el microsoma, haciendo un análisis ESPECTRO-FOTOMETRICO de cada una de las partes de la planta con el inteligente propósito de descubrir sus coloides, enzimas y sus elementos huella u oligo-elementos.
+Opina, el doctor Juárez que se puede y debe hacer un estudio con microscopio electrónico de la planta integra y después, separar por centrifugación los núcleos, los lisosomas, los ribosomas y el microsoma, haciendo un análisis ESPECTRO-FOTOMETRICO de cada una de las partes de la planta con el inteligente propósito de descubrir sus coloides, enzimas y sus elementos huella u oligoelementos.
 
 Hay que investigar —dice el doctor Juárez—, que porciones intracelulares del citado vegetal actúan efectivamente sobre el cáncer.
 
@@ -2016,9 +2022,9 @@ Y después de todo me quedé meditando: ¿qué saben de esto los SEUDO-ESOTERIST
 
 Es ostensible que al sepulcro van tres cosas: el cuerpo, el fondo vital y la personalidad que lentamente se disuelve... Es incuestionable que no todo va al sepulcro; hay algo que continúa más allá, me refiero a SETH, el EGO, el MI MISMO. De ninguna manera exageramos si enfatizamos la idea correcta de que aquello que sobrevive es un montón de diablos (Yoes.) Tales YOES-DIABLOS suelen concurrir a los centros espiritistas; entonces se meten entre los cuerpos de los MÉDIUM y se identifican.
 
-Nada gana el mundo con esos experimentos tenebrosos; el KARMA de tales sujetos mediumnímicos es la epilepsia en las vidas sub-siguientes...
+Nada gana el mundo con esos experimentos tenebrosos; el KARMA de tales sujetos mediumnímicos es la epilepsia en las vidas subsiguientes...
 
-SETH, EL YO PLURALIZADO no se REENCARNA; Regresa, retorna, se reincorpora en nuevos organismos, eso es todo. La palabra REENCARNACIÓN es muy exigente, la doctrina de KRISHNA enseña que sólo los dioses, Devas, reyes divinos, semi-dioses, etc., se REENCARNAN; Desafortunadamente en el mundo occidental se ha abusado mucho de ese término... En los antiguos tiempos se celebraron en el Tibet las REENCARNACIONES, con grandes fiestas.
+SETH, EL YO PLURALIZADO no se REENCARNA; Regresa, retorna, se reincorpora en nuevos organismos, eso es todo. La palabra REENCARNACIÓN es muy exigente, la doctrina de KRISHNA enseña que sólo los dioses, Devas, reyes divinos, semidioses, etc., se REENCARNAN; Desafortunadamente en el mundo occidental se ha abusado mucho de ese término... En los antiguos tiempos se celebraron en el Tibet las REENCARNACIONES, con grandes fiestas.
 
 El YO PLURALIZADO excluye toda INDIVIDUALIDAD. De ninguna manera puede haber INDIVIDUALIDAD donde coexisten múltiples entidades (Yoes), que riñen entre sí y que originan en nosotros variadas contradicciones sicológicas. La REENCARNACIÓN es sólo para los INDIVIDUOS SAGRADOS...
 
@@ -2094,7 +2100,7 @@ Quiero referirme a LUCIFER, la serpiente tentadora del EDEM, esa fuerza FOHATICA
 
 De todo esto podemos inferir sin temor a equivocarnos, que tanto SETH, (el YO PLURALIZADO), como los tres malos amigos de JOB, son en sí mismos dentro de los infiernos atómicos del hombre, viles granulaciones del fuego lunar luciférico. Es obvio que la pareja original humana (la raza lémur), fue fatalmente víctima sexual de la serpiente luciférica. La rebelión en los cielos y la consecuente caída de los ángeles es un problema cien por cien sexual...
 
-Lucifer, ese vil gusano que atraviesa el corazón del mundo, sub-yace como es natural en el fondo de toda materia orgánica e inorgánica. El FOHAT lunar luciférico ejerce control directo sobre cierto átomo maligno del COXIS, órganos sexuales, corazón y cerebro. El impulso sexual luciférico, maligno, controla hasta nuestros sentimientos íntimos. Es indubitable que esa fuerza fohática ciega de tipo lunar luciferino, tiene hipnotizada a la humanidad, sumergida en la inconciencia.
+Lucifer, ese vil gusano que atraviesa el corazón del mundo, subyace como es natural en el fondo de toda materia orgánica e inorgánica. El FOHAT lunar luciférico ejerce control directo sobre cierto átomo maligno del COXIS, órganos sexuales, corazón y cerebro. El impulso sexual luciférico, maligno, controla hasta nuestros sentimientos íntimos. Es indubitable que esa fuerza fohática ciega de tipo lunar luciferino, tiene hipnotizada a la humanidad, sumergida en la inconciencia.
 
 Resulta fácil comprender que al cristalizar el fuego luciférico en toda esa legión de YOES-DIABLOS que cada cual lleva dentro, el resultado es la inconciencia. Es ostensible que la conciencia duerme entre esas entidades tenebrosas que constituyen el EGO. Así es como desarrolla el proceso hipnótico luciferino dentro de cada sujeto que vive sobre la faz de la Tierra. El animal intelectual equivocadamente llamado hombre, es luciférico en un noventa y nueve por ciento.
 
@@ -2290,7 +2296,7 @@ Durante el trabajo con el oro y con la plata, con el SOL y con la LUNA, en la fo
 
 A los hijos del FUEGO y del AGUA, a los dos veces nacidos, les es indispensable el PRATIMOKCHA. Recordemos a Josué exclamando: ¡Sol, detente en Gabaón!; Y tú, luna, en el valle de Ajalón."
 
-Y el Sol se detuvo y la Luna se paró (símbolo del trabajo esotérico), hasta que la gente, -los iniciados- se hubo vengado de sus enemigos. (Los YOES DIABLOS) ¿No está escrito esto en el libro de Jaser? Y el sol-Cristo se paró para guiar al iniciado, como lo hace siempre y no se apresuró, a ponerse a ocultarse casi un día entero El CRISTO CÓSMICO, el LOGOS SOLAR, el SOL de la media noche guía a todos aquellos que pelean contra sus enemigos, los Yoes tenebrosos, los diablos rojos de SETH. (EL EGO.) **CAPITULO 46** LAS DOCE NIDANAS
+Y el Sol se detuvo y la Luna se paró (símbolo del trabajo esotérico), hasta que la gente, -los iniciados-se hubo vengado de sus enemigos. (Los YOES DIABLOS) ¿No está escrito esto en el libro de Jaser? Y el sol-Cristo se paró para guiar al iniciado, como lo hace siempre y no se apresuró, a ponerse a ocultarse casi un día entero El CRISTO CÓSMICO, el LOGOS SOLAR, el SOL de la media noche guía a todos aquellos que pelean contra sus enemigos, los Yoes tenebrosos, los diablos rojos de SETH. (EL EGO.) **CAPITULO 46** LAS DOCE NIDANAS
 
 La sabiduría antigua enfatiza la idea de que existen siete ―Vías‖ hacia la dicha inefable de la NO-EXISTENCIA, que es absoluto Ser y existencia real. En el fondo tal idea luminosa es unitaria, pues solo existe una sola senda con siete jornadas. Pensemos en la fórmula astrológica de Luna, Mercurio, Venus, Sol, Marte, Júpiter y Saturno.
 
@@ -2348,7 +2354,7 @@ Cualquier verdadero difunto vestido con los cuerpos solares, puede presentarse e
 
 "No he hecho trabajar en mi provecho con exceso. No he intrigado por ambición. No he maltratado a mis servidores. No he blasfemado de los dioses". "No he privado al indigente de su subsistencia".
 
-"No he cometido actos execrados por los dioses. No he permitido que un servidor fuese maltratado por su amo". "No he hecho sufrir a otro. No he provocado el hambre. No he hecho llorar a los hombres mis semejantes". "No he matado ni ordenado matar. No he provocado enfermedades entre los hombres". "No he sustraído las ofrendas de los templos. No he robado los panes de los dioses". No me he apoderado de las ofrendas destinadas a los espíritus santificados. No he cometido acciones vergonzosas en el recinto sacro-santo de los templos". "No he disminuido la porción de las ofrendas. No he tratado de aumentar mis dominios empleando medios ilícitos, ni de usurpar los campos de otro".
+"No he cometido actos execrados por los dioses. No he permitido que un servidor fuese maltratado por su amo". "No he hecho sufrir a otro. No he provocado el hambre. No he hecho llorar a los hombres mis semejantes". "No he matado ni ordenado matar. No he provocado enfermedades entre los hombres". "No he sustraído las ofrendas de los templos. No he robado los panes de los dioses". No me he apoderado de las ofrendas destinadas a los espíritus santificados. No he cometido acciones vergonzosas en el recinto sacrosanto de los templos". "No he disminuido la porción de las ofrendas. No he tratado de aumentar mis dominios empleando medios ilícitos, ni de usurpar los campos de otro".
 
 "No he manipulado los pesos de la balanza ni su astil. No he quitado la leche de la boca del niño. No me he apoderado del ganado en los prados". "No he cogido con lazo las aves destinadas a los dioses. No he pescado peces con cadáveres de peces". "No he obstruido las aguas cuando debían correr". "No he deshecho las presas puestas al paso de las aguas corrientes. No he apagado la llama de un fuego que debía arder".
 
@@ -2403,6 +2409,8 @@ Que la estrella de Belén resplandezca en vuestro camino.
 Prefacio Mensaje de Navidad 1969-1970 ................................................ 5 LAS SIETE ETERNIDADES ................................................................ 11 GENTES DE OTROS MUNDOS .......................................................... 14 LA CONCIENCIA ................................................................................. 19 EL TIEMPO ........................................................................................... 25 DAROL FROMAN ................................................................................ 28 LA ORDEN SAGRADA DEL TIBET .................................................. 30 MEDITACIONES .................................................................................. 33 EVOLUCIÓN E INVOLUCIÓN ........................................................... 36 MOMIAS EGIPCIAS ............................................................................ 41 LAS SIETE SENDAS DE LA FELICIDAD ......................................... 43 LA PANSPERMIA DE ARRHENIUS .................................................. 45 LOS MISTERIOS EGIPCIOS ............................................................... 48 LUZ NEGRA ......................................................................................... 53 LA RADIOASTRONOMÍA .................................................................. 56 EL DEMONIO APOPI .......................................................................... 60 LOS SIETE SEÑORES SUBLIMES ..................................................... 64 UNA MAGNIFICA CONVENCIÓN .................................................... 67 MI REGRESO AL TIBET ..................................................................... 70 EL KARMA DE LOS DIOSES SANTOS ............................................. 74 LA BELLA SELENE ............................................................................. 78 EL JABALI NEGRO ............................................................................. 82 MORTALIDAD E INMORTALIDAD.................................................. 85 CONSTRUYENDO MOLÉCULAS ...................................................... 90 LA REVOLUCIÓN DE LA CONSCIENCIA ....................................... 95 ALAYA Y PARAMARTHA ................................................................. 98 EL CONTROL DE LA NATALIDAD ................................................ 100 EL SAHU EGIPCIO ............................................................................ 105 LO INCONSCIENTE .......................................................................... 108 BOLAS DE FUEGO VERDE .............................................................. 111 VERDAD JUSTICIA ........................................................................... 114 LA BASE HOMOGÉNEA .................................................................. 116 LOS MUTANTES ............................................................................... 118 EL DEMONIO HAI ............................................................................. 125 LAS CAUSAS DE LA EXISTENCIA ................................................ 133 BOMBAS ATÓMICAS EN ÓRBITA ................................................. 135 EL DEMONIO NEBT ......................................................................... 137 LOS SIETE COSMOCRATORES ...................................................... 140 CÁNCER ............................................................................................. 144 EL TRIPLE DOMINIO DE SETH ...................................................... 148 RETORNO Y REENCARNACIÓN .................................................... 151 LOS REGISTROS AKASHICOS ........................................................ 153 LUCIFER ............................................................................................. 155 LAS TINIEBLAS ................................................................................ 163 SUSTANCIAS, ÁTOMOS, FUERZAS. .............................................. 165 EL PRATIMOKCHA .......................................................................... 168 LAS DOCE NIDANAS ....................................................................... 172 LA GLÁNDULA TIMO ...................................................................... 174
 
 LA CONFESIÓN NEGATIVA I. (Papiro NU) ................................... 176 CONFESIÓN NEGATIVA .................................................................. 176 KOAN .................................................................................................. 178 SALUTACIONES FINALES .............................................................. 181
+
+![Imagen 4](Mi Regreso al Tibet/Mi Regreso al Tibet - 004 - SALUTACIONES FINALES.jpeg)
 
 #### AÑO OBRAS ESCRITAS O COMPILADAS DEL V. M. SAMAEL AUN WEOR
 

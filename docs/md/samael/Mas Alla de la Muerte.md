@@ -634,7 +634,7 @@ Es obvio que yo debo darle esas enseñanzas; por eso vio usted y oyó que el Se�
 
 *1- En una de las prácticas de desdoblamiento, una noche del año 1966, logré salir conscientemente de mi cuerpo y sentir una liberación muy especial, ya que mi ser sentía alegría indescriptible y volé como un pájaro hasta otro planeta para mí desconocido pero que tenía mucho parecido con la tierra, ya que veía enormes y verdes bosques poblados de pinos y una cabaña de troncos en la que había algunas gentes haciéndome señas; descendí y me encontré con la grata sorpresa de que estaba ahí el Maestro SAMAEL AUN WEOR con algunos familiares y discispulos conocidos, quiénes me recibieron con un abrazo muy efusivo y una alegría muy especial que no puedo describir.*
 
-*Luego el Maestro me invitó a caminar por el bosque hasta llegar a un puente de piedra donde me explicó que ese planeta era LA LUNA en pasadas épocas, cuando había habitantes, animales y vegetación y que era la antigua TIERRA- LUNA o TIERRA-MADRE-LUNA y me enseñó ríos, montañas y grandes mares.*
+*Luego el Maestro me invitó a caminar por el bosque hasta llegar a un puente de piedra donde me explicó que ese planeta era LA LUNA en pasadas épocas, cuando había habitantes, animales y vegetación y que era la antigua TIERRA-LUNA o TIERRA-MADRE-LUNA y me enseñó ríos, montañas y grandes mares.*
 
 *¿Me podría explicar cómo es posible visitar otro planeta en épocas tan remotas como esa?*
 
